@@ -1,0 +1,27 @@
+[Chapter 5.Calm](https://www.theschooloflife.com/thebookoflife/category/calm/): [Serenity](https://www.theschooloflife.com/thebookoflife/category/calm/serenity/): [30. On Needing to Find Something to Worry About](https://www.theschooloflife.com/thebookoflife/on-needing-to-find-something-to-worry-about/)
+
+* * *
+
+# On Needing to Find Something to Worry About
+
+It sounds paradoxical and absurd to think that some of us might need to find something to worry about in order to recover our equilibrium. Worry is, after all, something we should rightly hate to have to suffer and should engage with only when absolutely necessary.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/05/hockney.png)
+
+Yet, some of us do start to feel distinctly nervous when things around us settle down and pervasive stillness descends. We start to feel anxiety about the future precisely when – and in a sense because – there is nothing especially awful on the horizon. We wake up in the middle of a quiet night, filled with an unnamable dread. We may pick up our phones in the hope that they will deliver a requisite shock of anxiety: we scan the news for alarming stories; we look out for aggressive or problem-laden emails. And, normally, we quickly hit on something to return us to a more familiar panicked mode.
+
+Our behaviour might be easy to mock and dismiss but the fact that we need to find something to worry about isn’t mere indulgence. It’s evidence of a particular kind of problem that deserves special compassion and patient understanding. The compulsive need to worry is evidence that – somewhere in a past we haven’t fully unpacked and understood – we underwent something properly worrying and sad. Before our adult faculties were adequately in place, we suffered&nbsp;a traumatic set of events that jammed our inner alarms into their ‘on’ modes and we haven’t been able to quieten them, or soothe ourselves, since.
+
+But what is worse is that the original trauma has been forgotten. We don’t even notice that the inner alarms are ringing. The manic worrier worries, as it were, about ‘everything’ because they are unable to be appropriately concerned with, and in mourning for, one or two big things from long ago. The anxiety that belonged to one particular distant time and place has been redistributed and subdivided across hundreds of ever shifting topics in the present (from workplace to reputation, money to household tasks) because its true source and origins remain unknown to the sufferer.
+
+![Related image](http://ianthearchitect.org/wp-content/uploads/2017/02/David-Hockney-The-Luxor-Hotel.jpg)
+
+We are using the flotsam and jetsam of everyday worries as a proxy for an unmasterable trauma: shame; humiliation; a sense we don’t matter to our caregivers; neglect or abuse. We should not sarcastically point out to worriers that they need ‘something else to worry about’, we should realise that something terrifying that they have buried deep in their unconscious is lending a continuous sense of dread to their fragile present.
+
+The psychoanalyst Donald Winnicott captured the dynamic of this forgetting in a memorable phrase: ‘the catastrophe we think will happen has in fact already happened.’
+
+We manic worriers need not sarcasm but supportive and intelligent company to give us the love we need to dare to look back at the past – and the insight with which to try to do so. Our feeling of dread is a symptom of an ancient sorrow that hasn’t found its target in the here and now; and our ongoing quest and alarm is a sign that we keep not finding anything in the outer world that answers to the horror of the inner one.
+
+Needless to say, it isn’t the case that there is never anything to worry about in the present, just that there is a lot less than the manic worrier tends to believe. Furthermore, what there is to worry about can be coped with with far more resilience than the manic worrier can imagine, for they are operating with what is essentially a child’s sense of their own powers and capacity for survival.
+
+Rather than constantly checking their phones at 4am, manic worriers should gradually come to exchange their feelings of dread for the future for a patient understanding and mourning for an unfairly traumatic and as yet insufficiently explored past.

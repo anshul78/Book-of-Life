@@ -1,0 +1,49 @@
+[Chapter 5.Calm](https://www.theschooloflife.com/thebookoflife/category/calm/): [Perspective](https://www.theschooloflife.com/thebookoflife/category/calm/perspective/): [44. The Consolations of History](https://www.theschooloflife.com/thebookoflife/the-consolations-of-history/)
+
+* * *
+
+# The Consolations of History
+
+Some extremely worrying things are, as always, happening in the world.
+
+[![5440394763_14a86b1695_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/03/5440394763_14a86b1695_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/03/5440394763_14a86b1695_z.jpg)
+
+However bad it is, we are surrounded by an industry that has to scare us. What we call the news is really a business that understands that you cannot make money by telling people that things are, on balance, going to be OK. The point of news is to make money by terrorizing its audience – it has plenty of material to play with and it executes perfectly. It may be trying to inform us, but its chief commercial aim is to ensure that we’ll be panicked enough to keep reading and watching.
+
+[![Day after Oslo bombing](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/03/5967767688_d7b9ee7fb7_b.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/03/5967767688_d7b9ee7fb7_b.jpg)
+
+But&nbsp;for our own sanity (and it is mental survival that is ultimately at stake),&nbsp;we need an antidote, a place of refuge. It cannot simply carry on like this, day after day, the tension ratcheting up with every new edition and bulletin. One place we might turn is&nbsp;a resource that is on hand to remind us that&nbsp;extreme&nbsp;difficulties are not new, that the worst sounding troubles can be survived and that it has&nbsp;(extraordinarily) often&nbsp;been a lot worse even than this: an antidote that goes by the name of History.
+
+When political events seem to have reached a new low, we could – for example – turn to the writings of the ancient Roman historian Suetonius.
+
+[![Nuremberg_chronicles_f_111r_1](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/03/Nuremberg_chronicles_f_111r_1.png)](http://www.thebookoflife.org/wp-content/uploads/2016/03/Nuremberg_chronicles_f_111r_1.png)
+
+Born towards the end of the first century AD, Gaius Suetonius Tranquillus was an imperial administrator and chief secretary to the Emperor Hadrian. He was the first historian to try to give an accurate portrait of what the rulers of the Empire from Julius Caesar down to Domitian had actually been like. It’s a shocking story.
+
+Suetonius’s book amounts to a catalogue of extraordinary follies and crimes of the first twelve men to rule the western world. Amongst them:
+
+_Julius Caesar_: Who emerges as a thief, a liar, an egomaniac and a murderer.
+
+[![675px-Rimini083](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/03/675px-Rimini083.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/03/675px-Rimini083.jpg)
+
+_Caligula:_ A notorious psychopath who, to quote Suetonius, ‘sent people down the mines or thrown to the wild beasts or confined in narrow cages where they they had to crouch or were sawn in half, not for major offences but because they did not properly admire a show he had sponsored at the Circus or did not refer with sufficient respect to his genius.’ We hear that: ‘The method of execution he preferred was to inflict numerous small wounds but avoiding all major organs. He often gave the command: ‘Make them feel they are dying’.’
+
+_Then came Nero: Of him we hear: ‘_He dressed himself in the skins of wild animals and attacked the private parts of men and women bound to stakes.’ ‘He wandered through the streets at night randomly murdering strangers and throwing their bodies into the sewers.’
+
+[![640px-Siemiradzki_Christian_Dirce](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/03/640px-Siemiradzki_Christian_Dirce.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/03/640px-Siemiradzki_Christian_Dirce.jpg)
+
+_Afterwards, it was the turn of Vitellus:_ His ruling vices were gluttony and cruelty. He banqueted three or four times a day and he survived by taking frequent emetics. He used to give himself a treat by having prisoners executed before his eyes.’
+
+_Then it was time for Domitian_: ‘At the beginning of his reign Domitian would spend hours alone every day catching flies and stabbing them with a needle-sharp pen.’
+
+[![Domitian_statue_Vatican](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/03/Domitian_statue_Vatican.png)](http://www.thebookoflife.org/wp-content/uploads/2016/03/Domitian_statue_Vatican.png)
+
+Though Suetonius writes about grotesque people – who were also at the time the most powerful people on the planet – reading him can leave one feeling remarkably serene. One might read him tucked up in bed, after news of the latest election win. The experience is strangely reassuring, because it’s at heart a narrative of resilience.
+
+Suetonius writes of earthquakes, plagues, wars, riots, rebellions, conspiracies, betrayals, coups, terrorism and mass slaughter. Considered on its own it might seem to be the record of a society whose collapse must surely be immanent. But in fact Suetonius was writing before – and not after – the most impressive period of Roman achievement – which would come fifty years later under the rule of the stoic philosopher and Emperor, Marcus Aurelius.
+
+The disasters that Suetonius catalogues were compatible with a society heading overall towards peace and prosperity. Reading Suetonius suggests that it is not fatal for societies to be in trouble; it is in fact usual for things to go rather badly. In this respect, reading ancient history generates the opposite emotions to scanning today’s news. Events have been much worse before and things were, in the end, OK. People behaving very badly is a normal state of affairs. There have always been existential threats to the human race and civilisation. It makes no sense, and is a form of twisted narcissism, to imagine that our era has any kind of monopoly on idiocy and disaster.
+
+By reading Suetonius we enter unconsciously into his less agitated and more Stoic reactions. He and History more generally encourage access to what we need now more than ever: the less panicky, more resilient sides of ourselves.
+
+[![](https://img.youtube.com/vi/pssTJP2hYtU/0.jpg)](https://www.youtube.com/embed/pssTJP2hYtU '')

@@ -1,0 +1,29 @@
+[Chapter 4.Sociability](https://www.theschooloflife.com/thebookoflife/category/sociability/): [Confidence](https://www.theschooloflife.com/thebookoflife/category/sociability/confidence/): [44. How to Be Comfortable on Your Own in Public](https://www.theschooloflife.com/thebookoflife/how-to-be-comfortable-on-your-own-in-public/)
+
+* * *
+
+# How to Be Comfortable on Your Own in Public
+
+We’re spending a few days on business in a town where we know no one. It’s dinner time and, feeling claustrophobic in our hotel room, we wander the main streets looking for a place to eat. The bars and restaurants are filled with loving couples and animated groups of friends. We gingerly enter a diner but, as we take in the warmth and convivial atmosphere, are struck by acute self-consciousness. We blush crimson and clumsily turn to leave before an approaching waiter has had the chance to offer us a seat. We eventually find a dried-out sandwich at the station kiosk, which we eat furtively on a park bench near some loitering pigeons.
+
+Eating alone in public can be one of the great hurdles of psychological life. It can be an exceptional trial because it forces us to wrestle with a set of thoughts that, for most of our lives, we successfully push to the back of consciousness: that we are in essence an unacceptable being, tainted from birth, an outcast, non-specifically diseased, unattractive to others, an object of quiet ridicule or open mockery, undeserving of love and sinful to the core. We may not have this explicit thesis in mind as we decline to sit down by ourselves, but the scale of our embarrassment speaks of a searing latent suspicion of our own being.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/10/32518243182_ce1fcd6e33_z.jpg)
+
+©Flickr/Jack Wallsten
+
+How loveable we feel as adults is, in large measure, the result of how we have been looked after by a few significant figures in childhood. No one is born with a capacity to love and endure themselves on their own; we learn to soothe and care for ourselves by first experiencing the tender gaze of others, and then internalising their reassurance and kindness, replaying it to ourselves in isolated circumstances down the years. The lucky ones among us, those with no compunction about ordering a meal at a table for one, must – somewhere in the distant past – have grown secure through others’ admiration, by which we now ward off suspicions that the head waiter is sniggering and the couple in the corner are teasing us. We, who were perhaps at that time not much larger than a pillow, were lent a powerful sense that we had a right to exist, that we were an asset to the world, that others should be pleased to see us, which means that now, even when the caregivers are long-gone, the charge of love we imbibed lends us an impression that the laughter from the next table is innocent and that we deserve to be brought another basket of bread and the evening paper.
+
+But the less fortunate among us have no such emotional blanket. Whatever our accomplishments or status, we are never far from a sense that everyone is mocking and would have good reason to harm us. We need, with a conscious effort, to do what others have learnt automatically. One side of the mind needs to comfort the other, must make the reassuring noises we never natively received, must soothe us because no one else ever did. Although we’re on our own in the restaurant at the moment, we must strive to hold on to a picture of the rest of our lives: two days ago we were laughing with our friends (of whom we have some great examples), tomorrow we’ll be in intense discussion with some colleagues: we have been loved and held tightly in others’ arms before. We’re on our own right now, but we’re not social outcasts after all.
+
+We should remember – along the way – how little anyone ever thinks of us, in the best possible sense. We are for the most part gloriously indifferent to one another. The person cracking a joke with a group of friends has not rerouted their evening to mock us. The attractive individual deep in conversation with a companion may be talking about how lost they are in their new job. They aren’t speculating on how isolated and ugly we are. Those are voices in our heads, not theirs.
+
+We should take comfort too from the idea that there is at points a distinct dignity and grandeur to being an outsider, to not always being part of the pack, to taking time to step outside the normal social flow in order to consider humanity from an oblique solitary angle. The temporarily friendless and isolated person has privileges and the possibility for insights denied to those always surrounded by the easy chatter of acquaintances. The great champion of the lonely diner, the American painter Edward Hopper, knew how to lend appropriate prestige to those who are on the outside, who can nurture ideas not sanctioned by the crowd, whose loneliness deepens their soul and may make others long for their friendship. The central figure in _Automat_ is far from an object of pity; she is a centre of quiet depth and insight. We might yearn to sit with her – rather than feel sorry that she is as yet on her own.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/10/HopperAutomat.jpg)
+
+Edward Hopper, _Automat_, 1927
+
+It’s in the nature of the anxiety around eating alone that we feel we are the only ones to suffer from it. We should take comfort in numbers. Those of us who are timid in this field are neither alone, nor wretched nor pitiable: we are just taking time to contemplate things from the outside for a while and will, in the process, be readying ourselves for the deepest kinds of friendship and self-knowledge.
+
+[![](https://img.youtube.com/vi/CB9GhE2Jk98/0.jpg)](https://www.youtube.com/embed/CB9GhE2Jk98 '')
