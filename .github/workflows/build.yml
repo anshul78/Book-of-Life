@@ -1,0 +1,164 @@
+name: build
+
+on:
+  schedule:
+    - cron:  '0 6 * * */2' # Runs at 06:00 UTC on Sun, Tue, Thu and Sat
+  push:
+    branches:
+      - master
+
+jobs:
+  relationships:
+    runs-on: ubuntu-latest
+    steps:
+    - uses: actions/checkout@v2
+    - uses: actions/setup-ruby@v1
+      with:
+          ruby-version: '2.7'
+
+    - name: Create local changes
+      run: |
+        bundle
+        brew install fdupes
+        ruby script.rb "relationships"
+
+    - name: Commit and Push files
+      run: |
+        if [[ $(git status -s) != '' ]]; then
+          git config --local user.name "GitHub Action"
+          git config --local user.email "github-action@users.noreply.github.com"
+          git add .
+          git commit -am "Update Relationships"
+          git pull
+          git push --force-with-lease
+        fi
+
+  work:
+    # needs: relationships
+    runs-on: ubuntu-latest
+    steps:
+    - uses: actions/checkout@v2
+    - uses: actions/setup-ruby@v1
+      with:
+          ruby-version: '2.7'
+
+    - name: Create local changes
+      run: |
+        bundle
+        brew install fdupes
+        ruby script.rb "work"
+
+    - name: Commit and Push files
+      run: |
+        if [[ $(git status -s) != '' ]]; then
+          git config --local user.name "GitHub Action"
+          git config --local user.email "github-action@users.noreply.github.com"
+          git add .
+          git commit -am "Update Work"
+          git pull
+          git push --force-with-lease
+        fi
+
+  self_knowledge:
+    # needs: [relationships, work]
+    runs-on: ubuntu-latest
+    steps:
+    - uses: actions/checkout@v2
+    - uses: actions/setup-ruby@v1
+      with:
+          ruby-version: '2.7'
+
+    - name: Create local changes
+      run: |
+        bundle
+        brew install fdupes
+        ruby script.rb "self_knowledge"
+
+    - name: Commit and Push files
+      run: |
+        if [[ $(git status -s) != '' ]]; then
+          git config --local user.name "GitHub Action"
+          git config --local user.email "github-action@users.noreply.github.com"
+          git add .
+          git commit -am "Update Self Knowledge"
+          git pull
+          git push --force-with-lease
+        fi
+
+  sociability:
+    # needs: [relationships, work, self_knowledge]
+    runs-on: ubuntu-latest
+    steps:
+    - uses: actions/checkout@v2
+    - uses: actions/setup-ruby@v1
+      with:
+          ruby-version: '2.7'
+
+    - name: Create local changes
+      run: |
+        bundle
+        brew install fdupes
+        ruby script.rb "sociability"
+
+    - name: Commit and Push files
+      run: |
+        if [[ $(git status -s) != '' ]]; then
+          git config --local user.name "GitHub Action"
+          git config --local user.email "github-action@users.noreply.github.com"
+          git add .
+          git commit -am "Update Sociability"
+          git pull
+          git push --force-with-lease
+        fi
+
+  calm:
+    # needs: [relationships, work, self_knowledge, sociability]
+    runs-on: ubuntu-latest
+    steps:
+    - uses: actions/checkout@v2
+    - uses: actions/setup-ruby@v1
+      with:
+          ruby-version: '2.7'
+
+    - name: Create local changes
+      run: |
+        bundle
+        brew install fdupes
+        ruby script.rb "calm"
+
+    - name: Commit and Push files
+      run: |
+        if [[ $(git status -s) != '' ]]; then
+          git config --local user.name "GitHub Action"
+          git config --local user.email "github-action@users.noreply.github.com"
+          git add .
+          git commit -am "Update Calm"
+          git pull
+          git push --force-with-lease
+        fi
+
+  leisure:
+    # needs: [relationships, work, self_knowledge, sociability, calm]
+    runs-on: ubuntu-latest
+    steps:
+    - uses: actions/checkout@v2
+    - uses: actions/setup-ruby@v1
+      with:
+          ruby-version: '2.7'
+
+    - name: Create local changes
+      run: |
+        bundle
+        brew install fdupes
+        ruby script.rb "leisure"
+
+    - name: Commit and Push files
+      run: |
+        if [[ $(git status -s) != '' ]]; then
+          git config --local user.name "GitHub Action"
+          git config --local user.email "github-action@users.noreply.github.com"
+          git add .
+          git commit -am "Update Leisure"
+          git pull
+          git push --force-with-lease
+        fi
