@@ -1,7 +1,0 @@
-[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Questionnaires](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/questionnaires/): [182. How Ready Might You Be for Therapy? Questionnaire](https://www.theschooloflife.com/thebookoflife/how-ready-might-you-be-for-therapy/)
-
-* * *
-
-# How Ready Might You Be for Therapy? Questionnaire
-
-![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2000/02/Border-Expander.png)

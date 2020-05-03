@@ -59,7 +59,7 @@ def convert_article_to_md(page_url, folder, filename)
   # Add present article name and url in first line
   article_md_array = article_md.split("\n")
   filename_without_index = filename.split(". ")[1..-1].join(". ")
-  article_md_array[0] = (article_md_array[0] + ": [#{filename}](#{page_url})") if folder != "Book"
+  article_md_array[0] = (article_md_array[0] + ": [#{filename_without_index}](#{page_url})") if folder != "Book"
   article_md = article_md_array.join("\n")
 
   # youtube iframe
@@ -71,8 +71,8 @@ def convert_article_to_md(page_url, folder, filename)
   # Add \n at the end, if absent
   article_md = article_md + "\n" if article_md[-1] != "\n"
 
-  File.write("#{folder}/#{filename_without_index}.md", article_md)
-  puts("#{folder}/#{filename_without_index}.md")
+  File.write("#{folder}/#{filename}.md", article_md)
+  puts("#{folder}/#{filename}.md")
 end
 
 
