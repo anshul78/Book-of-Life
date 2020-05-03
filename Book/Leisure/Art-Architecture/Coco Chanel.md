@@ -1,0 +1,89 @@
+Chapter .: [Art/Architecture](https://www.theschooloflife.com/thebookoflife/category/leisure/artarchitecture/): [170. Coco Chanel](https://www.theschooloflife.com/thebookoflife/coco-chanel/)
+
+* * *
+
+# Coco Chanel
+
+The world of fashion can seem very silly.
+
+[![image03](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/04/image032.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/04/image032.jpg)
+
+It can come across as intensifying vanity and encouraging snobbery; it distributes prestige in unhelpful ways.
+
+[![image04](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/04/image04.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/04/image04.jpg)
+
+This skittish, narcissistic side of fashion is unfortunate, for at its best, fashion circles round important territory. Clothes convey ideas about what is admirable or exciting, they influence mood and help define identity. Fashion is potentially a very serious part of life – but it has largely been abandoned to pretension, eccentricity and foolishness.
+
+The person who did the most to realise the positive potential of fashion – and direct it to its true task – was the French designer Coco Chanel. She was born on 19 August 1883 in Saumur in the Loire valley. Her mother died when she was a child; she grew up poor and isolated. She was educated by charitable nuns. She was called Gabriel until her early twenties, when she was trying to make it as a cabaret performer and changed her name to the more distinctive ‘Coco’.
+
+She started out as a designer of hats, made a lot of influential friends and had several&nbsp;liaisons with British and Russian dukes – perhaps in compensation for her early very fragile social status.
+
+[![image07](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/04/image072.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/04/image072.jpg)
+
+Although we don’t often give the fact a great deal of attention, clothes are instruments of communication. We are very much open to being influenced by what a person wears.&nbsp;Before Chanel, stylish clothes were complicated and very expensive. They were designed to stress the delicate, passive&nbsp;characteristics of their wearers.
+
+[![image05](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/04/image051.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/04/image051.jpg)
+
+These garments put forward an image of delicacy and refinement. The wearer was presented as poetic, perhaps a little dreamy and sensitive. They looked like they wouldn’t have much of an appetite for dinner. This wasn’t meant to be an actual accurate portrait of any particular person. The clothes signalled an aspiration. The Victorian woman might be insecure, have a raucous laugh and be keen on eating meringues; yet the clothes provided an idealised portrait of the desired direction of travel: a picture of what this person would ideally like to be like.
+
+What Coco Chanel did was invent a new and better destination. In 1926 she introduced a very simple garment: the little black dress.
+
+[![Coco-Chanel](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/04/Coco-Chanel.png)](http://www.thebookoflife.org/wp-content/uploads/2015/04/Coco-Chanel.png)
+
+It spoke of a different vision of existence: a different ideal. The dress spoke of being energetic and focused; the wearer would be sharp-witted, engaged in how the world works; they might have spent the day running a business or working at the finance ministry – or writing an experimental novel.
+
+She was also making this ideal much more widely accessible. The dress was a fraction of the price of its more splendid rivals. It was designed to be long-lasting. Not just in sheer physical durability but in the psychological sense of not feeling dated. So the dress you bought in 1926 would do just as well in 1927 or 1937. In fact, it was intended to last for years and years – which radically changed the economics of being chic.
+
+![](http://www.chhs.colostate.edu/News/Images/Large/4ha4rmsq11tuad2pmeousum5.Avenir%20Little%20Black%20Dress.jpg)
+
+Another side of Coco’s proposal was to limit options. The dress only came in black – so you didn’t have to put your mind to considering and deciding. She was making the idea of being stylish simpler and easier. The little black dress was designed to make it easy and inexpensive to look elegant.
+
+The little black dress was conceived as the clothing equivalent of the Model-T Ford (which – not by chance – also came only in black). The Model-T had revolutionised the automobile industry by bringing cars, for the first time, within the budget of many more people. Instead of being a luxury for the few, personal transport began to become widespread – and, eventually, normal. Coco shared a similar noble ambition: to make her vision of elegance simple, timeless and – most importantly – widespread.
+
+![](https://complimentcloset.files.wordpress.com/2011/04/chanel-lbd.jpg)
+
+Most people see themselves as very individualistic. Because we’ve given up hope that the crowd could be impressive, toeing the line or just conforming to the convention are, understandably, viewed as negatives.
+
+[![image02](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/04/image021.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/04/image021.jpg)
+
+But we might want re-evaluate the idea of looking like everyone else. There isn’t anything structurally wrong with the notion of a uniform, so long as the uniform is a good one. Chanel was searching – as Vogue put it in a perceptive article from 1926 – for ‘the uniform for the woman of taste’.
+
+![](http://www.theonlinerocket.com/wp-content/uploads/2014/02/TS-SHOPPING-3-MCT.jpg)
+
+##### Finding a good uniform might be more important than emphasizing uniqueness
+
+The uniform of the Chanel dress – or something less costly inspired by it – stresses a range of admirable virtues:&nbsp;the idea that you can be efficient, organised, serious and in control – without becoming puritanical or dour. Such clothes stress the long-term, they hint that we should care about things which last, and not chop and change our enthusiasms at every turn. They argue that elegance is a key concern in a crowded and busy world: it means efficiency without loss of grace.
+
+Over her long and very successful career, many of Coco Chanel’s efforts were devoted to developing a distinctive brand. She didn’t just stick with clothes. She also designed jewellery and handbags. And – most importantly from a commercial point of view – her Chanel No.5 scent.&nbsp;
+
+The Catholic Church had long used scents to promote religious devotion.
+
+[![image08-1](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/04/image08-1.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/04/image08-1.jpg)
+
+##### They had good uniforms as well.
+
+They recognised that scents influence mood. The smell of burning incense could encourage the congregation to concentrate, to feel that something special was occurring.
+
+Coco wanted her scent to summon up associations of a particular kind of person – confident, strong, attractive and independent.
+
+[![image11](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/04/image111.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/04/image111.jpg)
+
+##### A good identity, in a bottle.
+
+The aim wasn’t simply to expand her business empire. It was to take a good experience from one part of life, where it might already be familiar, and apply it more widely. Coco loved beaches and bathing costumes, she liked the clothes people wore when playing sports. She wasn’t at all unusual in that. The kind of move she made always seems obvious in retrospect – but never was at the time. She took the pleasure of the beach very seriously and sought to extract the general, reusable essence from a local, particular kind of happiness.
+
+[![image09](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/04/image09.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/04/image09.jpg)
+
+##### Coco: a desire to institutionalise certain feelings around summer, confidence and androgynous sailors’ clothes .
+
+Chanel was far from admirable in all respects.
+
+[![640px-Coco_Chanel,_1920](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/04/640px-Coco_Chanel_1920.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/04/640px-Coco_Chanel_1920.jpg)
+
+During the Second World War, when Paris was occupied by the Third Reich, she lived in the Ritz and spent a lot of time around senior Nazis. She was more than friendly and eventually worked as an agent, though exposure of her conduct did not occur until much later. Like many artists, her work was better than she was herself. She died in Paris, aged 87, in 1971.
+
+In the Utopia, there would still be fashion, but it would differ from what we are currently most familiar with. It would take up Chanel’s attitude to classic style.
+
+A classic isn’t just something that is famous or distinctive from a past era. It’s something that continues to be relevant and useful outside of the specific time it was first made. The true task of fashion isn’t to chop and change every year. Clothes are not emblems of vanity or clutter (as our fears sometimes suggest); they have a potential to be aids and prompts, friends, in our quest to become more mature, focused, sane and balanced versions of ourselves.
+
+In the end, Chanel didn’t do all that could be done with her brand. But she’s inspiring in how she teased out some of what can be most serious about clothes. In the ideal world, a clothing company would – with the help of in-house philosophers – define what really matters most in life and then set out make clothes that constantly support and amplify these ethical and moral commitments. Nice clothes would be honoured for what they really are: embodiments of good ideas.

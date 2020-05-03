@@ -1,0 +1,125 @@
+Chapter .: [Sociology](https://www.theschooloflife.com/thebookoflife/category/leisure/sociology/): [142. Alexis de Tocqueville ](https://www.theschooloflife.com/thebookoflife/the-great-philosophers-alexis-de-tocqueville/)
+
+* * *
+
+# Alexis de Tocqueville&nbsp;
+
+Democracy was achieved by such a long, arduous and heroic struggle that it can feel embarrassing – even shameful – to feel a little disappointed by it. We know that at key historical moments people have made profound sacrifices so that we can, every now and then, place a cross next to the name of a candidate on a ballot sheet. For generations across large parts of the world democracy was a secret, desperate hope. But today, we’re likely to go through periods of feeling irritated and bored by our democratically-elected politicians. We’re disappointed by the parties and sceptical that elections make a difference. And yet not to support democracy, to be frankly against democracy, is not a possible attitude either. We appear to be utterly committed to democracy and yet constantly disappointed and frustrated by it.
+
+[![Alexis_de_tocqueville_cropped](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/11/Alexis_de_tocqueville_cropped.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/11/Alexis_de_tocqueville_cropped.jpg)
+
+Perhaps the best guide to some of these feelings, and to modern democracy in general, is a French 19th-century aristocrat, Alexis de Tocqueville, who – in the early 1830s – travelled around the United States studying the political culture of the world’s first truly democratic nation and then compiled his thoughts in one of the greatest works of political philosophy, _Democracy in America_, published in France in 1835. For de Tocqueville, democracy was a highly exotic and novel political option. He’d been born in 1805, when Napoleon was the populist dictator of half of Europe. After Waterloo, the Bourbon Kings came back – and while there were elections, the franchise was extremely limited. But, de Tocqueville presciently believed, democracy was going to be the big idea of the future all over the world. What, he wanted to know, would that be like? What would happen when societies that had been governed for generations by small aristocratic elites and who inherited their wealth and power, started to choose their leaders in elections in which pretty much the whole adult population could vote?&nbsp;
+
+That’s why de Tocqueville went to America: to see what the future would be like. He got there courtesy of a grant from the French government, who wanted him to study the American prison system and compile a report from which it could learn some lessons. But de Tocqueville wasn’t so interested in prisons and made it clear in letters to friends that his real reason for going was to study American morals, mentalities and economic and political processes. He arrived in New York, together with his friend Gustave de Beaumont, a magistrate, in May of 1831 – and then embarked on a long journey around the new nation that was to last nine months, until February 1832.&nbsp;
+
+![mapcolor](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/10/mapcolor.gif)
+
+De Tocqueville and Beaumont went as far west as Michigan, which was then frontier country and there got a sense of the vastness of the American Midwestern landscape. They also went down to New Orleans, but most of their time was spent in Boston, New York and Philadelphia. They met everyone: presidents, lawyers, bankers, cobblers, hairdressers… – and even shook hands with the last surviving signatory of the Declaration of Independence, a man called Charles Carroll.
+
+The observations that de Tocqueville made on America are droll, often funny and frequently very acerbic. Here he is on New York:
+
+‘To a Frenchman the aspect of the city is bizarre and not very agreeable. One sees neither dome, nor bell tower, nor great edifice, with the result that one has the constant impression of being in a suburb’.
+
+**On native pride:**
+
+‘I doubt if one could extract from Americans the smallest truth unfavourable to their country. Most of them boast about it without discrimination, and with an impertinence disagreeable to strangers… Generally speaking there is a lot of small-town pettiness in their makeup… We have not yet met a really outstanding man.’
+
+![639px-RossBetsy](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/10/639px-RossBetsy.jpg)
+
+**On the middle class spirit:**
+
+‘This country illustrates the most complete external development of the middle classes, or rather that the whole of society seems to have turned into one middle class. No one seems to have the elegant manners and refined politeness of the upper classes in Europe. One is at once struck by something vulgar, and a disagreeable casualness of behaviour…’
+
+**On attitudes to the native Americans:**
+
+‘In the midst of this American society, so well policed, so sententious, so charitable, a cold selfishness and complete insensibility prevails when it is a question of the natives of the country. The Americans of the United States do not let their dogs hunt the Indians as do the Spaniards in Mexico, but at the bottom it is the same pitiless feeling which here, as everywhere else, animates the European race. This world here belongs to us, they tell themselves every day: the Indian race is destined for final destruction which one cannot prevent and which it is not desirable to delay. Heaven has not made them to become civilised; it is necessary that they die. Besides I do not want to get mixed up in it. I will not do anything against them: I will limit myself to providing everything that will hasten their ruin. In time I will have their lands and will be innocent of their death. Satisfied with his reasoning, the American goes to church where he hears the minister of the gospel repeat every day that all men are brothers, and that the Eternal Being who has made them all in like image, has given them all the duty to help one another.’
+
+[![740px-George_Catlin_-_Buffalo_Bulls_Back_Fat_-_Smithsonian](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/11/740px-George_Catlin_-_Buffalo_Bulls_Back_Fat_-_Smithsonian2.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/11/740px-George_Catlin_-_Buffalo_Bulls_Back_Fat_-_Smithsonian2.jpg)
+
+**Then again, he wasn’t so keen on native Americans himself:**
+
+‘I was full of recollections of M. de Chateaubriand and of Cooper, and I was expecting to find the natives of America savages, but savages on whose face natured had stamped the marks of some of the proud virtues which liberty brings forth. I expected to find a race of men little different from Europeans, whose bodies had been developed by the strenuous exercise of hunting and war, and who would lose nothing by being seen naked. Judge my amazement at seeing the picture that follows. The Indians whom I saw that evening were small in stature, their limbs, as far as one could tell under their clothes, were thin and not wiry, their skin instead of being red as is generally thought, was dark bronze and such as at first sight seemed very like that of Negroes. Their black hair fell with singular stiffness on their neck and sometimes on their shoulders. Generally their mouths were disproportionately large, and the expression on their faces ignoble and mischievous. There was however a great deal of European in their features, but one would have said that they came from the lowest mob of our great European cities. Their physiognomy told of that profound degradation which only long abuse of the benefits of civilisation can give, but yet they were still savages.’
+
+But there was a lot to admire in America as well: the prettiness of the women, the healthy simplicity of the food, the jovial frankness of conversations, the comfort of the hotels. Above all, Tocqueville loved the wilderness of America:
+
+‘It is impossible to imagine anything more beautiful than the North or Hudson River. The great width of the stream, the admirable richness of the north bank and the steep mountains which border is eastern margins make it one of the most admirable sights in the world… We are envying every day the first Europeans who two hundred years ago discovered for the first time the mouth of the Hudson and mounted its current, when its two banks were covered with numberless forests and only the smoke of the savages was to be seen…’
+
+When de Tocqueville arrived in New York he was setting foot in the only large scale, reasonably secure democracy on the planet. And he saw himself as advancing a highly nuanced and helpful enquiry: what are the social consequences of democracy? What should one expect a democratic society to be like?
+
+De Tocqueville was particularly alive to the problematic, and potentially dark sides of democracy. Five issues struck him in particular:&nbsp;
+
+**One: Democracy breeds materialism&nbsp;**
+
+In the society that de Tocqueville knew from childhood, making money did not seem to be at the forefront of most people’s minds. The poor (who were the overwhelming majority) had almost no chance of acquiring wealth. So while they cared about having enough to eat, money as such was not part of how they thought about themselves or their ambitions: there was simply no chance. On the other hand, the tiny upper stratum of landed aristocrats did not need to make money – and regarded it as shameful to work for money at all, or to be involved in trade or commerce. As a result, for very different reasons, money was not the way to judge a life.
+
+![1200px-Mill_Children_in_Macon_2](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/10/1200px-Mill_Children_in_Macon_2.jpg)
+
+However, the Americans de Tocqueville met all readily believed that through hard work, it was possible to make a fortune and that to do so was wholly admirable and right. There was hence no suspicion whatever of the rich, a certain moral judgement against the poor, and an immense respect for the capacity to make money. It seemed, quite simply, the only achievement that Americans thought worth respecting. For example, in America, observed de Tocqueville, a book that does not make money – because it does not sell well – cannot be good, because the test of all goodness is money. And anything that makes a profit must be admirable in every way. It was a flattened, unnuanced view that made de Tocqueville see the advantages of the relatively more subtle, multi-polar status systems of Europe, where one might (on a good day) be deemed good, but poor; or rich, but vulgar.&nbsp;
+
+Democracy and Capitalism had created a relatively equitable, but also very flat and oppressive way for humans to judge each other.
+
+**Two: Democracy breeds envy and shame**
+
+Travelling around the United States, de Tocqueville discerned an unexpected ill corroding the souls of the citizens of the new republic. Americans had much, but this affluence did not stop them from wanting ever more and from suffering whenever they saw someone else with assets they lacked. In a chapter of _Democracy in America_ entitled ‘Why the Americans are Often so Restless in the Midst of Their Prosperity’, he sketched an enduring analysis of the relationship between dissatisfaction and high expectation, between envy and equality:
+
+‘When all the prerogatives of birth and fortune have been abolished, when every profession is open to everyone, an ambitious man may think it is easy to launch himself on a great career and feel that he has been called to no common destiny. But this is a delusion which experience quickly corrects. When inequality is the general rule in society, the greatest inequalities attract no attention. But when everything is more or less level, the slightest variation is noticed… That is the reason for the strange melancholy often haunting inhabitants of democracies in the midst of abundance and of that disgust with life sometimes gripping them even in calm and easy circumstances. In France, we are worried about increasing rate of suicides. In America, suicide is rare, but I am told that madness is commoner than anywhere else’.
+
+[![746px-Grant_Wood_-_American_Gothic_-_Google_Art_Project](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/11/746px-Grant_Wood_-_American_Gothic_-_Google_Art_Project.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/11/746px-Grant_Wood_-_American_Gothic_-_Google_Art_Project.jpg)
+
+Familiar with the limitations of aristocratic societies, Tocqueville had no wish to return to the conditions that had existed prior to 1776 or 1789. He knew that inhabitants of the modern West enjoyed a standard of living far superior to that of the lower classes of medieval Europe. Nevertheless, he appreciated that these deprived classes had also benefited from a mental calm which their successors were forever denied:
+
+‘When royal power supported by aristocracies governed nations, society, despite all its wretchedness, enjoyed several types of happiness which are difficult to appreciate today. Having never conceived the possibility of a social state other than the one they knew, and never expecting to become equal to their leaders, the people did not question their rights. They felt neither repugnance nor degradation in submitting to severities, which seemed to them like inevitable ills sent by God. The serf considered his inferiority as an effect of the immutable order of nature. Consequently, a sort of goodwill was established between classes so differently favoured by fortune. One found inequality in society, but men’s souls were not degraded thereby’.
+
+Democracies, however, had dismantled every barrier to expectation. All members of the community felt themselves theoretically equal, even when they lacked the means to achieve material equality. ‘In America,’ wrote Tocqueville, ‘I never met a citizen too poor to cast a glance of hope and envy toward the pleasures of the rich’. Poor citizens observed rich ones at close quarters and trusted that they too would one day follow in their footsteps. They were not always wrong. A number of fortunes were made by people from humble backgrounds. However, exceptions did not make a rule. America still had an underclass. It was just that, unlike the poor of aristocratic societies, the American poor were no longer able to see their condition as anything other than a betrayal of their expectations.
+
+[![947px-Bellows_CliffDwellers](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/11/947px-Bellows_CliffDwellers.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/11/947px-Bellows_CliffDwellers.jpg)
+
+The different conceptions of poverty held by members of aristocratic and democratic societies was particularly evident, Tocqueville felt, in the attitude of servants to their masters. In aristocracies, servants often accepted their fates with good grace, they could have, in Tocqueville’s words, ‘high thoughts, strong pride and self-respect’. In democracies, however, the atmosphere of the press and public opinion relentlessly suggested to servants that they could reach the pinnacles of society, that they could become industrialists, judges, scientists or presidents. Though this sense of unlimited opportunity could initially encourage a surface cheerfulness, especially in young servants, and though it enabled the most talented or lucky among them to fulfil their goals, as time passed and the majority failed to raise themselves, Tocqueville noted that their mood darkened, that bitterness took hold and choked their spirits, and that their hatred of themselves and their masters grew fierce.
+
+The rigid hierarchical system that had held in place in almost every Western society until the eighteenth century, and had denied all hope of social movement except in rare cases was unjust in a thousand all too obvious ways, but it offered those on the lowest rungs one notable freedom: the freedom not to have to take the achievements of quite so many people in society as reference points – and so find themselves severely wanting in status and importance as a result.
+
+**Three: The tyranny of the majority&nbsp;**
+
+Typically, we think of democracy as being the opposite of tyranny. It should, in a democracy, no longer be possible for a clique to lord it over everyone else by force; leaders have to govern with the consent of the governed. But de Tocqueville noticed that democracy could easily create its own specialised type of tyranny: that of the majority. The majority group could, in principle, be very severe and hostile to minorities. De Tocqueville wasn’t simply thinking of overt political persecution,&nbsp; but of a less dramatic, but still real, kind of tyranny in which simply being ‘in a minority’ as regards prevailing ideologies starts to seem unacceptable, perverse – even a threat.&nbsp;
+
+![640px-Election_Day_1815_by_John_Lewis_Krimmel](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/10/640px-Election_Day_1815_by_John_Lewis_Krimmel.jpg)
+
+Democratic culture, he thought, could easily end up demonising any assertion of difference, and especially of cultural superiority or high mindedness, which could be perceived as offensive to the majority – even though such attitudes might be connected with real merit. In a tyranny of the majority, a society grows ill at ease with outstanding merit or ambition of any kind. It has an aggressively levelling instinct; in which it is regarded as a civic virtue to cut down to size anyone who seems to be getting above themselves.&nbsp;
+
+This, he thought, was part of the natural price one could expect to pay for living in a&nbsp; democracy.&nbsp;
+
+**Four: Democracy turns us against authority**
+
+De Tocqueville saw democracy as encouraging strong ideas about equality, to an extent that could grow harmful and dispiriting. He saw that democracy encourages ‘in the human heart a depraved taste for equality, which always impels the weak to want to bring the strong down to their level’.
+
+[![738px-Richard_Caton_Woodville_-_Politics_in_an_Oyster_House_-_Walters_371994](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/11/738px-Richard_Caton_Woodville_-_Politics_in_an_Oyster_House_-_Walters_371994.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/11/738px-Richard_Caton_Woodville_-_Politics_in_an_Oyster_House_-_Walters_371994.jpg)
+
+It’s line of thought that sounds almost brutal today because we instinctively see equality as desirable. But what disturbed de Tocqueville was the way in which, in the United States, people of no distinction, in terms of education, skill, experience or talent would refuse to defer to what de Tocqueville called their ‘natural superiors’, as he put it. They were inspired – he believed – by an unwillingness to bow before any kind of authority. They refused to think that someone could be better than them just because they had trained to be a doctor, studied the law for two decades or had written some good books. A healthy and admirable reluctance to defer to people fatally encouraged a deeply unhelpful refusal to accept any kind of submission to anyone of any sort. And yet, as he saw it, it simply must be the case that some people are wiser, more intelligent, kinder, or more mature than others and for these very good reasons should be listened to with special attention. Democracy was, he thought, fatally biased towards mediocrity.&nbsp;
+
+**Five: Democracy undermines freedom of mind&nbsp;**
+
+Instinctively, you’d suppose that democracy would encourage citizens to have an open mind. Surely democracy encourages debate and allows disagreements to be resolved by voting, rather than by violence? We think of openness of mind as being the result of living in a place where lots of opinions get an airing.&nbsp;
+
+However, de Tocqueville came to the opposite conclusion: that in few places could one find ‘less independence of mind, and true freedom of discussion, than in America’.&nbsp;
+
+Trusting that the system was fair and just, Americans simply gave up their independence of mind, and put their faith in newspapers and so-called ‘common sense’. The scepticism of Europeans towards public opinion had given way to a naive faith in the wisdom of the crowd.&nbsp;
+
+![640px-Bellows_George_Summer_Fantasy_1924](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/10/640px-Bellows_George_Summer_Fantasy_1924.jpg)
+
+Furthermore, as this was a commercial society, people were very conscious of not wanting to step too far out of line with their neighbours (who might also be customers). It was better to trot out clichés than to try to be original – and never more so than when there was something new to sell.
+
+\*\*\*
+
+Back in France de Tocqueville pursued a political career. Although France was nominally a democracy at this point, the electorate was very tightly restricted – less than five percent of adult males were entitled to vote. He was a deputy and, for a few not very glorious months, Minister for Foreign Affairs. But in 1851 the elected President, Louis Napoleon, declared himself Emperor and tore up the constitution. De Tocqueville, then in his mid-forties, left the political field and led a quieter life on his family estates. He suffered long bouts of tuberculosis and died in 1859, aged 53.
+
+\*\*\*
+
+Although he says a lot of quite grim things about democracy, De Tocqueville isn’t anti-democratic. He’s not trying to tell us that we shouldn’t have democracy. On the contrary, he was convinced that democracy would prevail over all other forms of political organisation. Rather, his aim was to get us to be realistic about what this would mean. Democracies would be very good at some things and really rather terrible at others.&nbsp;
+
+![Suffrage_universel_1848](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/10/Suffrage_universel_1848.jpg)
+
+By highlighting the inherent drawbacks of democracy, he was showing why living in a democracy would be, in some key ways, deeply annoying and frustrating. He is teaching the stoic lesson that certain pains need to be the expected; they are the likely accompaniments of political progress. He’s preaching an anti-provincial, worldly lesson: of course there are going to be quite bad things about democratic politics and society, don’t be too surprised or shocked; don’t come with the wrong expectations…&nbsp;
+
+Frustration and irritation are secretly fuelled by hope (that is, by the conviction that things really could be very different). By telling us soberly and calmly that democracy has major defects de Tocqueville is trying to get us to be strategically pessimistic. Of course, politics is going to be pretty awful in major ways. It’s not that we’re doing anything terribly wrong. It’s the price you pay (and should be willing to pay) when you give ultimate authority to everyone.&nbsp;
+
+[![](https://img.youtube.com/vi/Rzr3AOtFA8o/0.jpg)](https://www.youtube.com/embed/Rzr3AOtFA8o '')

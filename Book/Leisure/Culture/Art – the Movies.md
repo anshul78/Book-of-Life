@@ -1,0 +1,19 @@
+[Chapter 6.Leisure](https://www.theschooloflife.com/thebookoflife/category/leisure/): [Culture](https://www.theschooloflife.com/thebookoflife/category/leisure/culture/): [43. Art – the Movies](https://www.theschooloflife.com/thebookoflife/art-the-movies/)
+
+* * *
+
+# Art – the Movies
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/03/Edouard_Manet_Bunch_of_Asparagus.jpg)
+
+The great artists have a therapeutic effect on us; re-opening our eyes to the overlooked beauty of the world; helping us to feel less isolated about our sorrows; reminding us of the more hopeful sides of human nature and calming our anxious minds. Here are five of the very greatest artists.
+
+[![](https://img.youtube.com/vi/9kfeWpLry3U/0.jpg)](https://www.youtube.com/embed/9kfeWpLry3U '')
+
+[![](https://img.youtube.com/vi/go87azXN5Ms/0.jpg)](https://www.youtube.com/embed/go87azXN5Ms '')
+
+[![](https://img.youtube.com/vi/G63yt0bJmZs/0.jpg)](https://www.youtube.com/embed/G63yt0bJmZs '')
+
+[![](https://img.youtube.com/vi/rluUMpndKbo/0.jpg)](https://www.youtube.com/embed/rluUMpndKbo '')
+
+[![](https://img.youtube.com/vi/E56P55i3HHQ/0.jpg)](https://www.youtube.com/embed/E56P55i3HHQ '')

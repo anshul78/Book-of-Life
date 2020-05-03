@@ -1,0 +1,25 @@
+[Chapter 6.Leisure](https://www.theschooloflife.com/thebookoflife/category/leisure/): [Culture](https://www.theschooloflife.com/thebookoflife/category/leisure/culture/): [41. Greek Philosophy – the Movies](https://www.theschooloflife.com/thebookoflife/ancient-greek-philosophy-films/)
+
+* * *
+
+# Greek Philosophy – the Movies
+
+[![1024px-Akropolis_by_Leo_von_Klenze1](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/12/1024px-Akropolis_by_Leo_von_Klenze1.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/12/1024px-Akropolis_by_Leo_von_Klenze1.jpg)
+
+Philosophy begins in the Ancient World where it is immediately thought of as a highly practical discipline close to what we would nowadays think of as psychotherapy. One goes to see a philosopher to clear up a variety of emotional and intellectual confusions. The job of being a philosopher becomes extremely prestigious. Different schools of philosophy form, each one claiming a better grasp on the ingredients of true calm and fulfilment than the next. Here are the four great strands of Ancient Greek philosophy:
+
+**1. Plato**
+
+[![](https://img.youtube.com/vi/VDiyQub6vpw/0.jpg)](//www.youtube.com/embed/VDiyQub6vpw? '')
+
+**2. Aristotle**
+
+[![](https://img.youtube.com/vi/csIW4W_DYX4/0.jpg)](//www.youtube.com/embed/csIW4W_DYX4? '')
+
+**3. Epicurus**
+
+[![](https://img.youtube.com/vi/Kg_47J6sy3A/0.jpg)](//www.youtube.com/embed/Kg_47J6sy3A? '')
+
+**4. The Stoics**
+
+[![](https://img.youtube.com/vi/yu7n0XzqtfA/0.jpg)](//www.youtube.com/embed/yu7n0XzqtfA? '')

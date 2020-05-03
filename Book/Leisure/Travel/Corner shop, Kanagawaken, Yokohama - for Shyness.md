@@ -1,0 +1,23 @@
+[Chapter 6.Leisure](https://www.theschooloflife.com/thebookoflife/category/leisure/): [Travel](https://www.theschooloflife.com/thebookoflife/category/leisure/travel/): [12. Corner shop, Kanagawaken, Yokohama - for Shyness](https://www.theschooloflife.com/thebookoflife/travel-as-therapy-corner-shop-kanagawaken-yokohama-for-shyness/)
+
+* * *
+
+# Corner shop, Kanagawaken, Yokohama – for Shyness
+
+[![5458468588_637c9e92db_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/10/5458468588_637c9e92db_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/10/5458468588_637c9e92db_z.jpg)
+
+On the first day, it was difficult. You went into the corner shop just off the main Motomachi shopping street to buy a prepaid mobile card. You pointed at your phone, you pretended to make a call. It was useless. Mr Nishimura couldn’t understand you at all. You were hot and flustered (it was 86°F and pretty humid). You felt such an idiot.
+
+It was eerily familiar: like the time at school you were supposed to make a speech and your mind went totally blank; the painful evenings at college when everybody else seemed to be heading off somewhere and you weren’t sure if you could ask to join in.
+
+Over the years, at home, you have learned how to avoid many of the situations that you find so awkward (though other people appear to manage them without the slightest concern). Most of the time, you can work round the diffidence and fear of being the unwelcome focus of attention, what at certain moments you call your shyness. When something feels alien or in any way threatening your instinct is to retreat. You’d never ask a stranger for directions in the street; the idea of going up to a group of people you don’t know at a party is terrifying. But now you are beginning to tire of the downside of this survival tactic: the too high price it extracts.
+
+In Japan everything is, to you, foreign. You of course can’t know what you are supposed to do. You are so far from being inconspicuous, it’s a joke. Shyness is in a way no longer even an option. You are already so far off the deep end.
+
+So you go back to the shop. You make use of the ATM (which has an English language option). You buy some wasabi flavoured crisps and give the man a big smile. He grins back. You’re learning to be a little more confident.
+
+You are learning how to do something: you’re learning to overcome, not just work round, your shyness. A holiday that immerses you in a life entirely different to your normal routine is the ideal setting to exercise what is really a skill (though we tend to see it as a piece of good or bad luck). You didn’t book into a big chain hotel. You’ve rented an apartment near the wonderful Sankeien Gardens from a really nice guy called Kazutaka.
+
+Today you bought a packet of Chokobi mini star-shaped chocolate biscuits. You made a joke about the rain. You said ‘ame desu’ – which you’d practiced after breakfast and hopefully means something like ‘it’s raining’ &nbsp;– and gestured drolly at your wet hair. Mr Nishimura beamed at you. It’s a deep corrective. Your uncle who was so hard to please was not normal.
+
+You are strengthening a capacity you need back in the rest of your life.

@@ -1,0 +1,35 @@
+[Chapter 6.Leisure](https://www.theschooloflife.com/thebookoflife/category/leisure/): [Travel](https://www.theschooloflife.com/thebookoflife/category/leisure/travel/): [06. The Holidays When You're Feeling Mentally Unwell](https://www.theschooloflife.com/thebookoflife/the-holidays-when-youre-feeling-mentally-unwell/)
+
+* * *
+
+# The Holidays When You’re Feeling Mentally Unwell
+
+For those of us who feel at the mentally fragile end of things, and are sometimes plain unwell in our minds, the prospect of the holidays poses particular challenges.
+
+For a start, there is a higher than normal pressure to be happy, which can be hugely guilt-inducing and frightening. Not only might we be wrestling with overwhelming sadness, anxiety or persecutory feelings, we’re reminded of how at odds with the rest of society we are at this time in the calendar. Our moods seem utterly contrary to the spirit required of us. We worry, once more, about letting down the side. We have yet another reason to hate ourselves (a feeling which may be at the very heart of our mental unwellness).
+
+![](http://dradis.ur.northwestern.edu/multimedia/photos/2010/01/bloomsbury680.jpg)
+
+We may be with a lot more people than usual, and our spaces and routines are disrupted. Furthermore, those who look after us, the therapists, analysts, psychiatrists and mental health professionals, are taking their own break. The last session before the holidays may be especially traumatic and sad. Two weeks from now can seem a long way away.
+
+To help deal with all these issues, it might help to keep a few thoughts in mind:
+
+We should, in conversations with ourselves and those very close to us, factor in that we’re facing something that might be legitimately very difficult. There is no need, on top of it all, to be unhelpfully brave. We’re about to be buffeted by turbulence. We need to brace ourselves.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/12/Franz_Marc-Dog_Lying_in_the_Snow-1910-1911-1024x604.jpg)
+
+We should tell our loved ones, as far as possible, that suggestions about being upbeat and merry are a particular trial – and that what gives us the best chance of being OK is not to have to perform, not to have to be cheerful and to be as loyal as we can be to the moods we are actually having. We may feel like impostors anyway – and don’t need to add to the tension. We’re not mean or misanthropic, we’re just a bit unwell. And that means it might be acceptable to spend portions of the holidays upstairs under a blanket thinking very dark things. We need to create a roomier and kinder sense of what is normal.
+
+We should remember, and remind others, that it’s entirely customary for the human mind to be in a state. These minds are no different from any other organ, they break down and need care. Why shouldn’t we give a broken mind the modicum of attention that we would give to someone who had a sprained thumb or bruised shoulder? We’re allowed to be unwell in our minds.
+
+We’re not alone. It can look at points as if the whole world has given way to merriment but such is the reality of being human, a huge number of us are not smiling. We’re acutely anxious, we’re regularly undergoing fierce attacks of self-blame and self-loathing, we’re visited by suicidal thoughts, we imagine it would be restful to be dead. We feel so inadequate. We reflect that it would have been a lot better if we had never been born.
+
+Even apparently robust people who look like they’ve never had a problem in their lives turn out to have surprising stories and areas of pain once you ask. There’s almost no one who hasn’t been through something terrible, and if you access it, you can connect with them and sometimes create astonishing new bonds. Dare to reveal a bit about what you’re going through, when you feel ready.
+
+Holidays often involve time with the very people who formed our psyches and are at the heart of some of our troubles. We should take a risk to change the nature of the conversations we have with them. So long as people don’t feel blamed, they may be able to take quite a lot on board. They might have made our lives infinitely harder than they needed to be – but might still be in a position to listen.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/12/vincent-van-gogh-85799_1920-1024x802.jpg)
+
+We should be kind on ourselves and indulgent when the mood requires it. We should ask if we can have some long baths, go on walks in the fields, disappear on our own for a while. So long as you are reasonably kind, people who love you will let you get away with almost anything you need. People don’t mind a patient; try to be a good one, which means nothing more than someone who explains and is a little grateful.
+
+Holidays pass, it’s only a few days really, and things will return to normal. And sometimes stuff comes along, we cope better than we think, we have some new insights and in our way, for a few moments, we’re almost happy or at least we see a new thought we can use in our very faltering progress towards something better than the current state.

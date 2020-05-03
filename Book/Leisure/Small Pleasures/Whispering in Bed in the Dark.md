@@ -1,0 +1,29 @@
+[Chapter 6.Leisure](https://www.theschooloflife.com/thebookoflife/category/leisure/): [Small Pleasures](https://www.theschooloflife.com/thebookoflife/category/leisure/small-pleasures/): [204. Whispering in Bed in the Dark](https://www.theschooloflife.com/thebookoflife/whispering-in-bed-in-the-dark/)
+
+* * *
+
+# Whispering in Bed in the Dark
+
+You can’t even see each other’s noses, though they are just a few inches apart. The darkness isn’t separating you, it’s bringing you together. Theoretically it shouldn’t really matter – as far as the wider world is concerned you are just as secluded in the brightly lit kitchen. But having the lights out reassures a more primitive anxiety: if we can see we can be seen. It’s the same reason why whispering feels necessary: it intensifies the atmosphere of seclusion.
+
+The ancient philosopher Diogenes, who made his home in a disused wine barrel in a main street of Athens, took the view that if you are willing to do something in private you should have the courage to do it in public too (masturbation was one of his favourite topics of intellectual discourse). He was onto something, but also missing something important: deep privacy is genuinely liberating. It’s actually rather nice that we are concerned to present a more restrained, adult and reasonable face to the world. But, it’s true, we’re not revealing the whole of who we are. And this is what gives whispering in the dark its special place in our lives. We have all the liberating benefits of being alone – but we are also with another person.
+
+**[![5285882246_d5a0496cff_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/5285882246_d5a0496cff_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/5285882246_d5a0496cff_z.jpg)**
+
+The darkness also marks an important separation from the rest of the day. The things that occupied you no longer feel relevant – for a while, anyway. Our feelings and thoughts are so liable to be dominated by the external demands of life. It’s quite difficult to switch them off. We need the assistance of big, external cues. In the dark, other senses come to the fore. Every detail of the voice becomes more noticeable. Nothing significant is being discussed but something significant is happening. &nbsp;
+
+Sometimes you use pet names: Lillybilly and Billylilly, Blinker and Stinker. They can sound silly if they’re pronounced in the middle of the day. But now they help us shed, strategically and briefly, major parts of our lives – so that other key things about us can get a chance to shine. Lillypilly isn’t pursuing a career in finance. Stinker isn’t a vigorous logical reasoner; Billylilly doesn’t care whose turn it is to stack the dishwasher, Stinker doesn’t know what a mortgage is. Quite possibly no one in the world knows you use them. They set you apart. They mark us out (at the moment) as ‘us’, quite different from all of ‘them’. No one can overhear anyway, but whispering feels natural: you are sharing a deep secret.
+
+[![8096549627_f618397107_o](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/8096549627_f618397107_o.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/8096549627_f618397107_o.jpg)
+
+You want to giggle, you feel playful. You say silly things that normally you’d censor. You can tell someone you love them. It often becomes tricky to do this at other times. Our practical, responsible, ambitious and anxious selves find it increasingly hard to make this assertion: the idea of love gets awkwardly caught up in minor irritations and differences of opinion. It can feel too tricky to be emotionally vulnerable (because to tell someone you love them is to risk them not responding with adequate warmth). But now it’s different. The complicating factors don’t matter just at the moment. So you can be tender and open without so much fear.
+
+You are joining forces with your childhood self. When you were little you loved to go exploring down to the bottom of the bed – your mother pretended to not know what could be down there, she’d pat you and wonder out loud: ‘what’s this big lump, could it be a pillow, no it’s a bit hard for a pillow (another vigorous pat)? I hope it’s not a crocodile escaped from the zoo.’ And you’d almost believe she might mean it – though really her mind was mainly on the fact that the bed would need to be remade and that if you get too excited you wouldn’t get to sleep. You had the idea it would be nice to sleep upside down, with your head where your feet would normally be – but it’s actually not very nice after about a minute.
+
+[![7840237636_0b2a2e58c0_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/09/7840237636_0b2a2e58c0_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/09/7840237636_0b2a2e58c0_z.jpg)
+
+There were other times you pulled the blankets over your head and the normal arrangements of the world no longer applied: you could imagine you lived in an igloo or were a baby beaver safe in a little house on the dam in the middle of a pond; you could be a snail inside its shell. Or you could be a pirate with a sword, a cruel laugh and lots of captives, all tied up.
+
+When your cousins came to stay you used to all try to get under the covers together in your pyjamas after brushing your teeth – four was a lovely squeeze – until an adult came in and told everyone to go to their own beds and mattresses. One of those times a cousin told you all what ‘fuck’ means – though she didn’t get it quite right.
+
+You explore a hip bone or a thigh. Your toes touch. It’s not overtly sexual, just at the moment, though you might get there later. There are other pleasures – less urgent – but just as real that occupy us now.

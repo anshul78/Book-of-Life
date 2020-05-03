@@ -1,0 +1,149 @@
+[Chapter 6.Leisure](https://www.theschooloflife.com/thebookoflife/category/leisure/): [Culture](https://www.theschooloflife.com/thebookoflife/category/leisure/culture/): [55. What Is Psychotherapy For?](https://www.theschooloflife.com/thebookoflife/what-is-therapy-for/)
+
+* * *
+
+# What Is Psychotherapy For?
+
+Psychotherapy is a tool and like all tools, it has been designed to help us overcome an inborn weakness and to extend our capacities beyond those that nature originally endowed us with. It is, in this sense, not metaphysically different from a bucket, which remedies our problems holding water in our palms, or a knife, which makes up for the bluntness of our teeth.
+
+What is distinctive about therapy is what it is a tool _for_: it is an invention to help improve the way our emotions operate. It has been devised to correct the otherwise substantial difficulties we face understanding ourselves, trusting others, communicating successfully, honouring our potential and feeling adequately serene, confident, authentic, direct and unashamed.
+
+For such an important invention, psychotherapy is low on overt signs of innovation. Technically-speaking, it requires only a comfortable room free of any interruptions, fifty minutes, possibly twice a week for a year or so, two chairs and a fee per session equivalent to that of a three course meal for one in a mid-market restaurant. But at the level of training, the psychotherapist needs to undertake a period of extensive education in the workings of the mind, which – in the more responsible jurisdictions – has some of the rigour, intellectual ambition and periods of hands-on experience demanded by the acquisition of a pilot’s license.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/11/Suprematism_Malevich_1915-883x1024.jpg)
+
+To deliver on its promises, psychotherapy relies on at least eight distinct moves:
+
+**Witnessing**
+
+Most of what we are remains a secret to the world – because we appreciate how much of it flouts the laws of decency and sobriety we would like to live by. We know that we would not last long in society if a stream of raw data ever leaked out of our minds.
+
+A lot of what is inside us can seem daft: how we felt a strange impulse to burst into tears when reading a children’s book (about an elephant befriending a baby sparrow); how often we imagine acquiring a power to go back in time and correct our adolescent missed opportunities. Some of it is, from a harsh angle, distinctly pathetic: how worried we are about asking where the bathroom is; how envious we are of a close acquaintance; how much we worry about our hair. A significant part is alarming and quasi-illegal: our fantasies about a work colleague and a family member; our plans for what we’d ideally do to an enemy.
+
+In response to our isolation, we are often told about the importance of friends. But we know that the tacit contract of any friendship is that we will not bother the incumbent with more than a fraction of our madness. A lover is another solution, but it is – likewise – not in the remit of any partner to delve into, and accept, more than a modest share of what we are.
+
+In every social interaction, we sensibly ensure that there remains a large and secure divide between what we say to people and what we know is truly going on inside our minds.
+
+The exception lies with psychotherapy. Here, remarkably, we can say pretty much anything we want – and indeed should strive to do so. We don’t have to impress the therapist or reassure them of our sanity. We need to tell them what is going on. There is no need to stop them thinking we are perverted, odd or terrified. We can gingerly hint at some very dark things about us and will find that our interlocutor isn’t horrified or offended but on the contrary, calmly interested. We’re not – we’re learning – monsters or freaks. We arrive at the opposite of loneliness.
+
+**Worldliness**
+
+Therapists know a lot about the unvarnished truths of human nature. They have close up experience of the greatest traumas – incest and rape, suicide and depression – as well as the smaller pains and paradoxes: a longing provoked by a glance at a person in a library that took up the better part of twenty years, an otherwise gentle soul who broke a door, or an athletic handsome man who can no longer perform.
+
+They know that inside every adult there remains a child who is confused, angry, hurt and longing to have their say and their reality recognised. They appreciate that this child has to get to know itself again and will want to be heard, perhaps through tears or near-incomprehensible mutterings, which might be at odds with the surface maturity and self-command normally associated with the grown-up sitting in the therapeutic chair.
+
+Therapists have sufficiently acclimatised themselves to the reality of what people are like not to need to censor or deliver moralistic judgements. And they have done this not primarily through books, but by being courageous about knowing their own nature. They may not share our fantasies exactly, but they accept that their own are as colorful and as complex. They don’t have our precise anxieties, but they know well enough the powerful and peculiar fears that hold us all hostage.
+
+They can start to help us because they have an accurately broad grasp of what it means to be normal – which is, of course, so far from what we insist on pretending is normal. They don’t require us to be conventionally good or typical to shore up their fragile sense of self or of reality. Their only requirement is that we admit, at last, without too much defensiveness, to some of what is really going on inside us.
+
+**Kindness**
+
+They are, furthermore, and very gratifyingly, on our side. Without ill-intention, most people are not quite; they are intermittently jealous, bored, vindictive, keen to prove a point or distracted by their own lives. But the therapist brings a focused, generous attention to our case. Their room is safe and set aside from day to day pressures. They’re sorry that we suffered. They understand that it must have been worrying, enraging or exciting. They know we didn’t do it on purpose or that if we did, we had our reasons. Without flattering us in a rote way, merely because it is their job to do so, they strive to enter into our experience and to side with it. They look at reality through our eyes so as to start correcting a legacy of shame and isolation.
+
+At the same time, their kindness makes ours a bit less necessary. Normal life requires that we constantly weigh the impact of our words on other people. We have to consider their priorities, ask how their kids are and hold their concerns in mind.
+
+Here there is no such call. Like a parent who doesn’t need a small child to reciprocate, the therapist voluntarily foregoes equality in the relationship; they won’t talk of their regrets or insist on their anecdotes. They simply want to help us find what is best for us, understood on our terms. They won’t have a preconceived view of how we’re meant to live, just a great deal of sympathy for the complexities and the suffering we’ve endured already – and a desire to help us with the future.
+
+That said, kindness is not merely pleasant. Knowing that we have someone on our side is designed to lend us the courage to face up to experiences we normally evade. In a sufficiently calm, reassuring and interested environment, we can look at areas of vulnerability we otherwise lack the courage to tackle. We can dare to think that perhaps we were wrong or that we have been angry for long enough, that it might be best to outgrow our justifications or cease trying to seduce every audience.
+
+The kindness of another gives us the security needed to probe constructively at our clever, puzzling, evasive minds.
+
+**Listening**
+
+It’s one of the structural flaws of these minds that it is immensely hard for us to think deeply and coherently for any length of time. We keep losing the thread. Competing, irrelevant ideas have a habit of flitting across the mental horizon and scrambling our tentative insights. Every now and then, consciousness inexplicably goes blank for a moment or two. Left to our own devices, we quickly start to doubt the value of what we are trying to make sense of – and can experience overpowering urges to check the news or search out a biscuit. And as a result, some of the topics we most need to examine – where our relationship is really going, what we might do next at work, how we should best answer a letter, what bothers us so much about the way our partner returns our hand after an attempt at a caress – founder into the mental sands, to our grave psychological cost.
+
+What helps enormously in our attempts to know our own minds is, surprisingly, the presence of another mind. For all the glamour of the solitary seer, thinking usually happens best in tandem. It is the curiosity of someone else that gives us the confidence to remain curious about the thickets of our own minds. It is the application of a light pressure from outside us that firms up the jumbled impressions that lie within. The requirement to verbalise our intimations mobilises our flabby reserves of concentration.
+
+Occasionally a friend might be unusually attentive and ready to hear us out. But it isn’t enough merely for them to be quiet. The highest possibilities of listening extend far beyond the polite fact of not being interrupted. To really be heard means being the recipient of a strategy of ‘active listening’.
+
+From the start, the therapist will use a succession of very quiet but significant prompts to help us develop and stick at the points we are circling. These suggest that there is no hurry but that someone is there, following every utterance. At strategic points, the therapist will drop in a mission-critical and hugely benign ‘do say more’ or an equally powerful ‘go on’. Therapists are experts of the low-key positive sound: the benevolent, nuanced ‘ahh’ and the potent ‘mmm’, two of the most significant noises in the aural repertoire of psychotherapy which together invite us to remain faithful to what we were starting to say, however peculiar.
+
+As beneficiaries of active listening, our ideas, memories and concerns don’t have to fall into neat, well-formed sentences. We are allowed to stumble and get confused. But the active-listener contains and gardens the emerging confusion. They gently take us back over ground we’d covered too fast and prompt us to address a salient point we might deftly have sidestepped; they will help us chip away at an agitating issue while continually reassuring us that what we are saying is valuable. All the while, they will note minor changes in our facial expressions and tone of voice. They will be interested in the way we choose our words, and attentive not only to what we actually express but to how we might otherwise have put it.
+
+They’re not treating us like unusually unsophisticated beings or strangely ineffective communicators; they’re simply immensely alive to how difficult it is for anyone to piece together and express what they really have on their minds.
+
+**Time**
+
+Therapy is built on the understanding that we will not be able to transmit our key experiences in one or two self-contained blocks of time. We live in time and have to decode ourselves in time. We can’t be in all the moods we need to access on every occasion. Some weeks will find us readier than others to investigate particular memories or consider certain viewpoints. The therapist allows us to start the conversation anywhere we want, permits us to wander through our internal corridors, confident that so long as we keep showing up and sharing, we’ll drop enough clues to assemble – eventually – a psychological portrait of the self, like an ancient vase slowly being pieced together from fragments sifted from mounds of debris.
+
+**Interpretation**
+
+The therapist’s active listening is not meandering: what underpins it is an attempt to understand – for our sake – what the subterranean operations of past are doing to the present.
+
+We arrive in therapy with questions. We have a presenting problem which hints at, but does not fully capture, the origins of our suffering. Why, for instance, do we appear so repeatedly to fall for people who attempt to control and humiliate us? How can we be both so convinced we need to leave a job and yet have remained resolutely unable to locate a more satisfying replacement? Why are we paralysed by anxiety in every public context? Why do we sabotage sexual possibility?
+
+By their questions and their attention, their careful probing and investigative stealth, the therapist tries – harder than anyone has probably yet done – to discover how our presenting problem might be related to the rest of our existence and in particular, the turmoils of childhood. Over many sessions, a succession of small discoveries contributes to an emerging picture of the sources of our emotional wounds – and of the way in which our character slowly evolved in response to them in a way that hampers our possibilities today.
+
+We may, for example, start to sense how a feeling of rivalry with a parent led us to retire early from workplace challenges in order to hold on to their love, as well as seeing, perhaps for the first time, that the logic of our self-sabotage no longer holds. Or we might perceive the way an attitude of aggressive cynicism, which restricts our personalities and our friendships, might have had its origins in a parent who let us down at time when we couldn’t contain our vulnerability – and thereby turned us into people who try at every juncture to disappoint themselves early and definitively rather than allowing the world to mock our emerging hopes at a time of its own choosing.
+
+But it is no good stating any of this too starkly. An interpretation – delivered in its bare bones – will be anticlimactic and bathetic and most likely prompt resistance or aggression. For the interpretation to work its effect, we as clients need to move from merely assenting to it intellectually to having an internal experience of the emotions it refers to. We need to feel for ourselves, rather than take on trust, the continued presence, within our adult selves, of the poignantly susceptible person we once were.
+
+For the process to work, the therapist must tactfully let it seem as if the discovery of the structure of our troubles is almost entirely our own unhurried work.
+
+**A Relationship**
+
+The ongoing contact between ourselves and the therapist, the weekly sessions that may continue over months or years, contribute to the creation of something that sounds, in a professional context, distinctly odd: a relationship.
+
+We are almost certain to have come to see a therapist in the first place because, in some way, having relationships has become beset with difficulties that we sense, but don’t quite understand: maybe we try to please people at once, secure their admiration, but then feel inauthentic and inwardly numb and pull back. Perhaps we fall in love very powerfully, but then always discover a major flaw in a partner that puts us off and makes us end the story and restart the cycle.
+
+The relationship with the therapist may have very little in common with the sort of unions we have in ordinary life. We won’t ever be shopping together or watching TV side by side in bed. But unavoidably and very conveniently, we bring to our encounters with the therapist the very tendencies that emerge in our relations with other people in our lives. Here too we may be seductive but then cold; or full of idealisation followed by impulses to flee. Except that now, in the presence of the therapist, our tendencies will have a chance to be witnessed, slowed down, discussed, sympathetically explored and – in their more damaging manifestations – overcome. The relationship with the therapist becomes a litmus test of one’s behaviour with people more generally and thereby allows us, on the basis of greater self-awareness, to modify and improve how we relate to others.
+
+In the therapy room, all our proclivities and habits are noticed and can be commented on – not as reproaches but as important information about our character that we deserve to become aware of. The therapist will (with kindness) point out that we’re reacting as if we had been attacked, when they only asked a question; they might draw our attention to how readily we seem to want to tell them impressive things about our finances (yet they like us anyway) or how we seem to rush to agree with them when they’re only trying out an idea which they themselves are not very sure of. They will signal where we are prone to pin to them attitudes or outlooks that they don’t actually have. They may note how invested we seem to be in the idea that they are disappointed in us, or find us boring or are revolted by their sexuality. They will with stealth point out our habit of casting people in the present in roles that must derive from the past and will search with us for the origins of these attributions, which are liable to mimic what we felt towards influential caregivers – and now shape what we expect from everyone.
+
+The therapeutic relationship acts as a microcosm of our relationships in general and so can be used as a unique vehicle for learning about our more imperceptible emotional tendencies. By re-experiencing relational problems with an empathetic other who will not respond as ordinary people will, who will not shout at us, complain, say nothing or run away, we can be helped to understand what we are up to and given a chance to let new patterns of relating to emerge.
+
+The relationship with the therapist becomes a template for how we might form relationships with others going forward, freed from the maneuvers and background assumptions that we carried within us from childhood, and which can impede us so grievously in the present.
+
+The therapeutic relationship may be for us the first properly healthy relationship we have had, one in which we learn to hold off from imposing our assumptions on the other and trust them enough to let them see the larger, more complex reality of who we are, without too much intervening shame or embarrassment. It becomes a model – earned in a highly unusual situation – that we start to apply in the more humdrum but consequential setting of daily life, with our friends and our partners.
+
+**Inner Voices**
+
+Somewhere in our minds, removed from the day to day, there sits a judge. They watch what we do, study how we perform, examine the effect we have on others, track our successes and failures – and then, eventually, they pass a verdict. The origins of the voice of the inner judge is simple to trace: it is an internalisation of the voice of people who were once outside us. We absorb the tones of contempt and indifference or charity and warmth that we will have heard across our formative years. Sometimes, a voice is positive and benign, encouraging us to run those final few yards. But more often, the inner voice is not very nice at all. It is defeatist and punitive, panic-ridden and humiliating. It doesn’t represent anything like our best insights or most mature capacities.
+
+Part of what therapy offers us is a chance to improve how we judge ourselves and the voices we hear in our heads. It can involve learning – in a conscious, deliberate way – to speak to ourselves in the way the therapist spoke to us over many months. In the face of challenges, we can enquire of ourselves, ‘And what would they say now?’ After we have heard their constructive, kindly voice often enough and around tricky enough issues, it will come to feel like a natural response; eventually, it will become our own thoughts.
+
+Therapy prompts us to internalise a better voice than most that we have ever yet encountered, ready for us to hear in times of need.
+
+\*\*\*\*\*
+
+What sort of person, then, might we be after therapy, if the process were to go well?
+
+Evidently, still – quite often – unhappy. People will continue to misunderstand us; we’ll meet with opposition; there will be things it would be nice to have that will be out of reach; success will come to people who don’t appear to deserve it and much that’s good about us won’t be fully appreciated by others. We’ll still have to compete and submit to the judgment of others; we’ll still be lonely sometimes; and therapy won’t stop us falling ill, dying and having watching the people we love pass away. Therapy can’t make life better than it truly is.
+
+But with these caveats firmly in place, there are some low key but in truth very substantial benefits therapy can bring us:
+
+&nbsp;
+
+_We will have slightly more freedom_
+
+&nbsp;
+
+A key feature of the defences we build up against our primal wound is that they are rigid – and limit our room for manoeuvre. For example, we may have a very distinctive but unfortunate type we go for in love; or we can’t be touched in certain places; or we have to be constantly cynical or else insistently jolly. Our sense of who we are allowed to be and what we can do is held prisoner by the shocks of the past.
+
+But the more we understand the original challenges and the logic of our responses to them, the more we can take a risk of deviating from whom we once felt we had to be to survive. Perhaps we can, after all, afford to hope; or to go on top, or to spend some time alone, or to try a new job.
+
+We realise that what we had believed to be our inherent personality was really just a position we had crouched into to deal with the prevailing atmosphere. And having taken a measure of the true present situation, we may accept that there could – after all – be other, sufficiently safe ways for us to be.
+
+_We can be readier to explain ourselves_
+
+We had learnt to be ashamed and silent. But the therapist’s kindness and attention encourages us to be less disgusted by ourselves and furtive around our needs. Having once voiced our deeper fears and wishes, they can become ever so slightly easier to bring up again with someone else. There may be an alternative to silence.
+
+With a greater sense of our right to exist, we may come better to articulate how it feels to be us. Instead of just resenting another person’s criticism, we might explain why we believe they have been unjust to us. If we are upset by our partner, we don’t don’t need to accuse them of evil and flee the house. Rather than escape, we’ll know to explain how (perhaps strangely) sensitive we are and how much reassurance we need to feel secure in their affection. Instead of trying to pretend that everything isn’t ever our fault, we can offer a candid explanation of our (unfortunate) limitations and commit to trying to do better going forward. It doesn’t have to feel like a catastrophe to say we are in the wrong.
+
+&nbsp;
+
+_We can be more compassionate_
+
+We will inevitably, in the course of therapy, realise how much we were let down by certain people in the past. A natural response might be blame. But the eventual, mature reaction (building on an understanding of how our own flaws arose) will be to interpret their harmful behaviour as a consequence of their own disturbance. The people who caused our primal wound almost invariably didn’t mean to do so; they were themselves hurt and struggling to endure. We can develop a sad but more compassionate picture of a world in which sorrows and anxieties are blindly passed down the generations. The insight isn’t only true to experience, holding it in mind will mean there is less to fear. Those who wounded us were not superior, impressive beings who knew our special weaknesses and justly targeted them. They were themselves highly frantic, damaged creatures trying their best to cope with the litany of private sorrows to which every life condemns us.
+
+&nbsp;
+
+Therapy will, thereby, have done its most important work.
+
+_ **The School of Life offers psychotherapy, either online or in person:** _
+
+[www.theschooloflife.com/therapy](http://www.theschooloflife.com/therapy)
+
+[![](https://img.youtube.com/vi/OxuZiqY5ypU/0.jpg)](https://www.youtube.com/embed/OxuZiqY5ypU '')
+
+[![](https://img.youtube.com/vi/8eq_tjJDzvE/0.jpg)](https://www.youtube.com/embed/8eq_tjJDzvE '')

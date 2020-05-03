@@ -1,0 +1,79 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Psychotherapy](https://www.theschooloflife.com/thebookoflife/category/leisure/psychotherapy/): [105. Why Psychotherapy Works](https://www.theschooloflife.com/thebookoflife/why-psychotherapy-works/)
+
+* * *
+
+# Why Psychotherapy Works
+
+When one is in a bad place in one’s head, the modern world offers three main sources of solace: psychiatric medication, CBT and psychotherapy.
+
+Each has its own advantages and drawbacks. Medication can be exemplary in a crisis, at points when the mind is so under siege from fear, anxiety or despair that thinking things through cannot be an option. Correctly administered, without requiring any conscious cooperation from us, pills play around with our brain chemistry in a way that helps us get through to the next day – and the one after. We may get very sleepy, a bit nauseous or rather foggy in the process, but at least we’re still around – and functioning, more or less.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/03/1934_relief_by_Ben_Nicholson_Tate_Modern.jpg)
+
+Then there is Cognitive Behavioural Therapy (CBT), normally administered by psychologists and psychiatrists in six to ten hour-long sessions which teach us techniques for arguing rationally with, and with any luck at points controlling, the ghoulish certainties thrown up by our internal persecutors: paranoia, low self-esteem, shame and panic.
+
+Lastly there is psychotherapy, which from a distance looks like it has only drawbacks. It has a very hard time showing its efficacy in scientific trials – and has to plead that its results are too singular neatly to fit the models offered by statisticians. It takes up a large amount of time, demanding perhaps two sessions a week for a couple of years – and is therefore by far the most expensive option on the menu. Finally, it requires active engagement from its patients and sustained emotional effort; one cannot simply allow chemistry to do the work.
+
+And yet, psychotherapy is, in certain cases, a hugely effective choice, which properly alleviates pain not by chance or magic, but for three solidly-founded reasons:
+
+**– Our unconscious feelings become conscious**
+
+A founding idea of psychotherapy is that we get mentally unwell, have a breakdown or develop phobias because we are not sufficiently aware of the difficulties we have been through. Somewhere in the past, we have endured certain situations that were so troubling or sad, they outstripped our rational faculties and had to be pushed out of day-to-day awareness. For example, we can’t remember the real dynamics of our relationship with a parent; we can’t see what we do every time someone tries to get close to us, nor trace the origins of our self-sabotage or panic around sex. Victims of our unconscious, we can’t grasp what we long for or are terrified by.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/03/Senecio2.jpg)
+
+In such cases, we can’t be healed simply through rational discussion, as proponents of CBT implicitly propose, because we can’t fathom what is powering our distress in the first place.
+
+Therapy is a tool for correcting our self-ignorance in the most profound ways. It provides us with a space in which we can, in safety, say whatever comes into our heads. The therapist won’t be disgusted or surprised or bored. They have seen everything already. In their company, we can feel acceptable and our secrets sympathetically unpacked. As a result, crucial ideas and feelings bubble up from the unconscious and are healed through exposure, interpretation and contextualisation. We cry about incidents we didn’t even know, before the session started, we’d been through or felt so strongly about. The ghosts of the past are seen in daylight and are laid to rest.
+
+There is a second reason psychotherapy can work so well:
+
+**– Transference:**
+
+Transference is a technical term that describes the way, once therapy develops, a patient will start to behave towards the therapist in ways that echo aspects of their most important and most traumatic past relationships.
+
+A patient with a punitive parent might – for example – develop a strong feeling that the therapist must find them revolting, or boring. Or a patient who needed to keep a depressed parent cheerful when they were small might feel compelled to put up a jokey facade whenever dangerously sad topics come into view.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/03/800px-Niki_de_Saint_Phalle_Gwendolyn_2.jpg)
+
+We transfer like this outside therapy all the time, but there, what we’re doing doesn’t get noticed or properly dealt with. However, therapy is a controlled experiment that can teach us to observe what we’re up to, understand where our impulses come from – and then adjust our behaviour in less unfortunate directions. The therapist might gently ask the patient why they’re so convinced they must be disgusting. Or they might lead them to see how their use of jokey sarcasm is covering up sadness and terror.
+
+The patient starts to spot the distortions in their expectations set up by their history – and develops less self-defeating ways of interacting with people in their lives going forward.
+
+**– The First Good Relationship**
+
+We are, many of us, critically damaged by the legacy of past bad relationships. When we were defenceless and small, we did not have the luxury of experiencing people who were reliable, who listened to us, who set the right boundaries and helped us to feel legitimate and worthy.
+
+![Image result for Winnicott child](https://2.bp.blogspot.com/-QHm9GfSwI-A/VwUha7FwcAI/AAAAAAAAI94/qpjS-FL4VIA6DQup064M5qZ2RvjShnrRg/s1600/Donald-W-Winnicott.jpg)
+
+However, when things go well, the therapist is experienced as the first truly supportive and reliable person we’ve yet encountered. They become the good parent we so needed and never had. In their company, we can regress to stages of development that went wrong and relive them with a better ending. Now we can express need, we can be properly angry and entirely devastated and they will take it – thereby making good of years of pain.
+
+One good relationship becomes the model for relationships outside the therapy room. The therapist’s moderate, intelligent voice becomes part of our own inner dialogue. We are cured through continuous, repeated exposure to sanity and kindness.
+
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;\*\*\*
+
+Psychotherapy won’t work for everyone; one has to be in the right place in one’s mind, one has to stumble on a good therapist and be in a position to give the process due time and care. But that said, with a fair wind, psychotherapy also has the chance to be the best thing we ever get around to doing.
+
+[![](https://img.youtube.com/vi/g-i6QMvIAA0/0.jpg)](https://www.youtube.com/embed/g-i6QMvIAA0 '')
+
+.
+
+* * *
+
+## 
+
+## Therapy at The School of Life
+
+The Book of Life is brought to you by &nbsp;[The School of Life](http://www.theschooloflife.com/?utm_source=TBOL%20article%20content%20banner%20-%20TSOL%20main%20site&utm_campaign=TBOL%20article%20content%20banner%20-%20TSOL%20main%20site&utm_content=TBOL%20article%20content%20banner%20-%20TSOL%20main%20site "The School of Life") – a global organisation dedicated to developing emotional intelligence. You can find our classes, films, books, games and much more online and in our branches around the world. Below you can find out more about the [therapy services](https://www.theschooloflife.com/therapy/?utm_source=TBOL%20article%20content%20banner%20main%20global%20therapy%20services&utm_campaign=TBOL%20article%20content%20banner%20main%20global%20therapy%20services&utm_content=TBOL%20article%20content%20banner%20main%20global%20therapy%20services) we offer:
+
+[![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/02/Therapy_Main_image.jpg)](https://www.theschooloflife.com/london/therapy/)
+
+**The Importance of Therapy&nbsp;&nbsp;**
+
+_Therapy isn’t for the select or distressed few; we believe that therapy is for everybody._
+
+To help dispel the slight taboo which sometimes surrounds it, we have created a welcoming home for psychotherapy for when you feel stuck in a rut, anxious about your relationships or simply unsure about what’s going on in your life. Our therapists are based at our London HQ in Bloomsbury, but we also offer online sessions, via video conference for those unable to come to London.
+
+We offer the following types of therapy: [Psychotherapy](https://www.theschooloflife.com/shop/psychotherapy/?utm_source=TBOL%20Bottom%20Banner%20Twenty%20Key%20Concepts%20from%20Psychotherapy%20Therapy%20Services%20psychotherapy&utm_campaign=TBOL%20Bottom%20Banner%20Twenty%20Key%20Concepts%20from%20Psychotherapy%20Therapy%20Services%20psychotherapy&utm_content=TBOL%20Bottom%20Banner%20Twenty%20Key%20Concepts%20from%20Psychotherapy%20Therapy%20Services%20psychotherapy), [Couple Counselling](https://www.theschooloflife.com/shop/couple-counselling/?utm_source=TBOL%20Bottom%20Banner%20Twenty%20Key%20Concepts%20from%20Psychotherapy%20Therapy%20Services%20couple%20counselling&utm_campaign=TBOL%20Bottom%20Banner%20Twenty%20Key%20Concepts%20from%20Psychotherapy%20Therapy%20Services%20couple%20counselling&utm_content=TBOL%20Bottom%20Banner%20Twenty%20Key%20Concepts%20from%20Psychotherapy%20Therapy%20Services%20couple%20counselling), [Career Counselling](https://www.theschooloflife.com/london/classroom/career-counselling/?utm_source=TBOL%20Bottom%20Banner%20Twenty%20Key%20Concepts%20from%20Psychotherapy%20-%20Therapy%20services%20career%20counselling&utm_campaign=TBOL%20Bottom%20Banner%20Twenty%20Key%20Concepts%20from%20Psychotherapy%20-%20Therapy%20services%20career%20counselling&utm_content=TBOL%20Bottom%20Banner%20Twenty%20Key%20Concepts%20from%20Psychotherapy%20-%20Therapy%20services%20career%20counselling)&nbsp;(London only)
+
+**[Learn more \>\>](https://www.theschooloflife.com/therapy/?utm_source=TBOL%20article%20content%20banner%20main%20global%20therapy%20services&utm_campaign=TBOL%20article%20content%20banner%20main%20global%20therapy%20services&utm_content=TBOL%20article%20content%20banner%20main%20global%20therapy%20services)**

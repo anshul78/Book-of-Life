@@ -1,0 +1,56 @@
+[Chapter 6.Leisure](https://www.theschooloflife.com/thebookoflife/category/leisure/): [Culture](https://www.theschooloflife.com/thebookoflife/category/leisure/culture/): [48. Why Music Works](https://www.theschooloflife.com/thebookoflife/whats-the-point-of-music/)
+
+* * *
+
+# Why Music Works
+
+One of the most calming things that societies have ever devised is the lullaby. In almost every culture there has ever been, mothers have rocked and sung their babies to sleep.
+
+A humbling point that a lullaby reveals is that it’s not necessarily the words of a song that make us feel more tranquil. The baby doesn’t understand what’s being said but the sound has its effect all the same. The baby is showing us that we are all tonal creatures long before we are creatures of understanding. As adults, we grasp the significance of words of course, but there remains a sensory level which cuts through and affects far more than an argument or an idea ever could. The musician can, at points, trump anything the philosopher might tell us.
+
+[![Edward_Poynter_-_Orpheus_and_Eurydice](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/12/Edward_Poynter_-_Orpheus_and_Eurydice.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/12/Edward_Poynter_-_Orpheus_and_Eurydice.jpg)
+
+Ancient Greek mythology was fascinated by the story of the famous musician Orpheus. At one point he had to rescue his wife from the underworld. To get there he needed to make his way past Cerberus the ferocious three-headed dog who guarded the entrance to the land of the dead. Orpheus was said to have played such sweet, enchanting music that the wild beast calmed down and became – for a while – mild and docile. The Greeks were giving themselves a reminder of the psychological power of music. Orpheus didn’t reason with Cerberus, he didn’t try to explain how important it was that he should be allowed to pass, he didn’t speak about how much he loved his wife and how much he wanted her back. Cerberus was – as we ourselves are at times of distress – pretty much immune to reason. But he was still open to influence. It was a matter of finding the right channel to reach him.
+
+When we feel anxious or upset, kindly people sometimes try to comfort us by pointing to facts and ideas: they try to influence our thinking and – via careful arguments – to quieten our distress. But, as with Cerberus, the most effective way to deal with the problem may simply be to play us music. We might need to be quietened and made mild (by a lullaby, a Chopin prelude or something by Natalie Merchant), before we are in any position to listen to reason.
+
+[![15093791042_39504640b0_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/12/15093791042_39504640b0_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/12/15093791042_39504640b0_z.jpg)
+
+Music is the greatest mood adjustor we have ever invented. Its benefits can be broken down as follows:
+
+It can reunite us with feelings we need, but have lost touch with. It reconciles us to a sadness within we have had to be too brave and stoic to feel. It is the axe that breaks the frozen sea within us.
+
+[![](https://img.youtube.com/vi/hLQl3WQQoQ0/0.jpg)](https://www.youtube.com/embed/hLQl3WQQoQ0 '')
+
+It can lend a dignity to our sorrows, framing and containing what might otherwise be unmanageable grief.
+
+[![](https://img.youtube.com/vi/KIJGlTu5sEI/0.jpg)](https://www.youtube.com/embed/KIJGlTu5sEI '')
+
+Music is there for us like a comforting parent in moments of despair.
+
+[![](https://img.youtube.com/vi/VjEq-r2agqc/0.jpg)](https://www.youtube.com/embed/VjEq-r2agqc '')
+
+Music returns us to life, gently nudging us to return to the side of generosity and hope.
+
+[![](https://img.youtube.com/vi/WK5GC-JJG7Q/0.jpg)](https://www.youtube.com/embed/WK5GC-JJG7Q '')
+  
+
+We can follow in its grooves of confidence, when our own will is lagging.
+
+[![](https://img.youtube.com/vi/CevxZvSJLk8/0.jpg)](https://www.youtube.com/embed/CevxZvSJLk8 '')
+
+It is there to take us beyond the everyday, to transcend the ordinary and survey ourselves from a lofty height.
+
+[![](https://img.youtube.com/vi/usfiAsWR4qU/0.jpg)](https://www.youtube.com/embed/usfiAsWR4qU '')
+
+It reconnects us with our instinctual, bodily selves when reason, logic and discipline are in danger of crushing us.
+
+[![](https://img.youtube.com/vi/ljuyyXMYT-M/0.jpg)](https://www.youtube.com/embed/ljuyyXMYT-M '')
+
+It breaks down the barriers between strangers – urging us to see what we have in common, rather than what divides us.
+
+[![](https://img.youtube.com/vi/A_MjCqQoLLA/0.jpg)](https://www.youtube.com/embed/A_MjCqQoLLA '')
+
+We fully discover our debt to music when we can acknowledge just how powerless we sometimes are to change our moods through reason alone. A good life does not only need a library of ideas: it requires a vast and ever-changing playlist that can systematically tug us back to our more hopeful, sensitive and resilient selves.
+
+[![](https://img.youtube.com/vi/6GeM-E8gMzk/0.jpg)](https://www.youtube.com/embed/6GeM-E8gMzk '')

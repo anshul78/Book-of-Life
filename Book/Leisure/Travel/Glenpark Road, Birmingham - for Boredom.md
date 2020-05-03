@@ -1,0 +1,27 @@
+[Chapter 6.Leisure](https://www.theschooloflife.com/thebookoflife/category/leisure/): [Travel](https://www.theschooloflife.com/thebookoflife/category/leisure/travel/): [18. Glenpark Road, Birmingham - for Boredom](https://www.theschooloflife.com/thebookoflife/travel-as-therapy-glenpark-road-birmingham-for-boredom/)
+
+* * *
+
+# Glenpark Road, Birmingham – for Boredom
+
+[![birmingham4](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/10/birmingham4.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/10/birmingham4.jpg)
+
+Abroad is, as we know, the exciting bit. You’ve been so far recently. You were in Abuja only on Tuesday and then at Heathrow on Wednesday. Yesterday lunchtime, you were having fried plantain in the Wuse district with Promise and Chinwe, and at eight this morning, the captain closed down the 777′s twin engines at a gate in Terminal 5 across from a branch of Costa Coffee.
+
+You’re back home in Birmingham now. Midway down Glenpark Road, around the corner from West End Park. How peculiar and depressing everything looks against the memory of dawn in the Obudu hills. How sad the dampness of the English climate after the intense West African light. How drearily English, in a way they will never know, the chat of the neighbours out in the road when you have the din of the street market in Kubwa still ringing in your ears.
+
+Why does ‘home’ so often have to be the boring bit? Seated together on most planes is a mixture of people with such different expectations of where they are going: those for whom this will be the start of a journey to a new land, and those returning home. The first group is filled with excitement, they have guidebooks, cameras and knots of anticipation. The second may be too sad to touch their inflight trays. On the final descent, they gaze at the landscape with melancholy faces. They have only home to contemplate, with its banal associations. And yet the two groups are travelling to the very same place. Once they have crossed customs, they will have before them the very same monuments, museums, landscapes and foods.
+
+Why do we accord such privileges to foreign places, and such ready disdain for our own lands? Would it not be one of the greatest skills, the most helpful kind of practical wisdom, to know how to sample a little of the excitement about our own countries that foreigners know how to locate here?
+
+The interest we take in where we are depends so much on prejudice; on whether we feel it’s acceptable or just plain possible to be interested. Receptivity or openness might be the chief characteristic of the traveller’s mindset. We approach new places with curiosity. We don’t assume we know anything. We stand on traffic islands and in narrow streets, gawping at and admiring what the locals take to be strange small details. We risk getting run over because we are intrigued by the roof of a government building or an inscription on a wall. We find a supermarket or hairdresser unusually fascinating. We dwell at length on the layout of a menu or the clothes of the presenters on the evening news. We are alive to the layers of a country’s history beneath the present.
+
+At home on the other hand, we assume we’ve discovered most of what is interesting about the neighbourhood, simply by virtue of having lived there a long time. It seems so hard to imagine that there could be something novel to unearth in a place where we’ve spent our daily lives over many decades.
+
+But imagine how much one might notice if one walked out of the front door, and imagined one had never seen any of it before, if one pictured oneself as a foreigner from a far off land newly disembarked off a long-haul flight. One might be fascinated by the milky green of the trees, and the endless procession of leaden clouds. One might note the ordered sterility of the supermarket, the diffident politeness of people on the bus, the native genius for skirting conflict with a particular kind of irony. In a glass-fronted office block on Washwood Heath Road, one might spot some people gesticulating in a boardroom on the first floor and wonder at the workings of the distinctive Capitalism that grows here.
+
+The German philosopher Nietzsche expanded on the contrast: ‘When we observe how some people know how to manage their experiences – their insignificant, everyday experiences – so that they become an arable soil that bears fruit three times a year, while others – and how many there are! – are driven through surging waves of destiny, the most multifarious currents of the times and the nations, and yet always remain on top, bobbing like a cork, then we are in the end tempted to divide mankind into a minority (a minimality) of those who know how to make much of little, and a majority of those who know how to make little of much.’
+
+We meet people who have crossed deserts, floated on ice-caps and cut their way through jungles – and yet in whose hearts we would search in vain for evidence of what they have witnessed.
+
+Given the limits on how much we are able to travel (and its costs and side-effects), we should endeavour to try, before taking off for distant hemispheres, to notice what we have already so often seen closer at hand. And when we despair at coming back, we should be goaded on by the thought that ‘boring home’ is always someone else’s deeply exciting ‘abroad’.
