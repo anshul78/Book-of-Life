@@ -1,0 +1,21 @@
+[Chapter 6.Leisure](https://www.theschooloflife.com/thebookoflife/category/leisure/): [Travel](https://www.theschooloflife.com/thebookoflife/category/leisure/travel/): [03. Why We Argue in Paradise](https://www.theschooloflife.com/thebookoflife/why-we-argue-in-paradise/)
+
+* * *
+
+# Why We Argue in Paradise
+
+We’re in paradise: a beachfront hotel on a tropical island; a charming cottage in a tranquil valley, a luxurious hotel in a historic city. Our spirits stand to be soothed by beauty and comfort. We’ve argued in the stressed, imperfect circumstances of home but now we are free to be sweet, calm, thoughtful, tender and patient. We have come here quite deliberately to give ourselves a pleasant break and to restore our better feelings towards one another. And yet it can be precisely in idyllic surroundings that we get especially irritated and frustrated with one another and where some of our most explosive and bitter arguments may, ironically, be played out against a backdrop of quiet meadows and turquoise seas rich with brightly-coloured fish. &nbsp;
+
+It seems especially aberrant and awful that this should happen: our cultural assumptions have no space for the strange shouting matches, brittle stand-offs and brutal confrontations that have followed us here.
+
+But there’s a reasonable logic at work nevertheless: because everything outward is particularly nice, the unhappy parts of our minds become more conspicuous. Our distresses weigh on us more heavily and announce themselves unusually loudly when bliss is demanded. Our high hopes of contentment make our frustrations with our partner (and secretly also with ourselves) even harder to accept. If only it weren’t _for them_…
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/09/6155718367_a1ec4b789d_z.jpg)
+
+©Flickr/Sean and Lauren
+
+By contrast, it is sometimes our cultural exposure to grim realities – to bleak stories of war, to tragedies and misfortune or to places where nature is hostile (a barren desert, a cold, craggy, storm-swept island) – that make our own inner distress feel less important or pressing. We’re more inclined to overlook our partner’s annoying details in situations where having anyone at all feels like a privilege and where the human project seems fundamentally precarious and cursed.
+
+Yet we should not compound our misery by declaring it illegitimate. We should mock our naive starting assumption that money and physical displacement should be able to solve the problems that bedevil our scratchy partnerships – and accept that beautiful surroundings are only ever one ingredient, and certainly not the most major, within the complex compound of a contented life. The power of great linen and succulent buffets to lift our mood is negligible as compared with the influence of honest communication and the chance to work through our resentments. Our beautiful hotels teach us quiet lessons in the secondary importance of material goods.
+
+But we should also skewer the fear that paradise must forever be marred by a few bustups. After the fight in the beachside bungalow or the flaming argument in the taverna, we will know that we have gloriously failed the challenge of living up to our surroundings and of being a decent mature person – and will be all the better and more liberated for it. Of course we can’t be happy or grown-up for more than a few hours; this is simply how all humans are built (we just don’t know enough about the lives of strangers to trust that we aren’t the freakish exceptions). We haven’t surrendered our right to be sad and vile just because we’re paying a small fortune for a bed for the night and there’s a beautiful view out on the bay. The privileges of true paradise include the right to be at points just as miserable and fractious as we like.

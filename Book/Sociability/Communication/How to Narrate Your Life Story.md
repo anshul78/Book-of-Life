@@ -1,0 +1,43 @@
+[Chapter 4.Sociability](https://www.theschooloflife.com/thebookoflife/category/sociability/): [Communication](https://www.theschooloflife.com/thebookoflife/category/sociability/communication/): [84. How to Narrate Your Life Story](https://www.theschooloflife.com/thebookoflife/how-to-narrate-your-life-story/)
+
+* * *
+
+# How to Narrate Your Life Story
+
+At moments of sorrow and exhaustion, it is only too easy to look back over the years and feel that our lives have, in essence, been meaningless. We take stock of just how much has gone wrong: how many errors there have been; how many unfulfilled plans and frustrated dreams we’ve had. We may feel like the distraught, damned Macbeth who, on learning of his wife’s death, exclaims at a pitch of agony that man is a cursed creature who:
+
+…struts and frets his hour upon the stage,
+
+And then is heard no more. [Life] is a tale
+
+Told by an idiot, full of sound and fury,
+
+Signifying nothing.
+
+Shakespeare, _Macbeth_, Act 5, scene 5
+
+No life can avoid an intermittently high degree of ‘sound and fury.’ The question is whether it must also, ultimately, signify nothing. As Macbeth’s lines hint, this will depend on who is telling it. In the hands of Shakespeare’s (bracingly termed) ‘idiot’, the story of a life may well turn into unintelligible and dispiriting gibberish. But with sufficient compassion and insight, we may equally be able to make something different and a great deal more meaningful and redemptive out of the same material.
+
+[![608px-Orson_Welles_as_Macbeth](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/03/608px-Orson_Welles_as_Macbeth.jpg)](http://www.thebookoflife.org/wp-content/uploads/2017/03/608px-Orson_Welles_as_Macbeth.jpg)
+
+The difference between despair and hope is just a different way of telling stories from the same set of facts.
+
+Only a small number of us ever self-consciously write our autobiographies. It is a task we associate with celebrities and the very old – but it is, in the background, a universal activity. We may not be publishing our stories, but we are writing them in our minds nevertheless. Every day finds us weaving a story about who we are, where we are going and why events happened as they did.
+
+Many of us are strikingly harsh narrators of these life stories. We hint to ourselves that we’ve been morons from the beginning. We’ve stuffed up big time. It’s been one disaster after another. That’s how we go about narrating, especially late at night, when our reserves of optimism run dry and the demons return.
+
+Yet there is nothing necessary about our self-flagellating methods of narration. There could always be ways of telling very different, far kinder, and more balanced stories from the very same sets of facts. You could give your life story to Dostoevsky, Proust or Jesus and come out with a rather bearable, moving, tender and noble story.
+
+Good – by which is meant fair-minded and judicious – narrators know that lives can be meaningful even when they involve a lot of failure and humiliation. Mistakes do not have to be absurd; they can be signs of how little information we have on which to base the most consequential decisions. Messing up isn’t a sign of evil; it’s evidence of what we’re up against.
+
+[![720px-Vasily_Perov_-_Портрет_Ф.М.Достоевского_-_Google_Art_Project](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/03/720px-Vasily_Perov_-_%D0%9F%D0%BE%D1%80%D1%82%D1%80%D0%B5%D1%82_%D0%A4.%D0%9C.%D0%94%D0%BE%D1%81%D1%82%D0%BE%D0%B5%D0%B2%D1%81%D0%BA%D0%BE%D0%B3%D0%BE_-_Google_Art_Project.jpg)](http://www.thebookoflife.org/wp-content/uploads/2017/03/720px-Vasily_Perov_-_%D0%9F%D0%BE%D1%80%D1%82%D1%80%D0%B5%D1%82_%D0%A4.%D0%9C.%D0%94%D0%BE%D1%81%D1%82%D0%BE%D0%B5%D0%B2%D1%81%D0%BA%D0%BE%D0%B3%D0%BE_-_Google_Art_Project.jpg)
+
+Not all the disasters were wasted anyway. Maybe we spent a decade not quite knowing what we wanted to do with ourselves professionally. Maybe we went through a succession of failed relationships that left us confused and hurt a lot of people. But these experiences weren’t meaningless because they were necessary to later development and maturity. We needed the career crisis to understand our working identities; we had to fail at love to fathom our hearts. No one gets anywhere important in one go. We can forgive ourselves the horrors of our first drafts.
+
+The good storyteller recognises – contrary to certain impressions – that the central character of the story isn’t always responsible for every calamity or triumph. We are never the sole authors of anything that happens to us. Sometimes, it really will be the economy, our parents, the government, our enemies or simply the tragic dimensions of human existence. Good narrators don’t over-personalise.
+
+Every day, we are induced to narrate a bit our life story to ourselves: we explain why there was pain, why we forgot to seize a chance and why we’re in an unhappy situation.
+
+It does not need to be a tale told by an idiot signifying nothing. It can be a tale told by a kind, intelligent soul signifying rather a lot: like almost every life story, it is in truth a tale of a well-intentioned, flawed, partially blind, self-deceived but ultimately dignified and good human struggling against enormous odds and, sometimes, on a good day, succeeding just a little in a few areas.
+
+[![](https://img.youtube.com/vi/Brpk26Oq4aE/0.jpg)](https://www.youtube.com/embed/Brpk26Oq4aE?ecver=2 '')

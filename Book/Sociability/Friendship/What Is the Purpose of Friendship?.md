@@ -1,0 +1,55 @@
+[Chapter 4.Sociability](https://www.theschooloflife.com/thebookoflife/category/sociability/): [Friendship](https://www.theschooloflife.com/thebookoflife/category/sociability/friendship/): [73. What Is the Purpose of Friendship?](https://www.theschooloflife.com/thebookoflife/what-is-the-purpose-of-friendship/)
+
+* * *
+
+# What Is the Purpose of Friendship?
+
+Friendship should be one of the high points of existence, and yet it’s also the most routinely disappointing reality.
+
+Too often, you’re at supper at someone’s house: there’s an impressive spread and the hosts have evidently gone to a lot of trouble. But the conversation is meandering and devoid of real interest. It flits from an over-long description of the failings of the inflight service on a particular airline to a strangely heated discussion about the tax code. The intentions of the hosts are hugely touching, but (as so often) we go home wondering what on earth the whole performance was about.
+
+[![3384165861_f8c7274f24_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/10/3384165861_f8c7274f24_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/10/3384165861_f8c7274f24_z.jpg)
+
+The key to the problem of friendship is found in an odd-sounding place: a lack of a sense of purpose. Our attempts at friendship tend to go adrift, because we collectively resist the task of developing a clear picture of what friendship is really for.
+
+The problem is that we are unfairly uncomfortable with the idea of friendship having any declared purpose, because we associate purpose with the least attractive and most cynical motives. Yet purpose doesn’t have to ruin friendship and in fact, the more we define what a friendship might be for, the more we can focus in on what we should be doing with every person in our lives – or indeed the more we can helpfully conclude that we shouldn’t be with them at all.
+
+There are at least five things we might be trying to do with the people we meet:
+
+_Firstly: Networking_
+
+It’s an unfairly maligned idea. We are small, fragile creatures in a vast world. Our individual capacities are entirely insufficient to realise the demands of our imaginations. So, of course, we need collaborators: accomplices who can align their abilities and energies with ours. This idea of friendship was given a lot of space in classical literature. Take _The Argonauts,_ the legendary Ancient Greek tale which traced how a heroic captain called Jason networked in order to assemble a band of friends to sail on the Argo in search of the Golden Fleece. Later the same idea emerged when Jesus networked to put together a band of twelve disciples with whom he could spread one or two world-changing ideas about forgiveness and compassion. Rather than diminish our own efforts as we hand out our business cards, such prestigious examples can show how elevated and ambitious networking friendships could ideally be.
+
+[![constantine_volanakis_argo](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/10/Constantine_Volanakis_Argo.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/10/Constantine_Volanakis_Argo.jpg)
+
+_Secondly: Reassurance_
+
+The human condition is full of terror. We are always on the verge of disgrace, danger and disappointment. And yet such are the rules of polite conduct that we are permanently in danger of imagining that we are the only ones to be as crazy as we know we are. We badly need friends because, with the people we know only superficially, there are few confessions of sexual compulsion, regret, rage and confusion. They refuse to admit that they too are going slightly out of their minds. Yet, the reassuring friend gives us access to a very necessary and accurate sense of their own humiliations and follies; an insight with which we can begin to judge ourselves and our sad and compulsive sides more compassionately.
+
+_Thirdly: Fun_
+
+Despite talk of hedonism and immediate gratification, life gives us constant lessons in the need to be serious. We have to guard our dignity, avoid looking like a fool and pass as a mature adult. The pressure becomes onerous, and in the end even dangerous.
+
+That is why we constantly need access to people we can trust enough to be silly with them. They might most of the time be training to be a neurosurgeon or advising middle sized companies about their tax liabilities but when we are together, we can be therapeutically daft. We can put on accents, share lewd fantasies or doodle on the newspaper: adding a huge nose and a missing front tooth to the president, or giving the fashion model distended ears and masses of curly hair. The fun friend solves the problem of shame around important but unprestigious sides of ourselves.
+
+[![3234755362_36a17f2752_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/10/3234755362_36a17f2752_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/10/3234755362_36a17f2752_z.jpg)
+
+_Fourthly: Clarifying our Minds_
+
+To a surprising degree, it is very hard to think on our own. The mind is skittish and squeamish. As a result, many issues lie confused within us. We feel angry but are not sure why. Something is wrong with our job but we can’t pin it down. The thinking friend holds us to the task. They ask gentle but probing questions which act as a mirror that assists us with the task of knowing ourselves.
+
+_Fifthly: Holding on to the past_
+
+A number of friends have nothing to say to whom we are now, but we keep seeing them, get a little bored in their company – yet are not wrong to keep up with them. Perhaps we knew them from school or university, or we once spent a very significant holiday with them twenty years ago or we became friendly when our children were at kindergarten together. They embody a past version of ourselves from which we’re now distant and yet still&nbsp;remain&nbsp;loyal. They help us to understand where we have come across and what once mattered. They aren’t relevant to whom we are today, but not all of our identity is ever contemporary, as our continued commitment to them attests.
+
+\*\*\*\*
+
+One side-effect of getting a bit more precise about what we’re trying to do with our social lives is that we’re likely to conclude that, in many cases, we are spending time with people for no truly identifiable reason. These proto-friends share none of our professional ambitions or interests; they aren’t reassuring and may indeed be secretly really very excited by the possibility of our failure; we can’t be cathartically silly around them and they aren’t in the least bit interested in furthering our or their path to self-knowledge. They are – like so many of the people in our social lives – simply in our orbit as a result of an unhappy accident we have been too sentimental to correct.
+
+[![4925210373_f09d3ed29a_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/10/4925210373_f09d3ed29a_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/10/4925210373_f09d3ed29a_z.jpg)
+
+_&nbsp;_
+
+We should dare to be a little ruthless. Culling acquaintances isn’t a sign that we have lost belief in friendship. It’s evidence that we are getting clearer and more demanding about what a friendship could be. In the best way, the price of knowing what friendship is for may be a few more evenings in our own company.
+
+[![](https://img.youtube.com/vi/aGedUxTAfBk/0.jpg)](https://www.youtube.com/embed/aGedUxTAfBk '')

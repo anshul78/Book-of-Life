@@ -1,0 +1,31 @@
+[Chapter 2.Work](https://www.theschooloflife.com/thebookoflife/category/work/): [Business Skills](https://www.theschooloflife.com/thebookoflife/category/work/business-skills/): [35. Diplomacy at the Office](https://www.theschooloflife.com/thebookoflife/diplomacy-at-the-office/)
+
+* * *
+
+# Diplomacy at the Office
+
+A deadline is looming and a member of your team hasn’t made much progress on the crucial part of the task that’s been assigned to them. You feel like going up to them and insisting they make a concentrated effort immediately: Do it now! The strong temptation is to get stern and controlling – and keep them at it, under your eye if need be, until it’s finished.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/04/Screw-Up-Work-2.jpg)
+
+©flickr. Clive Holloway
+
+But there’s a huge problem: your peremptory demands are very likely to undermine your colleague’s ability to perform. They’ll feel flustered and harrassed; they’ll not be able to muster the necessary levels of attention and energy; they’ll make mistakes. Just as significantly, they’ll get resentful: they’ll begin to see you as a tyrant to be hated rather than a team member to be helped.
+
+The more work requires the use of the mind, the more galling the situation becomes. It’s possible (at a theoretical extreme) to make someone hew rocks or chop trees more or less at gunpoint. People who ran slave galleys didn’t have to worry about team morale. For thousands of years, the only tool of management was the whip. But it’s not nowadays remotely possible to motivate an unhappy employee to identify an anomaly in the year-end accounts or come up with a resonant ad slogan or make an elegant refinement to a dress design by being mean and impatient. The more worried, oppressed or anxious an individual feels, the less likely it is that the creative and delicate elements of their mind will ever be coaxed into action. You might be able theoretically to browbeat them into getting the job done – but it won’t be work you’ll ever have any use for.
+
+_I’m so sorry to contact you; I know I must come across as deeply annoying and unreasonable. However, I’m just wondering how you might be getting on with the project. Your work is so valuable, we need you more perhaps than you can realise. I might just be fretting, and maybe you have it all in hand, but if you could try to make sure that you can meet (ideally comfortably!) the deadline we agreed, I for one will feel so much more at ease. Needless to say, I’m simply so grateful – and deeply look forward to hearing from you whenever time allows._
+
+The strategy and vocabulary originate in a place that doesn’t immediately seem to have any connection to the modern office: international diplomacy.&nbsp; Diplomacy emerged as the urgently needed alternative to the devastations of war; if you could soothe and encourage, rather than insist, it might be possible to avoid besieged cities and bodies on the field. Diplomacy turned to words like ‘possibly’, ‘maybe’ and ‘perhaps’ &nbsp;in order to create space for the free (rather than enforced) assent of the other. It used praise rather than criticism and suggestion rather than a hectoring demand. It wasn’t the result of cowardice or weakness, but a painfully learned lesson in the way in which a just cause, directly stated, can completely fail to get the desired results.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/04/Screw-Up-Work-3.jpg)
+
+©flickr. Clive Holloway
+
+In our panic, we tend to get stern and forget what we know from the inside. We ourselves don’t respond well to being badgered. Instead it’s the feeling that we are loved, valued, appreciated and liked that brings out the best in our cognitive capacities and builds our motivation: we feel safe enough to explore a promising but difficult line of thought; we feel encouraged to do the absolute best we can; we get more imaginative, more perceptive and more energetic.
+
+We’re encountering the work version of a large – and maddeningly central – feature of the human condition: the correctness and legitimacy of a message doesn’t immediately get the person who hears it to do the reasonable or right thing: a sarcastic demolition of an absurd idea tends to entrench those who believe it; proving by facts and logic that someone is an idiot usually does little to induce them to be reasonable and wise. If you insist that your child eats some lettuce because ‘nutritionists have proved it will help with cardiovascular circulation and you won’t get any screen time if you don’t,’ they will be sure to develop a lifelong aversion to greens; if a teacher is openly appalled that a pupil fails to understand something, their chances of remedying the error are massively reduced. When environmental activists make us feel hopeless, sinful and guilty, we tend to turn away and pretend there is no problem.
+
+_I shouldn’t worry, I know, you do amazing things at this company; but if there’s any way you might let me know whether the project is progressing as it should, then you’d be able to put my absurd fears finally and fully to rest. I know that, as always, you’ll be able to do such a brilliant job._
+
+It may feel like another frantic Thursday afternoon but in fact you are participating in an honourable and eternal struggle: to make a difficult truth powerful and attractive in the complex mind of another person.

@@ -1,0 +1,31 @@
+[Chapter 2.Work](https://www.theschooloflife.com/thebookoflife/category/work/): [Sorrows of Work](https://www.theschooloflife.com/thebookoflife/category/work/sorrows-of-work/): [69. What Is That Sunday Evening Feeling?](https://www.theschooloflife.com/thebookoflife/what-is-that-sunday-evening-feeling/)
+
+* * *
+
+# What Is That Sunday Evening Feeling?
+
+It descends, normally, between around 5pm and 7.30pm and can be at its height at six, especially when the weather is turning and the last of the daylight has burnished the sky a shade of crimson pink.
+
+The Sunday evening feeling is ordinarily associated with work, and the idea of going back to an office after a pleasant break. But this doesn’t quite cover the complexity of what is going on: it isn’t just that we have some sort of work to do that is dragging down our mood, but that we are going back to the wrong sort of work even while we are in dire ignorance of what the right sort of work might actually be.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/09/Evening_Sky_Study_2a-850x675.jpg)
+
+We all have inside us what we might term a true working self, a set of inclinations and capacities that long to exert themselves on the raw material of reality. We want to turn the vital bits of who we are into jobs, and ensure that we can see ourselves reflected in the services and products we are involved in turning out. This is what we understand by the right job, and the need for one is as fundamental and as strong in us as the need to love. We can be as broken by a failure to find our professional destiny as to identify an intimate companion. Feeling that we are in the wrong job, and that our true vocation lies undiscovered, is not a minor species of discomfort: it will be the central existential crisis of our lives.
+
+We normally manage to keep the insistent calls of the true working self at bay during the week. We are too busy and too driven by an immediate need for money. But it reliably comes to trouble us on Sunday evenings. Like a ghost suspended between two worlds, it has not been allowed to live or to die, and so bangs at the door of consciousness, requiring resolution. We are sad, or panicked, because a part of us recognises that time is running out and that we are not presently doing what we should with what remains of our lives. The anguish of Sunday evening is our conscience trying to stir us inarticulately into making more of ourselves.
+
+In this sense, Sunday evenings have a history. Until recently, the last hundred years or so, there was – for most of us – no question of our true working selves ever finding expression in our labours. We worked to survive and would be grateful for a minimal income. But such reduced expectations no longer hold. We know – because there are enough visible examples of people who have done so – that we could harness our talents to the engines of commerce. We know that we don’t have to be unhappy in this area, which adds a feeling of particular shame if we still are.
+
+![](https://upload.wikimedia.org/wikipedia/commons/4/47/Frederiksborg_Slot._Parti_ved_M%C3%B8ntbroen_1836_by_K%C3%B8bke.jpg)
+
+We should not be so hard on ourselves. We don’t yet have the mechanisms in place to reunite ourselves with our purpose. It is in the nature of our working selves to be both clear in their dissatisfactions and yet maddeningly oblique about their real direction. We can both be utterly sure that we are not doing what we should while wholly at sea about our genuine purpose.
+
+The answer is patience, structure and steadfast intent. We need some of the discipline of the detective, or an archaeologist reassembling the pieces of a smashed jar. We should not dismiss our angst blithely as ‘the Sunday blues’, to be assuaged with a drink and a film. We should see it as belonging to a confused yet utterly central search for a real self that has been buried under a need to please others and take care of short-term needs for status and money.
+
+In other words, we should not keep our Sunday evening feelings simply for Sunday evenings. We should place these feelings at the center of our lives and let them be the catalysts for a sustained exploration that continues throughout the week, over months and probably years, and that generates conversations with ourselves, with friends, mentors and with professionals. Something very serious is going on when sadness and anxiety descend for a few hours on Sunday evenings. We aren’t a bit bothered to have to end two days of leisure; we’re being driven usefully to distraction by a reminder to try to discover who we really are – and to do justice to our true talents – before it is too late.
+
+_ **For a little help in decoding the Sunday feeling:&nbsp;** _
+
+[https://www.theschooloflife.com/london/classroom/career-mot/](https://www.theschooloflife.com/london/classroom/career-mot/)
+
+[![](https://img.youtube.com/vi/qI-4-hA4NtY/0.jpg)](https://www.youtube.com/embed/qI-4-hA4NtY '')

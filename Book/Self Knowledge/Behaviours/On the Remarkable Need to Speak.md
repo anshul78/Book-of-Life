@@ -1,0 +1,21 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Behaviours](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/behaviours/): [53. On the Remarkable Need to Speak](https://www.theschooloflife.com/thebookoflife/on-the-surprising-need-to-speak/)
+
+* * *
+
+# On the Remarkable Need to Speak
+
+It sounds absurd when stated baldly, but we do not always – at some deep level – understand that we need to speak to those whom we so badly wish would understand us. We long for our intentions to be known, for our moods to be honoured, for our states of mind to be read – but we do not for that matter want to speak or particularly see an urgent need to do so. We want to be guessed at, intuited, read by a kind of magic we don’t realise we believe in. We want people to know what we have not bothered to tell them. We may even, in certain moods, suspect that they know full well what we think and want – but are deliberately frustrating us in order to score points and humiliate us. The only explanations for them not having guessed already is rudeness, a lack of love or extreme stupidity.
+
+![](http://www.americansuburbx.com/wp-content/uploads/2011/01/eggleston1.jpg)
+
+We think like this not because we are evil; we are stubbornly mute because we were, for a short but profound length of time infants. In other words, for a significant stretch, we were in the odd position that we could not utter a word. Others had to guess what was on our minds. And most &nbsp;importantly, for a while, they more or less got it right. They listened to our crying, they witnessed our angry faces, they saw our outstretched arms; they had a shot at guessing and they got it right. They fetched some milk, they picked up nounou from the floor, they put us on their shoulder and walked us around the living room – and we felt calm and satiated. They were not geniuses at interpersonal understanding, they guessed correctly because it was easy. The things we needed back then were so uncomplicated and so limited: food and drink, clean clothes, sleep, hygiene and reassurance.
+
+![](https://i.pinimg.com/564x/67/2b/ce/672bcea445caef26a6c32f4e882db76c--halloween-photography-photography-collage.jpg)
+
+It is this ancestral memory of successful mind-reading that has the paradoxical effect of making us more isolated and intemperate than we need to be in later life. We keep expecting that a process which unfolded successfully when we were young might continue to occur – even though we have grown infinitely more sophisticated in what we need to be understood for. We don’t just need the milk and a cuddle, we now need people to understand how our diary is looking next week, what the hand we put around them in bed means, how the kitchen should be left, where the towels need to hang, how the document should get back to the NY office, who should have the remote control and how we feel about their mother.
+
+And we want them to know all this not on the basis of careful and slow instructions and eloquent, patient and playful disquisitions, but immediately, just like that, on the basis that they are intelligent and that they care for us. And if they don’t understand, then there might be cause to shout, to accuse them of laziness or a lack of affection or to fire them.
+
+We are terrible communicators because we refuse to accept the dignity, necessity and complexity of the act of communication. We wander the earth with the problems of sophisticated adults insisting on believing that we are as easy to understand as infants.
+
+[![](https://img.youtube.com/vi/kNa4HnKCab4/0.jpg)](https://www.youtube.com/embed/kNa4HnKCab4 '')

@@ -1,0 +1,41 @@
+Chapter .: [Utopia](https://www.theschooloflife.com/thebookoflife/category/work/utopia/): [192. Why Humanity Destroyed Itself](https://www.theschooloflife.com/thebookoflife/why-humanity-destroyed-itself/)
+
+* * *
+
+# Why Humanity Destroyed Itself
+
+One day, if human civilisation ever wipes itself out, aliens or one of our successors will cast an eye on our ruined planet and ask themselves what ever happened to _homo sapiens._ Their answer might look a little like this.
+
+![](http://deerfieldlibrary.org/wp-content/uploads/2015/01/DystopiaMovies_web.jpg)
+
+The root cause won’t be the specific catastrophe, conflict or devastation that eradicates us; the problem will begin with the architecture of the human brain.
+
+This tool will be remembered for being, in part, deeply impressive, containing a 100 billion neurons capable of extraordinary computations and combinations. As aliens will note, a particular part of the mind where our most dazzling thoughts unfolded was known to neuroscientists as the neocortex – a part that in humans was many times larger than that found in any other species. This is what helped the hugely clever ape to produce The Magic Flute, Anna Karenina, Concorde and civilisation.
+
+However, our alien friends will also note that the human mind contained another component, very influential but far less impressive, known as the reptilian brain, an aggressive lustful impulsive section of machinery, with a great deal more in common with what might be found in a hyena or a small rodent.
+
+Because of this reptilian brain, _homo sapiens_ ended up with three grave problems:
+
+– Firstly, tribalism. Humans were always on the verge of developing violent hatreds of foreigners and manifested strong ongoing tendencies to slaughter strangers in vast numbers. They could never reliably see the humanity in all members of their own kind.
+
+– Secondly, _homo sapiens_ was fatefully prone to short-term thinking. Even when confronted by data, it could only imagine the near-term future, a few years at best, viewing the long-term as a chimerical and unreal state. Its immediate impulses were left uncontained and worked to destroy its individual and collective future.
+
+– Lastly, _homo sapiens_ had an especially keen fondness for wishful thinking. Though capable of immense intellectual achievement, its mind hated to reflect on itself, it couldn’t bear to submit its ideas to rational scrutiny, it preferred to act rather than think and daydream rather than plan. Having invented the scientific method, it preferred – in most cases – not to use it. It had a narcotic desire for distraction and fantasy. It didn’t want to know itself.
+
+![](https://qph.ec.quoracdn.net/main-qimg-bf75c4fdec54520822f7373707585bbf-c?convert_to_webp=true)
+
+For many generations, these three flaws were more or less endured. Certain institutions were invented to attenuate them: the law, sound government, education, science. It worked, sort of. Humans kept wiping out swathes of their fellows, but they didn’t scupper the species as a whole. What caused the ultimate destruction was the increasing yet untrammelled power of the neocortex. This mighty tool eventually managed to capture fire, contain the elements, and give _homo sapiens_ a godlike power over the planet – while the animal overall still operated with reflexes as serene and gentle as those of a hyena. The cost of its mistakes grew ever larger, its powers became uncontained while its wisdom remained intermittent and fragile. Eventually, its might outpaced its capacity for self-control; it became a nuclear armed rodent.
+
+There was one thing that might have saved humanity: love, and three varieties of it in particular:
+
+– Firstly, the love of the stranger; the capacity to see the other as like oneself and worthy of the same mercy and charity.
+
+– Secondly, the love of the unborn: the concern for those who do not yet exist and whom one will never know but whose lives one is shaping in the&nbsp;selfish present.
+
+– Thirdly, the love of the truth: the strength to resist illusion and lies and square up to uncomfortable facts of all kinds.
+
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;\*\*
+
+**We don’t need to be aliens of the future to understand all this. We can see the disaster scenario only too well right now. The fate of civilisation lies ultimately not in the law courts, at the ballot box or in the corridors of governments. It lies in our ability to master the most short-term, selfish and violent of our impulses active in the dense folds of organic matter between our ears; it lies in learning how fiercely to compensate for the flawed architecture of our minds.**
+
+[![](https://img.youtube.com/vi/Yk3QsGzAjKI/0.jpg)](https://www.youtube.com/embed/Yk3QsGzAjKI '')

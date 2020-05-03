@@ -1,0 +1,104 @@
+Chapter .: [Literature](https://www.theschooloflife.com/thebookoflife/category/leisure/literature/): [132. Charles Dickens  ](https://www.theschooloflife.com/thebookoflife/charles-dickens/)
+
+* * *
+
+# Charles Dickens &nbsp;
+
+Charles Dickens was the most famous writer in the English language during the nineteenth century and he remains one of the best selling authors of all time.
+
+He can seem remote: the frock coat, velvet collar, the fishtail beard, bow tie…
+
+[![Dickens_Gurney_head](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/Dickens_Gurney_head.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/04/Dickens_Gurney_head.jpg)
+
+But he has a lot to say to us today. And that’s because he had a remarkable ambition: he believed writing could play a big role in fixing the problems of the world.
+
+**Entertainment**
+
+Dickens didn’t just write. From the very beginning, he was a showman. As a child, he loved putting on plays in the family kitchen and singing songs standing on a table in the local pub.
+
+He was a performer – a star, an exceptional showman.
+
+[![655px-Charles_Dickens_sketch_1842](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/655px-Charles_Dickens_sketch_1842.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/04/655px-Charles_Dickens_sketch_1842.jpg)
+
+Often to the dismay of later literary friends, entertainment remained at the heart of the literary enterprise for Dickens. Even after he had secured his reputation as ‘the Inimitable’, he adapted his own novels for public readings and from 1858 took them out to perform himself to audiences in Britain and America. Profound as his works were, he was never any doubt that they were also entertainments.
+
+Dickens is always hoping to get us interested in the evils of an industrialising society – horrendous working conditions in factories, child labour, vicious social snobbery, the degradation of the poor, the reckless scramble for money and the maddening inefficiencies of government bureaucracy… In theory we recognise that these – and their modern versions – are worthy themes. But when we are honest with ourselves,&nbsp;we admit that they don’t sound very inviting as things to read about in a novel in bed or at the airport.
+
+[![33063519_f40dbd9fee_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/33063519_f40dbd9fee_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/04/33063519_f40dbd9fee_z.jpg)
+
+Dickens’s genius discovery was that the big ambitions to educate his society about its failings and to spur social reform didn’t have to be opposed to what his critics called ‘fun’ – racy plots, a chatty style, clownish characters, weepy moments and happy endings. He rejected the idea that we have to make a fatal choice between being worthy but dull or popular but shallow. He set out to educate via entertaining – because he so well understood how easy it is for us individually and collectively to resist certain tricky but important lessons.
+
+Dickens is significant because he was working out – for his own time – how to do something that’s crucial for ours: how to be seductive about serious things.
+
+**Sympathy**
+
+Charles Dickens was born in Portsmouth on February 7 1812. His father was a clerk in the Navy Office; they had to constantly move to follow his different appointments. It was a genteel life at first but there were always money troubles looming. When he was only ten,Dickens had to leave school because his parents could no longer afford the modest fees. He was sent to work in London at a blacking factory where they made polish for giving a dark sheen, much admired at the time, to metal surfaces. It was a grim experience. He hated the fumes and numbing speed with which he had to carry out repetitive tasks; the people he worked around were bullying and sinister.
+
+Then his father was arrested for debt. At that time debtors could be confined to prison, along with their dependents, by their creditors until they they were able to start paying off what they owed. The whole family moved into the squalid Marshalsea Prison, except young Dickens who lodged nearby and continued with his horrible job.
+
+[![643px-Dickens-at-the-Blacking-Warehouse](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/643px-Dickens-at-the-Blacking-Warehouse.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/04/643px-Dickens-at-the-Blacking-Warehouse.jpg)
+
+Part of the continuing popular affection for Dickens comes from his strong sense of the precariousness of life and the deep compassion for those who are its victims. When his life improved (in his early twenties he discovered that he was an outstandingly brilliant journalist), Dickens was very good at remembering his own suffering. He used it in a very clever way. He always put really nice characters into the awful places of Victorian England. The blacking factory is described in _David Copperfield_, through the eyes of young David – who is a sensitive, intelligent, charming child. David is the reader when young, or the reader’s son or nephew. Dickens is saying: imagine someone like you, or someone you like, was in there.
+
+When he writes about Poor Houses (which were local forced labour camps for people unable to support themselves) Dickens sends in little Oliver Twist – who actually belongs to a well to do family from whom he has been separated by a series of tragic accidents. He’s not at all typical of the people who ended up in Poor Houses, but he’s there so his readers (who at that time would be generally quite prosperous) can think: what if it were me?
+
+[![Dickens_dream](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/Dickens_dream.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/04/Dickens_dream.jpg)
+
+On one occasion when Dickens shows us the miseries of a debtor prison, it’s in the company of a loveable buffoon – a rather muddled but very sweet and well meaning man called Mr Micawber. The background, protective assumption that only rather shady types could end up here is punctured.
+
+Dickens was working with a key assumption: of course everyone knew already that there were Poor Houses, horrible working conditions and Debtors’ Prisons: these were obvious facts of early 19th century life in England. The point was that comfortable people – the kind of people who had the power to change things, if they were motivated – generally didn’t feel much sense of urgency. They didn’t feel personally connected to the problems.
+
+[![703px-Charles_Dickens_by_Daniel_Maclise (1)](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/703px-Charles_Dickens_by_Daniel_Maclise-1.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/04/703px-Charles_Dickens_by_Daniel_Maclise-1.jpg)
+
+Dickens used his own experience to get people to feel interested in, and sympathetic to, the plight of others that they’d normally have been emotionally distanced from. He didn’t say: look how awful it is for them; he says: here’s what it would be like for you.
+
+In an ideal world, we’d perhaps care equally about everyone; but, in reality, our concern is much more readily directed towards the misfortunes of people we find likeable. So, if like Dickens, your project is to draw attention to a failure of the system, it’s probably a good strategy that he’s using: get us to like the people who are having a hard time and we’ll start to feel engaged.
+
+**Nice, ordinary things**
+
+The other thing that Dickens did – to keep us on board with his high-minded vision of social reform – was to keep on showing how well he understood the cosy, pleasing, enjoyable things of life. He desperately didn’t want the big causes to come across as meaning you couldn’t keep on liking all the sweet comforts of life. He was particularly good at evoking the pleasures of home. In one of his novels (_Our Mutual Friend_) he take us to the house of a loveable old eccentric who has refashioned his small suburban house as a miniature castle, complete with a tiny drawbridge that can be pulled up (by lengths of twine) to keep the wild world at bay. Dickens loves picnics, games of cricket in the park, going shopping for a new tie, a sizzling chop, doughnuts, sitting by the fire, having friends round for dinner, warm blankets and going on holiday. Being a caring and good person – he is saying – doesn’t mean disdaining the ordinary small pleasures.
+
+[![David_Copperfield,_We_are_disturbed_in_our_cookery](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/David_Copperfield_We_are_disturbed_in_our_cookery.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/04/David_Copperfield_We_are_disturbed_in_our_cookery.jpg)
+
+It’s a key element in his general strategy. He knows that it’s hard to get people to care about difficult things if you don’t start from a deep recognition of what we like already. Otherwise you come across as cold and a bit obsessive.
+
+**Business**
+
+Dickens took the practical, business side of writing very seriously. He was immensely productive. He didn’t have the ideal of producing a single perfect work, polished over many years. He churned out his books. And he was deeply concerned about copyright laws, sales figures and profit margins.
+
+But Dickens didn’t simply want to sell a lot of novels; he wanted to change things in the world; but he knew perfectly well that a book wouldn’t have an effect unless it was in wide circulation – unless the business side was going well.
+
+[![Dickens_by_Watkins_1858](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/Dickens_by_Watkins_1858.png)](http://www.thebookoflife.org/wp-content/uploads/2016/04/Dickens_by_Watkins_1858.png)
+
+His writing draws attention to many things that were going wrong: the Poor Law (which forced people into Work houses); the dreadful state of schools, rampant nepotism, and harsh working conditions. But he wasn’t trying to advocate specific schemes of reform. If you’d asked Dickens what exactly the Government should do to improve the conditions in factories or what a better legal system would look like he wouldn’t have had a carefully worked out alternative policy to hand.
+
+What he was doing was shaping the climate of feeling and opinion. Which makes it much easier for people trying to get an act through parliament, raise funds, or make local improvements. Others can much more readily see the point, the issues move up the mental agenda and feel closer to home.
+
+**\***  **\***  **\***
+
+Dickens was very interested in trying to help the world, and hugely sensitive to the suffering of others. But closer to home things didn’t work out so well. He wasn’t a good husband or father.
+
+He got married in 1837 (when he was in his mid-twenties) to Catherine Hogarth and they had ten children together, eight of whom survived into adulthood. But Dickens increasingly found her dull and passive and when he was in his mid-forties, he fell in love with an 19-year-old actress Ellen Ternan. He couldn’t get divorced – it was completely taboo for a major public figure to take such a step. They separated. His wife left, after twenty years together, and never saw him again.
+
+[![Catherine-dickens-young](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/Catherine-dickens-young.png)](http://www.thebookoflife.org/wp-content/uploads/2016/04/Catherine-dickens-young.png)
+
+##### Catherine Hogarth
+
+Dickens was unimpressed by all of his children, whom he regarded as idle and ever ready to sponge off him. They were prone to drinking too much and to gambling.
+
+He’s a painful reminder of the terrible conflicts that can arise between different kinds of devotion. Dickens was immensely painstaking with his work, he’d stay up as late as needed, he’d think of it first thing in the morning; he’d exhaust himself, he’d use every resource of his imagination to improve it. Yet around his children and his wife he was plodding, conventional and often coldly detached. &nbsp;
+
+[![Ellen_Ternan](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/Ellen_Ternan.gif)](http://www.thebookoflife.org/wp-content/uploads/2016/04/Ellen_Ternan.gif)
+
+##### Ellen Ternan
+
+We could blame him and say he should have been a better partner and father. Or we could feel a touch of pity for the horrible limitation of our nature which makes it hard for us to be very good at two very different kinds of thing at the same time. And hopefully a little of this pity can extend to ourselves, since we are the ones who now actually need it.
+
+On 8 June 1870, when he was 58, Dickens died at home after his usual intense day’s work. He was at the early stages of his fifteenth novel. _The Guardian_ published an obituary the next day:
+
+“Wherever the English language is spoken the intelligence we publish this morning of the decease of Mr Charles Dickens will be received with feelings of deep regret. Early last night it became known that the distinguished novelist had been seized with paralysis, at his residence, Gad’s Hill, Kent.”
+
+Dickens’s power doesn’t lie just in the particular things he wrote. What’s even more impressive is the bigger idea to which he was loyal all his life: that the task of writing, and art more generally, is to make goodness attractive; to make it easier and bearable for us to learn uncomfortable lessons; and to broaden our sympathies by helping us identify with people whose outwards lives may be unlike ours but whose inner lives are not dissimilar – and through this – to create the cultural foundation for a more humane and happier society.
+
+**&nbsp;
+[![](https://img.youtube.com/vi/N9dB9BZWDBU/0.jpg)](https://www.youtube.com/embed/N9dB9BZWDBU '')**

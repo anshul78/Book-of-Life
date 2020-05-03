@@ -1,0 +1,39 @@
+[Chapter 4.Sociability](https://www.theschooloflife.com/thebookoflife/category/sociability/): [Status & Success](https://www.theschooloflife.com/thebookoflife/category/work/status-and-success/): [126. How to Cope with Snobbery](https://www.theschooloflife.com/thebookoflife/how-to-cope-with-snobbery/)
+
+* * *
+
+# How to Cope with Snobbery
+
+Why are we so worried about our careers? Why do we care so much about our reputations?
+
+Partly it’s to do with money of course, but there’s another, more psychological aspect to our fears as well.
+
+[![15316590696_35e4a8fe95_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/08/15316590696_35e4a8fe95_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/08/15316590696_35e4a8fe95_z.jpg)
+
+We worry because we suspect – not wrongly – that the world is full of a frightening sort of person ready to judge us ruthlessly and swiftly: a person we can call a snob.
+
+A snob is anyone who takes a relatively small part of us and uses it to come to a rigid and unbudgeable conclusion about how much of their attention we deserve. In the past, that might have meant a snob being interested in your lineage and royal connections. Nowadays, the snob cares about one thing only: what you do for a living.
+
+[![246303067_86b6fa4301_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/08/246303067_86b6fa4301_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/08/246303067_86b6fa4301_z.jpg)
+
+This explains why the first question we will be asked in any new social context is ‘What do you do?’ and according to how we answer, snobs will either welcome us with broad smiles, or swiftly abandon us by the peanuts.
+
+The opposite of a snob is your mother – not necessarily your mother in particular – but the ideal mother, someone who doesn’t care so much what we have achieved, but about who we are in the broad sense. But most of the world is not like our mothers – and that is why we are fired up by such a desperate urge to achieve and impress.
+
+[![3514487045_9f4ba883fd_o](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/08/3514487045_9f4ba883fd_o.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/08/3514487045_9f4ba883fd_o.jpg)
+
+Sometimes our behaviour is mistaken for greed and vanity, but it is more poignant than this. A lot of our interest in fancy cars, jobs and houses has nothing to do with materialism. It has to do with a hunger for the respect and esteem that is only available in our societies through the acquisition of material goods. It isn’t the goods themselves we seek, it is the love we stand to gain through our possession of them. The next time we see someone driving a Ferrari, we shouldn’t condemn them for their greed, we should pity them for the intensity of their need for love from the world.
+
+At the root of snobbery is a lack of imagination and confidence about how to decide who in the world is valuable. The snob isn’t wrong in their background sense that there are better and worse sorts of people around. They are just brutally misguided and slavish in their beliefs about how the superior individuals can identified. For snobs, it is the already-acclaimed and already successful who are the only ones worthy of respect. There is no room in their timid regimented minds to imagine that someone might be clever, kind or good – and yet somehow have been overlooked entirely by society, their qualities lurking beneath an unfamiliar guise, and having as yet discovered no obvious outlet.
+
+[![175354961_8040ee1591_b](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/08/175354961_8040ee1591_b.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/08/175354961_8040ee1591_b.jpg)
+
+Touchingly, the personal origins of snobbery typically lie in parents who were themselves snobs – and never endowed their offspring with the confidence to judge each new person on their own terms, without reference to social status, income and reputation.
+
+Despite their commitment to surrounding themselves by people of high status, ironically, snobs constantly fail to spot who might one day be feted and applauded. They are misled by the unexpected outward forms that brilliance often takes. Snobs don’t sign up the Beatles, don’t invest in the start-up iteration of Google or Apple, don’t give the time of day to the taxi driver who might one day be the president or the old lady in a woolly hat writing the great novel of the 21st century.
+
+[![4850303363_770c07cac4_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/08/4850303363_770c07cac4_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/08/4850303363_770c07cac4_z.jpg)
+
+The true answer to snobbery is not to say that there is no such thing as a better or worse person, but to insist that better or worse exist in constantly unexpected places and carry none of the outward signs of distinction. And because we are such poor judges of the worth of others, our ultimate duty remains to be kind, good, curious and imaginative about pretty much everyone who ever crosses our path – and that includes ourselves.
+
+[![](https://img.youtube.com/vi/gaii2uvHkpI/0.jpg)](https://www.youtube.com/embed/gaii2uvHkpI '')

@@ -1,0 +1,47 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Growth & Maturity](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/growth-maturity/): [130. You Could Finally Leave School!](https://www.theschooloflife.com/thebookoflife/you-could-finally-leave-school/)
+
+* * *
+
+# You Could Finally Leave School!
+
+Technically, most of us leave school at 18 – an event that tends to be vividly etched in memory and surrounded by considerable ceremony and emotion. And yet, rather oddly, despite appearances, many of us in fact don’t manage to leave school at that point at all. In a deep part of our minds, we may still be there, deep into adulthood, not sitting in a classroom precisely, but in terms of how our minds work, as much stuck within the confines of a school-based world-view as if we were showing up for assembly every day – generating immense and unnecessary degrees of unhappiness and compromise for ourselves in the process.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/05/Jean_Geoffroy_-_En_classe_le_travail_des_petits-e1557393838377.jpg)
+
+Here are some of the hallmarks of an enduring school-like way of thinking:
+
+– First and foremost, a firm belief that those in authority know what they are doing and that one’s task is to obey and jump through the hoops they set for us. A desire to please teachers and gain prizes, cups and ribbons.
+
+– A sense that there is an implicit curriculum out there – an externally mandated map of what one needs to do to succeed – and that a wise person must dutifully subscribe to its demands.
+
+– A feeling that work should – when it’s going well – feel substantially irksome, dull and somewhat pointless. Schools teach us to forget, or ignore, the clues offered to us by our own boredom. They teach us dangerous degrees of patience. They subtly train us in intellectual masochism.
+
+– You’re doing it for someone else; an audience. Your teachers and your parents, and their substitutes in adult life. Make us proud. You have to shine. We’ve given you so much. What matters is the performance, not any inner sense of satisfaction.
+
+– Authority is benign. They want what is good for you and they speak on behalf of your long-term interests. Don’t think you could ever know better; distrust your instincts. We’ll look after you. If you follow our rules, you will thrive.
+
+– The exam (and all its successors) are fundamentally accurate. They, those who know, have worked out the ultimate test of your value. You are what you score.
+
+– Every school is in addition a miniature society – equipped with a strong sense of what values to revere and codes to follow. &nbsp;Bullies lurk, ready to mock and identify any departures from the norm. You can’t escape them; they are next to you in class every day. They will spot and persecute the weirdos; they can ruin your life. You learn to cower and adjust your attitudes. Following the herd is paramount.
+
+All these ways of thinking don’t require us to be sitting in a geography class. We might be in an office selling garden furniture to the Belgian market and thinking like this; we might have children of our own and by all appearances be an adult, and yet still be living inside as though there were ‘exams’ to pass and cups to be won.&nbsp;
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/05/Jean_Geoffroy_-_Dans_lecole.jpg)
+
+What would it mean to break the mold? What would it mean finally to leave school? To know some of the following:
+
+– That there is no one way, no guarantee of one set path to fulfilment laid out by authority figures. ‘They’ don’t know. No one knows.
+
+– The safe path may be entirely dangerous to our flourishing.
+
+– Our boredom is a vital tool. It is telling us what is slowly killing us – and reminding us that time is monstrously short.
+
+– Authority is not by definition benign. The teachers and their substitutes have no real plan for you – except in so far as it suits their own advancement. It looks like they want your supreme good but in reality they want you to play their game for their own benefit. At the end, they have no proper prize to offer you. They’ll give you a colourful card and send you to the golf course and the grave. By living by their standards you’ll have wasted your life.
+
+– It doesn’t matter what the bullies think. No one is normal. You can dare to make enemies; indeed you must do so as the price to pay for having developed a character and found something truly to believe in.
+
+We shouldn’t be tough on ourselves for lingering so long. School is an immensely impressive system. We start there when we are not much bigger than a chair. For more than a decade, it’s all we know, it is the outside world – and is what those who love us most tell us we should respect. It speaks with immense authority not just about itself, but about life in general. It is sold to us as a preparation for the whole of existence. But of course, the main thing it does is to prepare us for yet more school; it is an education in how to thrive within its own profoundly peculiar rules – with only a tenuous connection to the world beyond.
+
+Knowing all this, we might do a very strange-sounding thing, finally work up the courage to leave our inner school, be it at 28, 35 or 62 – and enter the wider boundless world we have been in flight from for too long.
+
+[![](https://img.youtube.com/vi/pJhUs1L_RQo/0.jpg)](https://www.youtube.com/embed/pJhUs1L_RQo '')

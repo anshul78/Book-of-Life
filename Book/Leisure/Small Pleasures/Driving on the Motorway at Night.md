@@ -1,0 +1,39 @@
+[Chapter 6.Leisure](https://www.theschooloflife.com/thebookoflife/category/leisure/): [Small Pleasures](https://www.theschooloflife.com/thebookoflife/category/leisure/small-pleasures/): [197. Driving on the Motorway at Night](https://www.theschooloflife.com/thebookoflife/driving-on-the-motorway-at-night/)
+
+* * *
+
+# Driving on the Motorway at Night
+
+It’s 10:15 pm. Usually, you’d be watching television, pottering in the kitchen in your socks, nibbling a biscuit, thinking about heading to bed. But instead you are behind the wheel, looking at the tail lights of cars comfortably far ahead, with and the occasional head lights slipping by on the other side; a hundred and seventeen miles to go at the last sign.
+
+We feel powerful and purposive. With only a tiny push the car surges forward along the wide, smooth lanes, past an HGV, round an expansive, lightly rising curve and into a long, even stretch under the comfortable pale glow of the road lighting. A blue sign invites others home to Nuneaton, and you feel a ripple of friendly good will to a place you’ve never visited and perhaps never will. &nbsp;&nbsp;
+
+[![5945926844_022ecc5cba_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/5945926844_022ecc5cba_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/5945926844_022ecc5cba_z.jpg)
+
+###### © Chris Jones/Flickr
+
+It’s cosy in the car. Your craft is vigilantly monitoring its own well being: the small lights on the display quietly indicate that all is well with the brake fluid, that the engine is happy with its temperature and that you are currently proceeding at 72 miles an hour. You are pleasantly contained, returned to a mobile womb able to roam safely across the darkened surface of the late-night world. &nbsp;
+
+The pleasure one feels, though, isn’t just to do with the cocooning environment. You are registering another kind of satisfaction as well – connected to what’s going on inside your head. You are experiencing an under-appreciated but important satisfaction that deserves a special name: driving therapy.
+
+[![Drive](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/5578394538_69bb8a0cca_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/5578394538_69bb8a0cca_z.jpg)
+
+###### © Thomas Hawk/Flickr
+
+It’s a strange, disturbing fact that the mind hates thinking. It’s not something we much like admitting. But we’re always dodging, jumping around, putting off turning a suspicion into a developed case, we withdraw from tricky mental confrontations with the failings of our preferred ideas, with troubling evidence. The monks of Buddhism took this difficulty very seriously – and they devised special environments to help themselves overcome these failings. They built remote monasteries and constructed gardens of moss and raked gravel; they investigated whether of special ways of sitting would make a difference.
+
+But they didn’t have cars. Culturally, it’s a long time since we’ve addressed the ideal preconditions for thinking. We deserve to integrate the car as a place for thought. And it’s this pleasure – a pleasure of the mind – that we’re registering as we cruise past the elegant curving exit ramp. &nbsp;
+
+[![59338197_9c1c3f76d8_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/59338197_9c1c3f76d8_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/59338197_9c1c3f76d8_z.jpg)
+
+###### © Timothy Takemoto/Flickr
+
+For thinking, surprisingly, complete stillness is not always the best environment for coaxing the mind towards its best efforts. Often a more helpful set up is quiet plus motion plus something else not too taxing to be done. Driving provides multiple minor routines: checking the rear mirror, micro adjustments on the accelerator, the automatic scanning of the speedometer and the constant interplay of the hands on the wheel and the road ahead. In these circumstances, provided by the car, the nervous, censorious part of the mind is shut off. We’re not so worried in advance about where a line of thought might go. We let the mind drift; helped along by the rhythmical passing of the overhead lamps.
+
+[![14908384223_d79d5fc3ae_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/14908384223_d79d5fc3ae_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/14908384223_d79d5fc3ae_z.jpg)
+
+###### © Paulo Valdivieso/Flickr
+
+It can sound unproductive, but there’s a hidden benefit when the mind wanders around a topic. We get out of mental ruts that are so familiar we don’t even realise they are there. A possibility that gets closed off gets an airing – suppose one has been wrong, what if there’s another strategy; what, in fact, is the big goal one is aiming at, is there one? Perhaps one has been too critical, or too passive? New ways of seeing things come into view. And they do so precisely because we’re not trying too hard. We’re entering the strange and highly useful territory in which we can entertain a thought without rushing quickly to endorse or condemn it – where we can wonder if something might be the case, without reaching too fast to decide. The car at night creates a benign mental climate in which some important thoughts get the chance to grow.
+
+It’s strangely attractive, at night in the middle of a long solo drive, to stop at a service station. Ordinarily that’s got close to zero appeal. But now it’s pleasing to change tempo, to sit silently amongst other human beings and have a coffee. Everyone is really pilgrim, however well disguised they may seem to be. We are still far from home, but it’s a helpful distance – from which we can for a while view more clearly the bigger outlines of existence.

@@ -1,0 +1,57 @@
+[Chapter 2.Work](https://www.theschooloflife.com/thebookoflife/category/work/): [Capitalism](https://www.theschooloflife.com/thebookoflife/category/work/capitalism/): [143. Businesses for Love; Businesses for Money](https://www.theschooloflife.com/thebookoflife/businesses-for-love-businesses-for-money/)
+
+* * *
+
+# Businesses for Love; Businesses for Money
+
+Many of us want to start our own businesses. Public space is filled with reports of new ventures. But the reporting on entrepreneurship is heavily skewed in one particular direction: towards people who have started new _kinds_ of businesses, pioneers who have pushed the boundaries of commerce by creating a wholly original offering, usually through the help of an innovative piece of technology.
+
+The new entrepreneurs might, for example, have invented an app for measuring and controlling the humidity of clothes’ closets, or they might have come up with a tiny sensor that can detect hunger in domestic animals or have built a social platform to connect people planning a trip to Italy.
+
+This emphasis on novelty can leave us feeling that the chief and correct way to become an entrepreneur is invariably going to be through radical, technologically-based innovation. We may therefore, as we contemplate an entrepreneurial future, ask ourselves (with increasing panic) what entirely unthought-of idea we might ourselves come up with to propel us forward. In our frenzy, the answers we arrive at may start to lean towards the implausible, the trite or the naive.
+
+But there is another path. Most of the economy is made up of businesses doing stuff that people have always been doing or have been doing for a very long time: making daily bread or shirts or trousers, teaching languages or giving travellers a bed for the night, raising animals or fixing teeth.
+
+In other words, most businesses operate in areas that economists call ‘mature’, sectors where it’s rather hard to come in and make a surprising fortune. But that doesn’t mean these sectors should be ignored. Far from it; there are a plethora of hugely meaningful possibilities hiding for us in plain sight on account of one, perhaps surprising fact about the economy: _a majority of businesses don’t love what they do._
+
+We might make a basic distinction between two kinds of businesses:
+
+– pragmatic businesses
+
+– businesses of love.
+
+Pragmatic businesses are everywhere. They almost define for us what we think business is in its essence. They know how to make their product or service with a sound degree of competence, but there is a practical, unidealistic edge to the way they go about things. There isn’t anything very powerful drawing them to their particular offering. They might easily have been doing something else. They don’t care about the long-term; the business is only a vehicle for an underlying financial purpose. One eye is always focused on how to sell. If the owners didn’t have to work, they almost certainly wouldn’t.
+
+Such pragmatic businesses may do fine, or even very well, for a long time, but the motivations are easy enough to spot. A discerning eye can tell something crucial within minutes of walking through the door: this is not being done with, or for, love.
+
+Pragmatic businesses dominate the economy. One might say that over 85% of businesses fall into this category.
+
+But there are parts of the economy, and they are heavily in the minority, where things are being done very differently.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/08/14800767114_2aa6788154_z.jpg)
+
+© Flickr/Felix5413
+
+Businesses of love produce many varied things, but there are underlying principles holding them together. Here love means:
+
+– a total commitment to excellence of a given product or service.
+
+– a desire to reinvest almost all profit into guaranteeing excellence.
+
+– a focus on the long-term, because the business is – for its owners – the meaning of life. There is no interest in selling the firm now, or perhaps ever. The dearest wish might be to give it to someone you love, like your child.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/08/15262840391_8ba6d9d1fb_z.jpg)
+
+© Flickr/cskk
+
+– love means you’d almost do it for free – and don’t only because you need to live, you need to pay your employees and you want the business to be able to last into the long term. The product or service is what you love and you love it inordinately.
+
+Businesses of love are the sort where the owner has scoured the world for the best kind of flour and wakes up excitedly at dawn to check on the progress of each of the loaves; the aircraft factory where the workers think of every plane they are building like a relative they will always care for; the stationery shop where notebooks and paper are viewed as objects of beauty rather than utility; the travel agency that won’t rest until it knows it clients have enjoyed their trips rather than just paid for them; the sandwich store that views a fine avocado and chicken roll as one of the authentic joys of a tricky life.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/08/26309919819_9ee79a6bdf_z-copy.jpg)
+
+© Flickr/Marco Verch
+
+Businesses run for love are not always successful in the standard financial sense of the term. Some might just be returning a little over 2% a year. But for these enterprises, money is only ever a means to a greater, more purposeful end.
+
+There are huge opportunities to hand for any would-be entrepreneurs because most of the economy is in the hands of people who don’t love what they are doing. Most law firms, dentists’ offices, hotels and bakeries aren’t in it for love. They may be efficient and canny, but they are – ultimately – just waiting to sell up. We don’t need to be very original to succeed, we don’t need to have invented anything very new; we just need – to make sense of our lives and to make an honest living along the way – to offer the world something we love a little more intensely than most people do.

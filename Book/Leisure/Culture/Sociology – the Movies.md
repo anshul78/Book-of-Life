@@ -1,0 +1,25 @@
+[Chapter 6.Leisure](https://www.theschooloflife.com/thebookoflife/category/leisure/): [Culture](https://www.theschooloflife.com/thebookoflife/category/leisure/culture/): [38. Sociology – the Movies](https://www.theschooloflife.com/thebookoflife/sociology-the-movies/)
+
+* * *
+
+# Sociology – the Movies
+
+Sociology is the academic study of social behaviour, particularly around work, love, class and status. It is – if you like – a form of very deep journalism. Like journalism, sociologists are interested in the way we live now, but unlike journalists, they go into things far more profoundly. Sociology has, in its history, asked such pertinent questions as: Why do people watch so much bad television? What is the relationship between class and cultural taste? Why do people commit suicide? And: why are some cultures individualistic and others more collective?
+
+Here is a selection of our favourite sociologists:
+
+**1. Max Weber**
+
+[![](https://img.youtube.com/vi/ICppFQ6Tabw/0.jpg)](https://www.youtube.com/embed/ICppFQ6Tabw '')
+
+**2. Emile Durkheim&nbsp;**
+
+[![](https://img.youtube.com/vi/z9W0GQvONKc/0.jpg)](https://www.youtube.com/embed/z9W0GQvONKc '')
+
+**3. Theodor Adorno**
+
+[![](https://img.youtube.com/vi/4YGnPgtWhsw/0.jpg)](https://www.youtube.com/embed/4YGnPgtWhsw '')
+
+**4. Alexis De Tocqueville**
+
+[![](https://img.youtube.com/vi/Rzr3AOtFA8o/0.jpg)](https://www.youtube.com/embed/Rzr3AOtFA8o '')

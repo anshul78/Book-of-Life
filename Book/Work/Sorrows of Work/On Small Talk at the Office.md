@@ -1,0 +1,31 @@
+[Chapter 2.Work](https://www.theschooloflife.com/thebookoflife/category/work/): [Sorrows of Work](https://www.theschooloflife.com/thebookoflife/category/work/sorrows-of-work/): [66. On Small Talk at the Office](https://www.theschooloflife.com/thebookoflife/on-small-talk-at-the-office/)
+
+* * *
+
+# On Small Talk at the Office
+
+Some of what makes office life awkward is that it asks us to tread a fine line between being, on the one hand, efficient and focused, and on the other, genial and human. We mustn’t appear robotic but nor should we gush naively in a boundary-less way. This is especially important in relation to a number of stock enquiries that we are likely to face, one of the most inevitable of which is: _Did you have a nice weekend?_ How we handle such a question is a minor but key indicator of how well we have made our peace with the delicate compromises and hypocrisies of professional existence.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/04/Office-Small-Talk-1024x683.jpg)
+
+On the surface, this is exactly the question that you could be asked by a close friend – or your psychotherapist. Chatting in a cafe, or lying on the couch, you might explain that things were not going quite so well with your partner. The painful issue is that you’re not having so much sex any more. You can easily go for three weeks without anyone taking the initiative. This has been leading to a lot of arguments. On Saturday morning, feeling rejected, you picked a fight about how dirty the kitchen was, focusing on the fridge especially. That meant they were resentful about needing to see your friends from Canada in the evening. By Sunday afternoon, you were rethinking your whole relationship, questioning your career, doubting what happened to you in your childhood and wondering – in a way – if life wasn’t essentially a cruel joke, a random painful stretch filled with incompleteness and anxiety. You also had a very bad stomach upset because of a prawn sandwich you had at lunch on the Sunday. _And how was your weekend?_
+
+Evidently, if you were to launch into such a rendition at 9.03am with your genial colleague from sales, you’d soon overstep the limits of their curiosity and goodwill and would be marked down as a garrulous, naive, frightening, depressive egotist. Being professional means, in essence, willingly denying the complexities of human nature.
+
+One response to the tension between the sincere and the professional is to treat small-talk with utter disdain – and give almost nothing away. In response to your enquiry about the weekend, you might look at your colleague as if they had said something highly inappropriate and enquire, with a cold degree of puzzlement: _W__hy do you ask?_ Getting inquisitive about a colleague’s weekend could be framed as a species of sinister inquisitiveness, as if a police officer had asked what you’d been up to on your Saturday afternoon.
+
+Office life does make some peculiar demands on us. We cannot be properly ourselves, but nor can we be entirely faceless either. We may, for example, be asked to attend a meeting with colleagues to discuss the launch date for a new range of garden furniture or to present an analysis of the market for electric toothbrushes in Portugal – topics in which we all have a purely financial interest. We are likely to be a group of almost random strangers of varied ages and backgrounds who have only been temporarily aligned in the determined pursuit of money. But we are nevertheless, in the few minutes before the start of proceedings, called upon to treat each other with a high degree of tolerance, kindness and empathy. We are meant both to care – and not really to care. It’s a dance – and an especially taxing one for those among us who prize sincerity and authenticity. What is going on in someone’s inner world, how their new puppy is getting on or the state of their relationship is neither directly relevant to anything on the agenda – and yet, because these belong to the reality of the participants, nor are they wholly beside the point either. They need to be touched, but not settled, on.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/04/Office-Small-Talk-2-1024x768.jpg)
+
+The question about what sort of weekend one had isn’t purely fake; the asker isn’t just complying with a convention that they regard as ridiculous; they do want to know something. Calibrating the answer well emerges from an understanding of the point of the question.
+
+Your colleague isn’t keen to know the elaborate details of your life outside the office. But just below the surface, small-talk is performing a very important function. It is a tool of orientation. It allows the bare bones of another’s situation to emerge, so that – were it to be necessary – one would know who to call and what guesses to make about someone’s behaviour. It allows for a rough estimate of character, it tells us how attuned someone might be to group dynamics, how they might react in a crisis – and how competitive or trustworthy they could prove. Not least, both the raising and the answering of small-talk signals a mutual commitment to civility within the otherwise chilly bounds of commercial life.
+
+_Pretty good; I was down on the water with some friends. Lovely to get away from it all. And you?_
+
+Modern capitalism has moved work in two contradictory directions. On the one hand, it has made it evident that we’re individuals competing for economic survival in a ruthless and unforgiving environment; on the other hand, it has identified that the psychological well-being and mental health of employees has a minor but critical role to play in the success of every firm.
+
+We shouldn’t resent our colleagues for not being our friends but nor should we (mostly) make the mistake of thinking that they are. We should forgive the world of work for placing us at a tantalising midpoint between the human and the instrumental.
+
+_Do you think you’ll be doing anything nice next weekend?_

@@ -1,0 +1,15 @@
+[Chapter 2.Work](https://www.theschooloflife.com/thebookoflife/category/work/): [Politics & Government](https://www.theschooloflife.com/thebookoflife/category/work/politics-government/): [188. The Fragility of Good Government](https://www.theschooloflife.com/thebookoflife/fragility-of-good-government/)
+
+* * *
+
+# The Fragility of Good Government
+
+It is an enormous and very rare privilege to live in the days of good government. Across nations and centuries, few people have ever done so. By a rare bit of luck, certain groups in a few corners of the globe may taste decades of this remarkable, anomalous blessing. They may even, foolishly (especially if they travel little, seldom read history books or have a very high estimation of their own populations) start&nbsp;to assume it is a natural or god-given norm. Yet the default state of a majority of nations is quite other, it contains strong elements of authoritarianism, bullying, demagoguery, corruption, monopoly, racial segregation and aggression. Civilisation is&nbsp;always an unlikely concept.
+
+![](https://sites.psu.edu/mhammudi/wp-content/uploads/sites/724/2012/09/x __Abbey_in_the_Oak_Forest__ x_by_ninja_magus-1024x655.jpg)
+
+Those who are afraid of political chaos are typically reassured by optimism: all will, eventually, be well, the kindly tell them. But we may benefit from stiffer and darker counsel. We should explore not what may ideally happen (which leaves us oscillating painfully between hope and despair), but what will happen if the worst comes to pass. In the life of nations as much as of individuals, we need to make ourselves entirely at home with catastrophe, looking it squarely in the eye – so as not to keep catching glimpses of it here and there and so taking fright anew every time. We stand to see that whatever comes to pass will still be survivable. Nothing is ever properly unbearable, not least because we always retain access to an&nbsp;escape route. The Stoic philosophers of Ancient Rome, those pour souls agitated beyond compare by the the antics of their hysterical, thin-skinned murderous Emperors, were known to calm themselves down by holding up their veins to the light and calling out ‘Freedom!’ – knowing it could, if it came to that, all be over in minutes.
+
+We shouldn’t be surprised by the human animal: very sweet at points from close up, usually generous to small children and the elderly, hard-working, &nbsp;but highly prone to delusion, tribal, offended by strangers, uninclined to rational analysis and with a fondness for slaughter and reckless messianic plans.&nbsp;
+
+**There’s a natural longing to fix nations quickly and angrily. There’s an equal longing to give up and hide, the counsel of quietism. Neither feels right; neither endurance nor explosion. The only true avenue is to commit ourselves to years of careful, adroit plotting to bring about a renewal of an always&nbsp;implausible dream: a land governed by a spirit, as fragile as crystal, of wisdom and toleration.**

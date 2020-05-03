@@ -1,0 +1,19 @@
+[Chapter 2.Work](https://www.theschooloflife.com/thebookoflife/category/work/): [Status & Success](https://www.theschooloflife.com/thebookoflife/category/work/status-and-success/): [125. The Incumbent Problem](https://www.theschooloflife.com/thebookoflife/the-incumbent-problem/)
+
+* * *
+
+# The Incumbent Problem
+
+The Incumbent Problem refers to the vast, but often overlooked and unfair advantage that all new people, cities and jobs have over existing – or, as we put it, incumbent – ones. The beautiful person glimpsed briefly in the street as we step off the bus, the city visited for a few days of holiday, the job we read about in a few tantalising paragraphs of a magazine; these have unwise tendencies to seem immediately and definitively superior to our current partner, our long-established home and our committed workplace and can inspire us to sudden and (in retrospect sometimes) regrettable divorces, relocations and resignations.
+
+![5641625328_f50d7fbc77_b](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/04/5641625328_f50d7fbc77_b.jpg)
+
+When we spot apparent perfection, we tend to blame our spectacular bad luck for the mediocrity of our lives, without realising that we are mistaking an asymmetry of knowledge for an asymmetry of quality; we are failing to see not that our partner, home and job are especially awful, but that we know them especially well.
+
+Incumbents are the victims of disproportionate knowledge. They are generally no worse than anyone or anything else, but as they are familiar, their every failing has had a chance to be minutely charted.
+
+The corrective to disproportionate knowledge is experience. We need to mine the secret reality of other people and places and so learn that, beneath their charms, they will almost invariably be essentially ‘normal’ in nature: that is, no worse yet no better than the incumbents we already understand.
+
+The solution to the incumbent problem is to extrapolate from what we already know and apply it to what we don’t yet. The most plausible generalisation we can make about unknown things is that they are likely to be closer to what we’ve already experienced than they are to being completely – and bountifully – different.
+
+**We should beware of the injustices we unthinkingly visit upon all the incumbent features and relationships of our lives.**

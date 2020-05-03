@@ -1,0 +1,65 @@
+Chapter .: [Art/Architecture](https://www.theschooloflife.com/thebookoflife/category/leisure/artarchitecture/): [169. Louis Kahn](https://www.theschooloflife.com/thebookoflife/the-great-architects-louis-kahn/)
+
+* * *
+
+# Louis Kahn
+
+For thousands of years, the most common building materials have been stone, brick and wood. They have also been the most charming, ageing beautifully and suggesting a special kind of nobility and strength.
+
+When modernist architecture was born in the early 20th century, traditional materials quickly gave way to the three quintessential modern ingredients: concrete, steel and sheet glass.
+
+The result has in far too many cases appeared brutal, uncaring and alienating. The buildings have not aged well either.
+
+Could modern architects not learn to work with traditional materials while retaining the forms and the spirit of our own times?
+
+This is the question so beautifully answered by one of the greatest of all modernists, the American architect Louis Kahn.
+
+Kahn was born in Russia in 1901 and emigrated with his parents to the US at the age of 3. As a young man he studied architecture at the University of Pennsylvania, but his career truly blossomed in the 1950s after a trip to Rome led him to a new appreciation of the beauty of Roman architecture. Kahn’s major contribution to modern architecture was to include ancient elements in his work without losing the innovation and clarity of modernism. He reminded the Modernists that they could be in dialogue with their most illustrious predecessors.
+
+![Salk_Institute2](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/10/Salk_Institute2.jpg)
+
+##### The Salk Institute for Biological Studies, built in 1960
+
+One symptom of this successful rehabilitation of the old was Kahn’s affection for symmetry, which many modern architects had come to view as authoritarian, unimaginative and conformist. Kahn designed the Salk Institute in La Jolla, California as a complex of buildings, identical on either side of a central fountain – a symmetry characteristic of what is known as the Beaux-Arts style. Kahn was unperturbed by this apparent regression. “If people want to see Beaux-Arts it’s fine with me,” he said. “I’m as interested in good architecture as anybody else.”
+
+Like a city planner for 19th-century Paris or Berlin, Kahn used identical rows of buildings to draw the viewer’s eye to the centre of his design, and out beyond it. The fountain that runs through the centre of the Institute aligns with the path of the sun on both the autumnal and vernal equinox. Kahn used symmetry not as an aesthetic default but with great intentionality, to provide one with a sense of balance, focus, and momentum.
+
+Kahn also managed to create a sense of grandeur in his designs rarely seen in modern architecture. We might gape at the height of a skyscraper, but it rarely instils the sense of awe that a great cathedral does.
+
+![6312400890_1e0bc5768d_b](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/10/6312400890_1e0bc5768d_b.jpg)
+
+##### The Yale Centre for British Art, built in New Haven, Connecticut in 1969
+
+Kahn managed to reintroduce a feeling of magnificence into modern works. In the Yale Centre for British Art, he draws the viewer’s eyes upward to the high windowed ceiling, much as though it were the dome of a church.
+
+Even the staircases create a sense of lofty space and height.
+
+Rather than resorting only to steel, concrete, and glass, Kahn regularly sought out a wide variety of older and more sensory materials. He worked with the best consultants to find new uses for ceramic, copper and especially brick.
+
+[![tumblr_lxlkgr6G3k1qat99uo1_r1_1280](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/11/tumblr_lxlkgr6G3k1qat99uo1_r1_1280.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/11/tumblr_lxlkgr6G3k1qat99uo1_r1_1280.jpg)
+
+##### A striking combination of wood and concrete in the Phillips Exeter Academy Library, built in 1965 in Exeter, New Hampshire
+
+Kahn liked cleverly to juxtapose older and newer materials – like oak with concrete. We tend to associate oak with tradition – Victorian smoking rooms and solemn libraries – while concrete reminds us of impersonal factories and remote, futuristic buildings. But put together, the two mediums demonstrate strikingly different, yet remarkably complementary virtues. The wood gives off a feeling of warmth and domesticity while concrete provides a sense of strength and stability. The combination subtly promises a reconciliation between the old and the new and between comfort and security.
+
+[![louiskhan7](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/11/louiskhan7.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/11/louiskhan7.jpg)
+
+##### Wooden shelves and warm beige concrete in The Esherick House in Philadelphia
+
+Kahn was drawn to the idea of making buildings that would feel like monuments – at a time when most modern architects firmly rejected monuments as both authoritarian and sentimental. In 1938 the architectural critic Lewis Mumford had declared, “if it is a monument it is not modern; if it is modern it cannot be a monument.” But Kahn rather liked the feeling of authority – and was confident enough in his democratic credentials not to mind borrowing from some of the moves of more dictatorial regimes. After his important trip to Rome, he wrote, “I finally realise that the architecture of Italy will remain as the inspirational source of the works of the future…those who don’t see it that way ought to look again. Our stuff looks tiny compared to it.”
+
+[![Sangshad Bhaban](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/11/5936038912_e7a109d48d_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/11/5936038912_e7a109d48d_z.jpg)
+
+##### National Parliament House, Dhaka, Bangladesh
+
+His most substantial building was perhaps the National Assembly in Dhaka, Bangladesh. Though recognisably modern, it also seems in some ways eternal in its massiveness, evoking memories of&nbsp;cathedrals, the great mosques and even the pyramids.
+
+Many of Kahn’s buildings feel luxurious – &nbsp;but this isn’t the luxury of glitz or gold of an oil rich kingdom, rather the luxury of buildings that aspire to still be around in 600 years time; a luxury of eternity. The Kimbell Art Museum in Texas uses travertine marble, white oak and concrete arranged in three 100-foot bays, each fronted by an open, barrel-vaulted portico. It’s possibly the most beautiful building in the world.
+
+![1167px-Kimbell_Art_Museum_Highsmith](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/10/1167px-Kimbell_Art_Museum_Highsmith.jpg)
+
+##### The Kimbell Arts Museum built in 1972
+
+When Kahn died in 1974, he was the most famous architect in the United States, and he remains deeply influential to this day.
+
+**His ultimate importance lay in his ability to transcend dogmatic modernism and return the best elements of traditional architecture to their rightful place in the canon. He reminds us that the real goal of buildings isn’t so much to shock, dazzle or confuse – as to be the equals of the venerable buildings we have long loved in the ancient world.**

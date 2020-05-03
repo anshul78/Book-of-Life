@@ -1,0 +1,29 @@
+[Chapter 2.Work](https://www.theschooloflife.com/thebookoflife/category/work/): [Media & Technology](https://www.theschooloflife.com/thebookoflife/category/work/media-and-technology/): [178. On Health News](https://www.theschooloflife.com/thebookoflife/eating-seven-portions-of-fruit-and-vegetables-a-day-will-kill-you/)
+
+* * *
+
+# On Health News
+
+While most of its energy is devoted to briefing us about the gruesome ways in which various people have recently blown up or bled to death in a brutal stabbing, in the area known as ‘health news’, the media takes on a very different project. Here it constantly collects information to assist us in the task of living for a very long time – or possibly even, though it doesn’t ever come out and say this directly, forever.
+
+Recently, we have been told – by scientists (always ‘scientists’) – that eating seven portions of fruit and vegetables a day will hugely prolong our lives. Cranberries are now far healthier than was ever thought. Bananas continue to attract the admiration of ‘scientists.’
+
+[![2409582661_22387a9d53_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/10/2409582661_22387a9d53_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/10/2409582661_22387a9d53_z.jpg)
+
+###### © Flickr/muammerokumus
+
+Scientists! Those magical beings permanently poised to alter the nature of reality, busy inventing microscopic robots that will travel through our veins; synthesising drugs to regulate our moods; mapping our genes; cloning our organs and limbs and reassessing the life-and-death-giving nature of everyday foodstuffs.
+
+To live in modern times is constantly to be reminded that thanks to science, a golden land is on the horizon. This is partly why we must keep checking the news in the first place. We might hear that death has been abolished.
+
+![PM-020414-fruitB](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/09/PM-020414-fruitB.jpg)
+
+##### Religious art never lets you forget that death is lurking beside your ripe peach
+
+Of course, one day, in 800 years time, it will be. But it will be a little late for you and me. And an extra plate of grapes and peas won’t help. The end of the story is written in stone. Religions used to be less squeamish here. They used to talk a lot about death, then place the task of preparing us for it at the heart of their collective missions. They were generous about our need for consolation and comfort in relation to something which no scientist was about to abolish.
+
+Modern news is harsher. It keeps making us hopeful about science without letting us accept the inevitability of where we are all heading. It doesn’t talk with any honesty about final things, it merely keeps drawing our attention, with deranged zeal, to the newly discovered anticarcinogenic properties of blueberries, courgettes and cassava.
+
+[![6847256827_46508967a0_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/10/6847256827_46508967a0_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/10/6847256827_46508967a0_z.jpg)
+
+###### © Flickr/Laura Billings

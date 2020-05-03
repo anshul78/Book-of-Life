@@ -1,0 +1,19 @@
+[Chapter 4.Sociability](https://www.theschooloflife.com/thebookoflife/category/sociability/): [Social Virtues](https://www.theschooloflife.com/thebookoflife/category/sociability/social-virtues/): [18. Charity of Interpretation](https://www.theschooloflife.com/thebookoflife/charity-of-interpretation/)
+
+* * *
+
+# Charity of Interpretation
+
+At its most basic, charity means: giving someone something they need but can’t get for themselves. Normally this is understood to mean something material. We overwhelmingly associate charity with giving money.
+
+![](https://img.posterlounge.co.uk/images/wbig/poster-die-mantelspende-des-hl-franziskus-391389.jpg)
+
+But, at its core, charity goes far beyond finance. It is about the interpretation of motives. It involves seeing that another person’s bad behaviour is not a sign of wickedness or sin, but is a result of suffering.
+
+The psychologically charitable feel inwardly ‘fortunate’ enough to be able come forward with explanations of others’ misdeeds – their impatience or over-ambition, rashness or&nbsp;rage – that take attenuating circumstances into account. They generate a picture of who another person might be that can make them seem more than simply mean or mad.
+
+![](http://www.growingyourbaby.com/wp-content/uploads/2012/09/12179361_s.jpg)
+
+In financial matters, charity tends always to flow in one direction. The philanthropist may be very generous, but they normally stay rich; they are habitually the giver rather than the recipient. But in our relationships with others more broadly, the need for charity is unlikely ever to end up being one-sided, for we all stand in need of constant and shifting generosity of interpretation.
+
+We are never far from requiring help in explaining to the world why we are not quite as awful as we seem.

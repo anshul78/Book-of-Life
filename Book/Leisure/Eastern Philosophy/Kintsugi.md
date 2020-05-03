@@ -1,0 +1,27 @@
+Chapter .: [Eastern Philosophy](https://www.theschooloflife.com/thebookoflife/category/leisure/eastern-philosophy/): [100. Kintsugi](https://www.theschooloflife.com/thebookoflife/kintsugi-2/)
+
+* * *
+
+# Kintsugi
+
+Though we may keep a little quiet about this, especially when we’re young, we tend deep down to be rather hopeful that we will – eventually – manage to find perfection in a number of areas. We dream of one day securing an ideally harmonious relationship, deeply fulfilling work, a happy family life and the respect of others. But life has a habit of dealing us a range of blows – and leaving nothing much of this array of fine dreams save some shattered and worthless fragments.
+
+It’s at moments of disillusion that we might turn our minds to a concept drawn from Japanese philosophy, and in particular, from the Zen Buddhist approach to ceramics. Over the centuries, Zen masters developed an argument that pots, cups and bowls that had become damaged shouldn’t simply be neglected or thrown away. They should continue to attract our respect and attention and be repaired with enormous care – this process symbolising a reconciliation with the flaws and accidents of time, reinforcing some big underlying themes of Zen.&nbsp;The word given to this tradition of ceramic repair is _kintsugi_:
+
+**Kin = golden**
+
+**tsugi = joinery**
+
+It means, literally, ‘to join with gold’. In Zen aesthetics, the broken pieces of an accidentally-smashed pot should be carefully picked up, reassembled and then glued together with lacquer inflected with a very luxuriant gold powder. There should be no attempt to disguise the damage, the point is to render the fault-lines beautiful and strong. The precious veins of gold are there to emphasise that breaks have a philosophically-rich merit all of their own.
+
+**[![Kintsugi-bowl-honurushi-number-32](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/01/Kintsugi-bowl-honurushi-number-32.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/01/Kintsugi-bowl-honurushi-number-32.jpg)**
+
+The origins of Kintsugi are said to date to the Muromachi period, when the Shogon of Japan, Ashikaga Yoshimitsu (1358-1408) broke his favourite tea bowl and, distraught, sent it to be repaired in China. But on its return, he was horrified by the ugly metal staples that had been used to join the broken pieces, and charged his craftsmen with devising a more appropriate solution. What they came up with was a method that didn’t disguise the damage, but made something properly artful out of it.
+
+Kintsugi belongs to the Zen ideals of _wabi sabi_, which cherishes what is simple, unpretentious and aged – especially if it has a rustic or weathered quality. A story is told of one of the great proponents of _wabi sabi_, Sen no Rikyu (1522-99). On a journey through southern Japan, he was once invited to a dinner by a&nbsp;host who thought he would be impressed by an elaborate and expensive antique tea jar that he had bought from China. But Rikyu didn’t even seem to notice this item and instead spent his time chatting and admiring a branch swaying in the breeze outside. In despair at this lack of interest, once Rikyu had left, the devastated host smashed the jar to pieces and retired to his room. But the other guests more wisely gathered the fragments and stuck them together through kintsugi. When Rikyu next came to visit, the philosopher turned to the repaired jar and, with a knowing smile, exclaimed: ‘Now it is magnificent’. &nbsp;
+
+![](http://kintsugigifts.com/img/products/bowl0107.jpg)
+
+In an age that worships youth, perfection and the new, the art of kintsugi retains a particular wisdom – as applicable to our own lives as it is to a broken tea cup. The care and love expended on the shattered pots should lend us the confidence to respect what is damaged and scarred, vulnerable and imperfect – starting with ourselves and those around us.
+
+[![](https://img.youtube.com/vi/EBUTQkaSSTY/0.jpg)](https://www.youtube.com/embed/EBUTQkaSSTY '')
