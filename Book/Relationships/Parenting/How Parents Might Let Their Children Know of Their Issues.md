@@ -1,0 +1,59 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Parenting](https://www.theschooloflife.com/thebookoflife/category/relationships/parenting/): [228. How Parents Might Let Their Children Know of Their Issues](https://www.theschooloflife.com/thebookoflife/how-parents-might-let-their-children-know-of-their-issues/)
+
+* * *
+
+# How Parents Might Let Their Children Know of Their Issues
+
+For much of the modern era, the story of becoming an adult has been told to us as one of psychological liberation: people will notice – as they grow up – how many of their difficulties, especially around love and work, can be traced back to inadequacies in their childhoods. They will realise, for example, how much their low self-esteem owes to their relationship with a withholding mother or how much of their timidity at work can be traced back to an over-anxious father. Slowly they will develop their full potential by reflecting on what happened and by untangling the past with the help of friends, diaries and, most importantly, the minds of kind and well-trained psychotherapists.&nbsp;
+
+This story, though powerful, tends to miss out on a crucial stage: what happens when these victims of childhood become – one day – parents themselves. While the conversation typically revolves around the hardships suffered by vulnerable small people, relatively little is said about what these former children might do when they take on the mantle of parenthood in turn. How might they fare with the momentous responsibilities that their parents mishandled? How might they ensure that their own children do not have to suffer from another cycle of psychological mishap? How might they avoid passing on their ‘issues’?
+
+<figure class="aligncenter is-resized"><img src="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/04/T03080_10-753x1024.jpg" alt="" class="wp-image-24333" width="430" height="584" srcset="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/04/T03080_10-753x1024.jpg 753w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/04/T03080_10-221x300.jpg 221w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/04/T03080_10-768x1044.jpg 768w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/04/T03080_10.jpg 1130w" sizes="(max-width: 430px) 100vw, 430px"></figure>
+
+It is helpful to be categorical and unsentimental on this score: there is no option not to pass on some of one’s issues; there is no way of parenting that does not inflict some form of psychological damage on children. The most psychotherapised person in the world will not be able to avoid generating neuroses; there is no such thing as a blameless parent. Above the door of the nursery, the most mature couple should still hang a sign: _We love you – but we will give you issues._
+
+Once this idea is established, the conversation can shift. It is no longer a matter of claiming to avoid damage altogether but of doing one’s best to mitigate it. The onus is on the parent to understand their issues in good time and to be able to give thoughtful, self-observant rejoinders to the question which every decent parent should be ready to answer long before buying a pregnancy test: how are you mad?&nbsp;
+
+There should not be thought to be anything insulting or unusual in this enquiry; it is a precondition of being human that we are a priori mad. However, the way our minds work can shield us from an accurate awareness of quite how and in what areas we might be so – information that is crucial in softening the damage. In order to kickstart our awareness, we might undertake a small exercise to try to evoke for ourselves some of the many ways in which we are disturbed and likely to mess up the lives of those we adore beyond measure.
+
+**POSSIBLE PARENTAL ISSUES**
+
+– I might be so traumatised by the memory of harshness and arbitrary commands, that I might be unable to set boundaries or say ‘no’ when I should.
+
+– I might alternate between great relaxedness and sudden fury which could bewilder a sensitive child.
+
+– I might be unable to prevent the enormous anxiety which I feel at work and in my soul from spilling over into family life.
+
+– I might – because of a hugely introverted nature – be unable to participate regularly and intensely in family activities as I would like to.
+
+– I might, because of certain sexual compulsions, be unable to play the role of the reliable family man or woman.
+
+– I might, because of deficiencies in my current relationship, overinvest in my child and thereby prevent them from developing healthily.
+
+– I might because of my fragilities, lead a child to need to take care of me emotionally in a way that could prompt them to become responsible far too early.
+
+– I might because of my envy and resentment at the way I’ve been treated in life give my child a sense that the world is an unwelcoming place they should fear.
+
+– I might feel jealous of my child’s success.
+
+– I might be drawn to have a favourite and play one off against the other.
+
+– I might get appalled by a child’s vulnerability and tell them, far too young, to grow up and stop whining.
+
+– I might have difficulty with a particular gender of child – because of my experiences with that sex.
+
+– I won’t be able to stay sane around mess and noise.
+
+– I might take it personally if they weren’t sufficiently impressive at school.
+
+This is only a start, there could – naturally – be so much else to discover. The crucial point is to know that one has a large number of issues and that their effect is likely to be powerful.
+
+The next step is to share the information – in the least dramatic way possible – with its likely victims as soon as they are in a position to understand. It is a huge drawback for a child if their parent is over-interested in promoting a facade of sanity and psychological competence. In the interests of maintaining troop morale, many a parent will feel under pressure to put up a good show – especially in the early years, framing themselves as always sane, inevitably calm, perpetually smiley and invariably on top of things. But in order properly to assist children with their mental well-being, it would be far more helpful if these parents could shake off their pride and gently hint at how they were in fact less than perfectly formed. It is an enormous privilege to receive advanced knowledge of one’s parent’s neuroses from the parents themselves, especially if the information is imparted with self-deprecating humour in a very unalarmed and unalarming style.
+
+This child won’t subsequently have to spend a few decades on the therapist’s couch trying to work out whether and how their parent was disturbed. The information will have been freely and intelligently shared a long time before.&nbsp;
+
+Parents often like to explain – and children to hear about – where a family originated: where granddad was born, who grandma married the first time, what dad did after finishing school and so on. To these external movements, one might think of adding a psychological layer, explaining the patterns of emotional inheritance. A child might then be able to give a friend in the playground or an interested adult a handy summary of the issues their parents were afflicted by:
+
+_Mummy’s father was quite depressed and that means she’s found it hard to trust men, but eventually daddy came along and got her to relax – but still she’s quite independent-minded and likes to be alone for ages – and that leads them to conflicts. Daddy had a very distant mother and judgemental father (maybe that’s why he picked mum!). It makes him pretty anxious and on a bad day prone to shouting. It also makes him a bit fussy about me and cloying and always hovering around, like he wants everything to go right for me to compensate for what went badly for him. That’s also probably why I tell him to go away a lot quite fiercely._
+
+The greatest available form of sanity isn’t to lack issues, but to be willing to understand and admit to them. The more one knows them, the less likely one is to have to play them out – or encase them in a layer of denial. It is a huge source of relief to children to grow up in a family where issues are discussed with as little embarrassment as one might a sore back or a headache; it should be as customary to hear an adult complaining about their anxiety as about their bad toe, or about their feeling of low self-esteem as about their worries about politics. Far from creating a child who will be fussy or susceptible, one will be modelling how to foster a self-aware, relaxed, undefensive relationship to psychological difficulties. Being able to share issues belongs to a slow pattern of progress whereby humans learn to come to terms with their vulnerability, to stop pretending they are gods, and to accept themselves with well-founded humility as only intermittently rational apes; our real glory lies in finally being able to accept our true nature.

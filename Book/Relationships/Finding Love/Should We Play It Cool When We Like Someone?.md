@@ -1,0 +1,33 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Finding Love](https://www.theschooloflife.com/thebookoflife/category/relationships/finding-love/): [18. Should We Play It Cool When We Like Someone?](https://www.theschooloflife.com/thebookoflife/should-we-play-it-cool-when-we-like-someone/)
+
+* * *
+
+# Should We Play It Cool When We Like Someone?
+
+One of the paradoxes of the dating game is that we know that by coming across as enthusiastic at an early stage – if we ring them the next day, if we are open about how attractive we find them, if we suggest meeting them again very soon – we are putting ourselves at a high risk of disgusting the very person we would so like to get to know better.
+
+It is in order to counter this risk that, early on in our dating lives we are taught by well-meaning friends to adopt a facade of indifference. We become experts at deliberately not phoning or sending messages, at treating our dates in a carefully off-hand manner and in subtly pretending we don’t much care if we never cross their paths again – while privately pining and longing. We are told that the only way to get them to care about us is to pretend not to care for them. And, in the process, we waste a lot of time, we may lose them altogether and we have to suffer the indignity of denying that we feel a desire that should never have been associated with shame in the first place.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/08/7885056216_65c7cf5e2e_z.jpg)
+
+© Flickr/Petra Bensted
+
+But we can find a way out of the conundrum by drilling deeper into the philosophy that underpins the well-flagged danger of being overly eager. Why is detachment so often recommended? Why are we in essence not meant to call too soon?
+
+High levels of enthusiasm are generally not recommended for one central reason: because they have been equated with what is a true psychological problem: manic dependence. In other words, calling too soon has become a symbol of weakness, desperation and the inability to deal adequately with life’s challenges without the constant support of a lover whose real identity the manically keen party doesn’t much care about because their underlying priority is to ensure that they are never alone without someone, rather than with any one being in particular.
+
+But we should note that what is ultimately the problem is manic dependence, not high enthusiasm. The difficulty is that our cultural narratives have unfairly glued these two elements together with an unnecessarily strong and unbudging kind of adhesive.
+
+Yet, there should logically be an option to disentangle the two strands: that is, to be able to reveal high enthusiasm and, at the same time, not thereby to imply manic dependence. There should be an option to appear at once very keen and very sane.
+
+The ability to do so depends on a little known emotional art to which we seldom have recourse or introduction: _strong vulnerability_. The strongly vulnerable person is a diplomat of the emotions who manages carefully to unite on the one hand self-confidence and independence and on the other, a capacity for closeness, self-revelation and honesty. It is a balancing act. The strongly vulnerable know how to confess with authority to a sense of feeling small. They can sound in control even while revealing that they have an impression of being lost. They can talk as adults about their childlike dimensions. They can be unfrightening at the same time as admitting to their own fears. And they can tell us of their immense desire for us while simultaneously leaving us under the impression that they could well survive a frank rejection. They would love to build a life with us, they imply, but they could very quickly and adroitly find something else to do if that didn’t sound like fun from our side.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/08/8685962293_e0500d9d14_z.jpg)
+
+© Flickr/Pedro Ribeiro Simões
+
+In the way that the strongly vulnerable speak of their desire for us, we sense a beguiling mixture of candour and independence. They don’t need to play it cool because they have found a way of carrying off high enthusiasm which sidesteps the dangers it has traditionally and nefariously been associated with.
+
+What is offputting is never in fact that someone likes us; what is frightening is that they seem in danger of having no options other than us, of not being able to survive without us. Manic dependence, not enthusiasm has only ever been the problem. With this distinction in mind, we should learn to tell those we like that we’re really extremely keen to see them again, perhaps as early as tomorrow night, and find them exceptionally marvellous – while simultaneously leaving them in no doubt that we could, if the answer were no, without trouble and at high speed, find some equally enchanting people to play with and be bewitched by.
+
+[![](https://img.youtube.com/vi/vWy3C38U7Lw/0.jpg)](https://www.youtube.com/embed/vWy3C38U7Lw '')

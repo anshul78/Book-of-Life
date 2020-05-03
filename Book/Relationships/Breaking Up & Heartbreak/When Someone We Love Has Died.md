@@ -1,0 +1,53 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Breaking Up & Heartbreak](https://www.theschooloflife.com/thebookoflife/category/relationships/breaking-up-heartbreak/): [181. When Someone We Love Has Died](https://www.theschooloflife.com/thebookoflife/when-someone-we-love-has-died/)
+
+* * *
+
+# When Someone We Love Has Died
+
+_Someone we loved so much has died. It can be hard to know where to turn. For religions, dying was regarded as an essential, immensely important, part of existence; it was supposed to happen at a time appointed by God or by fate. It was not an embarrassing or despair-inducing end point, it was a transformation: the soul would continue its life in another form or in another place. Those who died had only ‘departed’ and lived on elsewhere. Perhaps after our own death, our souls would be reunited with theirs._
+
+_By contrast, in modernity, death cannot help but come across as an insult. It is a fundamental rebuke to meritocracy, progress, technology and individualism; it is a failure of independence. Modernity has prolonged our lives but it has also taken away the consolations that religion used to offer at their inevitable terminations._
+
+_Here is a set of thoughts we might turn over in our minds to soften our grief and accompany our tears:_
+
+**The Surreal Nature of Death**
+
+Death is at once the strangest and most normal thing that can happen in a life. A beloved of infinitely complex consciousness no longer exists; atoms arranged in an inexorably unique sequence are now forever dispersed. The moment seems like a rebuke to everything we are and hope for; it is contrary to all the stability and continuity we crave – but it was preordained from the moment of birth. Nothing fundamentally heinous has happened. There was never going to be another way – and they knew it, as we do. The death feels so wrong but death is written into the contract of existence. What has happened is an outrage and at the same time the fulfilment of a basic pledge we all undertook at the moment of our birth. It is life, not death, that is the anomaly. Death is our one great common destiny, the event from which all our love and compassion flows. We miss them so much.
+
+**The Legitimacy of Grief**
+
+We are, and will be going forward, under subtle pressure to get over what has happened. It will be suggested that we move on, that we put things in perspective, that we understand what had to be.
+
+There is no need for this. We will never ‘get over’ our loss in any simple way. We won’t ever forget or naively ‘recover’ – and we don’t have to. Our ongoing grief is simply the price we pay for having loved. One day, very far from now, the memory of what has happened will still be capable of striking us with its full devastating force, as if we had only just received the news. We won’t ever be able to put it behind us conclusively – and shouldn’t expect to. Death is not something we should ever rightly want to overcome. Love is in this sense eternal. Mourning does not have to have an endpoint. We can bear that this loss will never leave us.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/07/Princess_Beatrice_mourning.jpg)
+
+**Gratitude**
+
+They would be moved by our tears. They would be saddened by our sadness. They would want us to miss them – and, at the same time, they would hope for their memory not simply to be a source of pain. They would hope for us to remember that behind, and prior to, this pain, there was joy, tenderness, fascination, insight, loyalty and moments of sheer fun. They would want us to endure. They would not want us to feel that we couldn’t survive without them, though they would be so touched by the present conviction that we can’t.
+
+**Ambivalence**
+
+We can feel an acute pressure to speak well of the dead; we want above all to express our love and respect. But we can admit without any guilt that the dead are no different from the living: they were as we are, beautifully flawed and fascinatingly complicated. Our relationship to them had ambiguous sides. Of course it did. There were frustrations and disappointments; misunderstandings that couldn’t be put right; resentments and anxieties and tantalising hopes that were never quite fulfilled. Our relationship to them was like this, because this is the nature of all human loves. It’s not a denial of love because love involves closeness and closeness is necessarily intricate. Love reaches out to encompass the whole of someone’s being and the whole is of indescribable multiplicity. Ambivalence isn’t a refusal of love, it is a consequence of the profoundest kind of love. Love doesn’t involve saying someone is perfect; it involves deploying deep and ongoing imagination and generosity when trying to understand them.
+
+**Regrets**
+
+We may feel we didn’t always love them as we now we wish we had. There were things we didn’t do, or things we wish we hadn’t done; things we’d change, if only we could.
+
+We do not have to worry. We treated them as living beings, and this is what they would ultimately have wanted and expected. Most of what we needed to say made its way to them indirectly. We didn’t have to put it explicitly into words at a pivotal moment. They knew or guessed. They didn’t say everything either. It’s how human relations function: we do not have to spell everything out, because we do so much of the work in our own minds. They knew enough that we cared and why, at points, there were difficulties. They understood that there was sufficient love; it’s why we’re thinking of them now.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/07/780px-Marie_Louise_of_Orl%C3%A9ans_Queen_of_Spain_lying_in_state_1689_by_Sebasti%C3%A1n_Mu%C3%B1oz.jpg)
+
+**Immortality**
+
+The moment when someone dies is not when their body ceases to exist, but when the last person whose life was touched by them dies. On this basis, they have so long still left to live. They continue to survive within us. The conversation with them goes on without end in our own minds. They will be us through many things that have not yet happened, through so many dilemmas, joys and sorrows to come. We will take them into our confidences. We will hear their voice completely clearly – and they will advise and console us. Death cannot rob us of this. They live inside us now.
+
+**At Peace**
+
+Our love can do strange things. It can produce fears that the one we’ve lost might be feeling abandoned, might be in pain somewhere, might be feeling alone and dejected; that we are currently letting them down or failing to look after them. We mustn’t worry. They are not unhappy. They are properly at peace. They don’t need us now. They don’t blame us for anything. They are not angry with us. We cannot hurt or disappoint them. They do not resent us for being alive. It may be frightening to die; it is not frightening to be dead. They are at peace.
+
+**Endurance**
+
+We will never forget them, but we will live, tomorrow and the next day. This is not ingratitude or callousness. It is loyal to the values we shared with them. We can live on and still be faithful to everything they meant for us. It’s not an attack on love to endure and to love again. Love wants what’s good for the other; love wants there to be more love. They will follow us through the rest of our lives. No one can separate us from them.
+
+We miss them so much – and yet they are still here.

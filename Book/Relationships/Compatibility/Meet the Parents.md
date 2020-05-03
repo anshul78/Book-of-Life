@@ -1,0 +1,11 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Compatibility](https://www.theschooloflife.com/thebookoflife/category/relationships/compatibility/): [62. Meet the Parents](https://www.theschooloflife.com/thebookoflife/meet-the-parents/)
+
+* * *
+
+# Meet the Parents
+
+[![536477321_215da3cc22_b](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/03/536477321_215da3cc22_b1.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/03/536477321_215da3cc22_b1.jpg)
+
+It’s often excruciating introducing a new partner to our parents. But look at it from their point of view: they are being nothing less than usurped. So go easy on them.
+
+[![](https://img.youtube.com/vi/pp0PUY7cpGY/0.jpg)](https://www.youtube.com/embed/pp0PUY7cpGY '')

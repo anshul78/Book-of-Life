@@ -1,0 +1,75 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Conflicts](https://www.theschooloflife.com/thebookoflife/category/relationships/conflicts/): [108. A History of Arguments](https://www.theschooloflife.com/thebookoflife/a-history-of-arguments/)
+
+* * *
+
+# A History of Arguments
+
+An average couple will have between 30 and 50 significant arguments a year: ‘significant’ meaning an encounter which departs sharply from civilised norms of dialogue, would be uncomfortable to film and show friends and might involve screaming, rolled eyes, histrionic accusations, slammed doors and liberal uses of terms like arsehole and knobhead.
+
+Given the intensity of the distress that arguments cause us, we could expect modern societies to have learnt to devote a great deal of attention and resources to understanding why they happen, how we might safely defuse or untangle them and how we could better address the contentions that aggravate them. We might expect there to be school and university courses on how to handle arguments successfully and official targets for reducing their incidence (with news bulletins anxiously reporting that the argument-index had risen 1.7% in the last quarter and the opposition demanding resignations from the imposing Ministry of Arguments).
+
+But there are some strong reasons for our collective avoidance. The first is that our Romantic culture sentimentally implies that there might be some necessary connection between true passion and a fiery temper. It can seem as if fighting and hurling insults might be signs, not of immaturity and a woeful incapacity for self-control, but of an admirable intensity of desire and a touching strength of commitment.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/09/640px-William_Quiller_Orchardson_-_The_first_cloud_-_Google_Art_Project.jpg)
+
+Romanticism also conspires to suggest that arguments might be part of the natural weather of relationships and could never therefore be fairly analysed through reason or dismantled with logic. Only a pedant would seek to _think_ through an argument – as opposed to letting it run its sometimes troubling but ultimately always necessary course.
+
+At a more intimate level, it may be that we cannot quite face what arguments show us about ourselves; they present an unbearable insult to our self love. The viciousness, self-pity and pettiness on display are repulsive once the argument is over; we artfully pretend to ourselves and our partners that what happened last night must have been a peculiar aberration, best passed over in silence from the calmer perspective of dawn.
+
+We are further stymied in our investigations because there is so little public evidence that what occurs in our unions might in some way unfold in everyone else’s as well. Out of shame and a desire to seem normal, we collectively shield each other from the reality of relationships – and then imagine that our behaviour must be uniquely savage and childish and therefore incapable of redemption or analysis. We miss out on a chance to improve because we take ourselves to be the mad exceptions.
+
+None of this need be the case. We argue badly and regularly principally because we lack an education in how to teach others who we are. Beneath the surface of almost every argument lies a forlorn attempt by two people to get the other to see, acknowledge and respond to their emotional reality and sense of justice. Beyond the invective is a longing that a partner should witness, understand and endorse some crucial element of their own experience.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/09/at-father-lathuille-1879.jpgLarge.jpg)
+
+The tragedy of every sorry argument is that it is constructed around a horrific mismatch between the _message_ we so badly want to send (‘I need you to love me, know me, agree with me’) and the manner in which we are able to deliver it (with impatient accusations, put-downs, sarcasm, exaggerated gesticulations and forceful ‘fuck yous’).
+
+A bad argument is a failed endeavour to communicate which perversely renders the underlying message we seek to convey ever less visible. It is our very desperation which undermines us and ushers in the unreasonableness that prevents whatever point we lay claim to from making its way across. We argue in an ugly way because – in our times of distress – we lose access to all better methods of explaining our fears, frustrated hopes, needs, concerns, excitements and convictions. And we do so principally because we are so scared that we may have ruined our lives by being in a relationship with someone who cannot seem to fathom the inner movements of our souls; we would do things so much better if only we cared a little less.
+
+We don’t – therefore – end up in bitter arguments because we are fundamentally brutish or resolutely demented but because we are at once so invested and yet so incapable. It is the untutored force of our wish to communicate that impedes our steady ability to do so.
+
+And yet, though arguments may be destructive, avoiding points of conflict isn’t straightforwardly the answer either. An argument is about something – and its content needs eventually to be faced up to if a relationship is to survive. The priority is not so much to avoid points of contention as to learn to handle them in less counterproductively vindictive and more gently strategic ways. It seems we may need a lot help in order to acquire the complex art of converting our more poisonous arguments into moments of effective and compassionate dialogue.
+
+\*\*
+
+Arguing in relationships is, privately, so familiar to us that it can feel like an eternal constant of the human condition. But there is a significant historical dimension to our propensity to fight – and to our style of doing so. We should investigate the history and future of arguments.
+
+_– Cairo, Egypt, 1550 BC_
+
+Couples in Ancient Egypt are no strangers to frustrations but the way in which these are handled reflect assumptions that will appear standard around the world before the modern period (and the dawn of what we can term the era of arguments in the 19th century). Far from engaging in lengthy or passionate discussion, husbands are encouraged to shut down conflict through dogmatic command and, at points, physical force. A statute from the time recommends that a wife who disagrees with her husband should be sequestered in a pit or a large earthenware jar for a time in order to restore harmony to the household.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/09/Cleopatra_and_Caesar_by_Jean-Leon-Gerome.jpg)
+
+_– Athens, Greece, 380BC_
+
+The philosopher Socrates develops a reputation for being highly unusual in his way of life, not least because he is known to have many long and often contentious discussions with his wife Xanthippe. When asked why a wise man couldn’t simply render his wife obedient through brute authority, Socrates replies that conflictual conversation with a spouse will provide a philosopher with a vital education in the arts of persuasion and dialogue. The answer sounds highly weird to its first audiences.
+
+_– London, England, February, 1542_
+
+Henry VIII of England and his fifth wife, Catherine Howard, are in marital difficulties. Catherine has been conducting an affair with a courtier and with her private secretary – and Henry is furious. But rather than argue about this, he simply issues orders to have Catherine beheaded outside the Tower of London. From the scaffold, she makes a short speech in which she describes her punishment as ‘worthy and just’.
+
+_– Paris, France, October 1833_
+
+The English philosopher John Stuart Mill and the feminist author Harriet Taylor meet in a small left bank hotel and begin a love affair guided by a radically new set of ideas about how relationships between men and women might go. Both Mill and Taylor are committed to what becomes known as companionable love, a relationship marked by mutual respect and friendship, and to even-tempered dialogue as the way to resolve the tensions. Taylor will lately compliment Mill by saying that he was one of the only men she had ever known who knew how to speak to a woman as if she might be as intelligent as he was.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/09/J_S_Mill_and_H_Taylor.jpg)
+
+But however noble the sentiments, most couples do not manage to emulate Taylor’s and Mill’s unusually dignified relationship. Indeed, the principles of modern marriage manage – paradoxically – radically to increase the opportunity for conflict and complex disagreement for these relationships require two people to undertake a huge range of tasks – wholly in common and with thorough mutual consent – that in the past would have been split into exclusive and discussion-free spheres. They must now jointly reach decisions on what kind of rug might be nice for the parlour, what to do on Sunday afternoon, whose parents to have Christmas with, where to send a child to school, how to serve soup and how much weight either of them might lose.
+
+Relationships come to be guided by a Romantic vision of harmonised souls. People don’t merely want the reluctant acquiescence of a partner, they want them spontaneously to see and respond to the world in exactly the same way as they do: to share their sense of humour, to like a novel for the same reasons, to participate enthusiastically in the intricacies of their erotic imagination, to be aligned with their economic attitudes and to agree with them about interior design and the right time to go to bed. Unsurprisingly, divorce rates skyrocket.
+
+_– New York, United States, 1935_
+
+Married physicians Hannah and Abraham Stone begin to offer relationship counselling to distressed couples who find themselves unable to communicate effectively. They condense many of their learnings into a bestselling book&nbsp;_A Marriage Manual_ which, among other pieces of advice, recommends that couples learn not to utter dogmatic negative assertions about what their partner is ‘really’ like – and stick instead to explaining how the other makes them _feel_. We will make much more progress by saying, for example, ‘You make me _feel_ as if I don’t matter to you in any way’ rather than resorting to the more global and defining: ‘You are a selfish jerk.’
+
+_– Messenia, Greece, August 2012_
+
+Actors Ethan Hawke and Julie Delpy star in Richard Linklater’s film _Before Midnight_, a study of a couple in crisis. The film becomes famous for a twenty minute argument scene set in a Greek hotel, one of the longest and most fiery disputes in modern cinema, during which Hawke and Delpy trade vicious insults, shout, slam doors and seethe with awesome cold fury at one another. The fractiousness on screen displays, with rare honesty, what a great many couples around the world know only too well from their own lives. People may be committed to companionable marriage and civilised dialogue but most of them still have little idea how practically to enact such things.
+
+_– Intergalactic Space Station, somewhere near Jupiter, 2200_
+
+Couples still face many of the same challenges as they did in the era of arguments initiated in the 19th century. They still have to make tricky joint decisions (about when to hail a rocket or download their brain) and they still seek to convey the subtle truths of their feelings, desires, fears and needs – but they don’t now get enraged or snide, and don’t shout or slam space station doors. They feel agitation, but they deal with it via techniques of _therapeutic diplomacy_ taught to them over long years of schooling and regularly refreshed via their embedded mind chips. They have been taught how arguments start, how to drain them of their force, how deftly to transmit important truths and how to strive to see a situation through another’s eyes. There is a good deal less desperation and a lot less swearing in our gravity-less robot-vacuumed homes.
+
+\*\*\*\*
+
+For most of human history, couples haven’t fought: one person has simply asserted their will and shut the other person down. We are living in a far more hopeful age that trusts in equality and dialogue. And yet we have only taken the first steps towards knowing how to handle disagreement and conflict in mature and intelligent ways. We have learnt how to hope for love in our relationships; the task ahead of us is to cope more wisely and resourcefully with the moments of hate.

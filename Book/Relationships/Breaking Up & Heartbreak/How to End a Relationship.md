@@ -1,0 +1,29 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Breaking Up & Heartbreak](https://www.theschooloflife.com/thebookoflife/category/relationships/breaking-up-heartbreak/): [193. How to End a Relationship](https://www.theschooloflife.com/thebookoflife/how-to-end-a-relationship/)
+
+* * *
+
+# How to End a Relationship
+
+It’s a skill that’s just as important, but far less studied, than knowing how to start things off. We’re typically appalling at it. We mumble, we delay, we become strange, we hedge…
+
+And there’s one reason we make such a mess of it. It’s not that we’re inept or dumb or cruel. _It’s that we’re trying to be kind_. That is the origin of all our ineptness, stupidity and cruelty.
+
+[![13692588273_e00e3dfdbb_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/03/13692588273_e00e3dfdbb_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/03/13692588273_e00e3dfdbb_z.jpg)
+
+We hesitate to be cold and try to be nice because we are sentimental. The essence of sentimentality is wanting to be liked, even by those _you_ don’t like and can no longer be bothered with. It’s a narcissistic longing to continue to receive the emotion of love without wanting to pay for it.
+
+But kindness has no role whatsoever to play at the charred end of relationships. Being sweet and understanding merely prolongs the torture for the other person. If we are being so tender, is it really possible that we truly mean the dark things we are ostensibly saying? Could we be so loving and at the same time, calling it a day?
+
+[![8168816416_c09faff962_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/03/8168816416_c09faff962_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/03/8168816416_c09faff962_z.jpg)
+
+We need above all to kill hope. But instead, too often, we waffle. Marcel Proust wisely observed: ‘At the end of a relationship, it is the one who is not in love who makes the tender speeches.’ Parting lovers may end up in the grotesque situation of one person crying because they are being left, and the other crying because of the distress that announcing the departure has caused them – tears that are mistaken by the abandoned party for signs of care.
+
+The kindest way to end a relationship is to make extremely brutal speeches – of a sort that will leave the other person in no doubt at all that you’re not an especially nice person. The truly courageous way to leave is to allow yourself to be hated by someone who loves you.
+
+[![2566019950_a0d4f4f9b1_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/03/2566019950_a0d4f4f9b1_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/03/2566019950_a0d4f4f9b1_z.jpg)
+
+There’s no excuse for delay. Don’t imagine that you’re doing someone a favour by dragging out how long they can persist in the benign illusion that you want them. Their real priority is to stop wasting their lives. Don’t imagine that they won’t ever find anyone else like you: they may believe it now and might even sweetly tell you so. But they won’t believe it when they finally understand who you are. Real kindness means getting out – even though the holiday has been booked and it will be terribly awkward to tell everyone at this late stage.
+
+**There’s nothing at all wrong with deciding someone isn’t for you. There is something very wrong with ruining large chunks of someone else’s life while you squeamishly and sentimentally hesitate to get out of the way.**
+
+[![](https://img.youtube.com/vi/VPXIzJcfAMk/0.jpg)](https://www.youtube.com/embed/VPXIzJcfAMk '')

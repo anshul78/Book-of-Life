@@ -1,0 +1,27 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Mature Love](https://www.theschooloflife.com/thebookoflife/category/relationships/mature-love/): [139. If We're All Bad at Love, Shouldn't We Change Our Definition of Normality?](https://www.theschooloflife.com/thebookoflife/if-were-all-mad-shouldnt-we-change-our-definition-of-sanity/)
+
+* * *
+
+# If We’re All Bad at Love, Shouldn’t We Change Our Definition of Normality?
+
+Every year, all around the world, millions of couples are forced to recognise – with considerable guilt – that they are emotionally defective. Despite what they would ardently wish, they do not measure up to prevailing ideas of how one should be and feel in a relationship. So, two by two, or perhaps one by one, they file into therapists’ offices, meditation centers, love addiction groups, sexual clinics and other headquarters for the management of the mind – to correct what they have been told are their emotionally defective characters, in the hope of one day being able to rejoin the ranks of the romantically healthy and normal.
+
+![Image result for 19th love art](https://s5.favim.com/orig/71/19th-century-art-autumn-couple-Favim.com-665507.jpg)
+
+There are two topics in particular which almost all of us fail at within relationships: _sexuality_ and _intimacy_. The modern world requires very particular things of us in these areas, and entry requirements are specific and arduous. When it comes to sexuality, we have to find someone we deeply love, and then want to have penetrative sex with them – and only them – for the next fifty years. To the left and right of this ideal lie all kinds of well-defined pathologies: not wanting sex very much; wanting sex a lot; wanting sex with people other than the partner; preferring sex via porn; requiring only cuddles, or cuddles from one partner and then more emotionally-indifferent sex from a stranger.
+
+When it comes to intimacy, the rules are equally strict. We should not want excessive closeness; that smacks of neediness or weakness. But nor should we want excessive distance; that’s indicative of coldness or defensiveness. We shouldn’t want to spend too much time with our friends, nor seek to travel too far without our partner. We must not sleep on our own. But nor should we want to cuddle and hold tight for more than a prescribed period.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/05/George_Elgar_Hicks_-_The_Return_Home.jpg)
+
+Almost everyone finds, after a few months together, that they hit on a major problem in the field of either sex or intimacy. The discovery is accompanied by considerable shame; it feels like we must be one of the very few who have a sexually or emotionally incongruous relationship. We must be the only ones who sometimes find porn more interesting than sex or who’d like to cling more tightly to the partner than is allowed. Sure that we have been singled out and uniquely cursed by an emotional malfunction, we take ourselves off – with heads bowed – to the garage of love.
+
+But looked at another way, perhaps the faults are not all our own. We have set up a collective ideal which at least 90% of modern couples cannot reach. The ideal is in many ways profoundly beautiful and indicative of maturity, but when it fails us on this sort of scale, it should not be immune to examination. We could well reframe a lot of our so-called problems in ways that would lay some of the blame on our ideals themselves.
+
+Imagine if we were prepared to think that it was really extremely unlikely that a couple could or should maintain sexual excitement over 50 years. Imagine if we recognised that love and sex could belong together, but could also, without anyone being mentally ill, drift apart. Imagine if we could countenance that being very close to someone is properly challenging for some of us who are not bad people but who are more naturally oriented towards independence and self-exploration. Imagine if we questioned the wisdom of expecting that we should get everything from a single person over a lifetime; that we should live in a small apartment and raise 2 children in cramped conditions, working all the time, cut off from friends and family and collective support and identity – and that this could really meet all our desires for community, curiosity and togetherness.
+
+Imagine allowing ourselves to feel how normal it is to be unhappy in relation to the strange ideals we’ve set ourselves – and daring to look out for different ways to be without feeling we are bad for doing so, ways that are more flexible, truer to the vagaries of desire, more attuned to our longing to live in groups or forge our own path…
+
+Imagine if we didn’t permanently have to feel bad for failing at a test we didn’t consciously agree to sit – and whose premises are at best questionable and at worst, naive and punitive.
+
+We are almost all of us now characterised as emotionally defective but we are so only in relation to an idea of being normal which – when we can stop blaming ourselves – is surely ripe for a little questioning and nuance.

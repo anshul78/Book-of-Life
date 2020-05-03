@@ -1,0 +1,50 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Compatibility](https://www.theschooloflife.com/thebookoflife/category/relationships/compatibility/): [38. 6 Reasons We Choose Badly in Love](https://www.theschooloflife.com/thebookoflife/6-reasons-we-choose-badly-in-love/)
+
+* * *
+
+# 6 Reasons We Choose Badly in Love
+
+The fastest, easiest and most inadvertent technique for messing up one’s life remains that of getting into a serious relationship with the wrong person: with very little effort, and without any innate taste for catastrophe, one can end up – by middle age or earlier – contemplating wholesale financial ruin, loss of parental rights, social opprobrium, homelessness, nervous exhaustion and shattered esteem, to begin a lengthy list of harrowing side-effects.&nbsp;
+
+It may be rather fun, and in a way sweet, to watch couples on their early dates, in their fine garb, downing cocktails, while outside on a mild summer evening, boats sail by and music drifts in. But it’s in essence like witnessing a toddler playing with a loaded rifle or ceramic steak knife.
+
+<figure class="aligncenter is-resized"><img src="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/07/1360px-Degas_A_Woman_Seated_beside_a_Vase_of_Flowers_Madame_Paul_Valpin%C3%A7on-1024x813.jpg" alt="" class="wp-image-23501" width="574" height="455"></figure>
+
+To choose a partner is the most important job interview we are ever asked carry out. Around half of us get it very wrong, not because we are inept, but because we are wounded. We might think that there would be a minimum of training and some hazard lights to guide us. But our dedication to public safety ends squarely at the door of our dating interviews. We’re supposed to need to be left strictly alone to follow our (misfiring) instincts. Out of some peculiar fear of infringing on our liberties, we are abandoned to make our own beautiful disasters, generation after generation, without drawing the slightest benefit from the sufferings and late-life realisations of others. And therefore, with horrifying predictability, the most cautious types routinely come adrift without discerning the multiple cataclysms they are incubating – and which may take a good two decades fully to come to light.&nbsp;
+
+What, above all else, clouds our judgement is something we have scarce control over and are seldom granted the opportunity to explore in sufficient depth: our childhoods, and more particularly, our messed up childhoods, for the single greatest predictor of unhappy adult love is, in a process that layers misery upon misery, simply and squarely our miserable time at the hands of significant others in our early lives. It’s expecting too much to think that one might have been substantially unloved or troubled as children and then grow up to make any sort of reasonable or successful choices in our adult years. The best we could aim for is a live appreciation that our instincts are liable to be profoundly unreliable guides to our future contentment – which might inspire a commitment to getting someone else, a wise impartial judge, to check and help us with our homework.
+
+This is some of what happens when our interviewing capacities have taken a hit:
+
+_1. We can’t sift_
+
+What singles out the emotionally damaged from the more robustly healthy is not their involvement with mad candidates, these are everywhere and are often irresistibly delightful on the outside, it is their propensity for being unable to spot the problems in due time and extricate themselves with the requisite ruthlessness and decisiveness. Above all, a difficult childhood inducts us into getting interminably stuck.
+
+_2. We aren’t a friend to ourselves_
+
+The reason for the stuckness is hugely poignant: that we don’t like ourselves very much. Therefore, when someone blows hot and cold, lets us down, plays games with our minds, makes and then routinely tramples on promises, denies us tenderness and swears they won’t do that nasty thing to us again and then promptly does, our first, second and hundredth impulse is never simply to up sticks and leave. Our tendency is to wonder what we might have done to provoke the problem, whether there is something that we have misunderstood and whether we might learn to be more skifull in not upsetting them going forward. Our past gives us a touching but ultimately disastrous tendency to think against ourselves – and give an unnatural degree of credit to the other. It might take us a decade to make a simple realisation that someone else could have reached in an evening: that they’re not worth it.&nbsp;
+
+<figure class="aligncenter is-resized"><img src="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/07/1223px-Degas_-_Das_Ehepaar_Manet-1024x904.jpg" alt="" class="wp-image-23502" width="575" height="508"></figure>
+
+_3. We can’t disappoint anyone_
+
+Looking after ourselves requires a rare skill: a capacity – at selective moments – to disappoint another person in the name of our own protection. To remain sane, we may have to say no to a party, decline a friend’s suggestion, swerve an invitation – and in love, upset someone else substantially – even when they have, in many areas been kind to us. To someone who doesn’t possess a full tank of inner love, how dare one turn down the love of another, even if it comes wrapped in tricky or poisonous elements? How, given who one is, dare one make someone else cry?
+
+_4. We hope too much_
+
+Children who grow up in the company of difficult adults cannot change or get rid of their care givers. From a position of impotence, they settle on doing one thing extremely well: hoping against hope that these adults will magically change and learn to be kind. If they just hold on long enough, and are sufficiently polite and compliant, then the difficult adult will take mercy and alter. These suffering souls then take their misguided patience out into their adult relationships, with similarly negligible results. They are barred from a crucial insight: that health at points involves a lively capacity for giving up on certain people.
+
+_5. We are overly scared of being alone_
+
+Our readiness to exit an unsatisfying relationship is partly a measure of our confidence that being on our own will be bearable and open us up to future, more gratifying partners. On both scores, an unhappy regard for oneself will continuously undermine our reasonable expectations. Who else would have us and, worse, how could it be pleasant for any decent person to spend time nurturing someone like us? How much better to watch our best hopes crash helplessly against the shores of our current partner’s obdurate and quietly or even unconsciously sadistic personality?
+
+_6. We find kindness ‘boring’_
+
+A troubled past will make us unusually unforgiving towards genuine kindness when it comes along. Nice people feel instinctively, boring, unsexy, queasiness-inducing and eerie. We may be unable to quite put a finger on what feels wrong with our very kind date. We may say there was no chemistry or that our interests don’t align. But if we were able to know ourselves better, what we would express would sound a lot stranger: that certain candidates feel wrong because we know they will be unable to inflict upon us the sort of suffering that we’ve grown up to feel is essential to our sense of feeling loved. They are wrong because they threaten to be kind.
+
+\*\*
+
+In a better arranged society, there would be instruction in the art of love-interviews from an early age – and a process of vetting at least as strict as that applied to learner drivers. We would not be left to crash our lives without some prior help and counsel. For now, many of us should at least be aware of the extent to which our impulses will be profoundly misleading when the early years were filled with suffering. We shouldn’t blame ourselves, just accept that we need to learn how to do a very unfamiliar and for us rather extraordinary thing: treat ourselves well.
+
+[![](https://img.youtube.com/vi/rBRDaQTuBO8/0.jpg)](https://www.youtube.com/embed/rBRDaQTuBO8 '')
+&nbsp;&nbsp;  

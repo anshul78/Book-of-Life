@@ -1,0 +1,51 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Affairs](https://www.theschooloflife.com/thebookoflife/category/relationships/affairs/): [212. What Does It Take To Be Good at Affairs?](https://www.theschooloflife.com/thebookoflife/what-does-it-take-to-be-good-at-affairs/)
+
+* * *
+
+# What Does It Take To Be Good at Affairs?
+
+Affairs are not for everyone. Though we might imagine that all of us might one day be embroiled in one through impulse, they require a set of skills that not all of us possess. It is by asking ourselves what we might need to be good at in order to succeed at affairs (and by implication why we might fail dismally at them) that we stand to gain important knowledge of what powers and guides infidelity and who among us would best be advised to give affairs a go:
+
+_The Art of Feeling Misunderstood_
+
+A fundamental prerequisite for being good at affairs is a mastery of the art of feeling misunderstood: a proclivity for believing that our partner has failed to appreciate important things about us and that the hurt could never be set right through generous and in-depth conversations. The skilled adulterer must additionally be a master of the neighbouring art of believing that ‘the other should have known’, that the partner who has apparently let them down should more readily have understood them (perhaps without them even needing to speak) and has reneged on an implicit duty to provide them with constant consolation and well-being. Good adulterers need to be, in their primary relationships, in their own way, very idealistic.
+
+_The Marriages of Others_
+
+Good adulterers know that other couples are not suffering quite so badly. Not for most marriages the strained conversations, the boring evenings and the fractious holidays they know so well from their own lives. Other people are having fun, their behaviour at dinner promises as much. Other spouses are kinder and more inclined to want sex; they don’t argue in the car or sulk through the weekend. It is evident that a special curse, which stands to be corrected, has been visited on them.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/09/Eugene_de_Blaas_-_The_Seamstress.jpg)
+
+_Compartmentalisation_
+
+Affairs require an advanced ability to handle diverging moods and emotional atmospheres. One minute, we are caressing our lover’s backside and experimenting with a sexual implement; the next we are outside the school gates, waiting to ask our child how geography went this afternoon. We need to be able to sit through dinner with our in-laws and have the confidence that none of our thoughts are leaking out of our heads or are legible on our brows. We need mental strongboxes and bunkers.
+
+_Deception_
+
+Good adulterers have to know how to keep an unflinching and resolute face while spinning an entirely fantastical account of what they were up to on the weekend in Argentina or at the conference in Hanoi. They have to be able to find an immediate answer to who they were typing to just now on the phone. They may have only minutes to explain who they were with in a fish restaurant downtown at lunchtime. It helps in all this if one can, albeit only momentarily, actually believe the lie that one is telling, if one can untether oneself from the normal tyranny of facts and properly identify with the phantasm one has weaved. To be convincing, one needs to imagine with particular clarity that it really was an aunt one was with in the restaurant and that one’s phone really did run out of batteries on the weekend. Adulterers momentarily know that they really do have a dog and that it really did eat the homework.
+
+_Self-justification_
+
+The good adulterer knows how to keep the score – and remind themselves why, though this is obviously not very _nice_, it is not at all unwarranted either. They are in the end allowed to do this because the other ruined the holiday last year, because they rarely listen, because they seldom initiate, because they were short-tempered when the children were small, have often refused to listen to their views on politics and once threw away a favourite book or coat of theirs. Successful adulterers have learnt the art of feeling innocent and compassionate for themselves – and of not letting empathy or alternative perspectives get in the way of their plans for comeuppance.
+
+_Steady Nerves_
+
+The partner’s reaction can never entirely be predicted. There might be a sudden call to the lawyers; nosey neighbours; the involvement of social media; a ruinous divorce; gossip at work; or damage that spreads to the children… The adulterous have heard all the risks. They also know that the ice caps might melt and nuclear warheads may fall into the hands of terrorists. But they are robust enough to concentrate on what generally happens, not on what could occur in extremis. They hear the police siren in the street outside as they lie exhausted after coitus next to their lover – and don’t worry that it might be on its way to see them.
+
+_Boredom_
+
+Affairs are, if nothing else, profoundly exciting. They will – therefore – be of particular appeal to the bored, to people whose working lives feel very routine, who are beset by a sense of staleness and who aren’t deriving any significant pleasure from friends, from travel, from art and from their own minds. They are of particular interest to those who lack imagination.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/09/Barabas_Miklos_-_Flirtation_1841.jpg)
+
+_Pre-Romantics_
+
+Romanticism was a movement in the arts that spread rapidly and overwhelmingly through European, and then global, civilization in the period after 1750. But there still remain a few redoubts that battle its philosophy, a few strongholds against the belief that good marriages have to involve exclusive degrees of love and sexual interest, a few places where an older aristocratic mindset still reigns and allows for an un-anguished separation between one’s duties to the family on the one hand and one’s commitment to erotic pleasure on the other. Here and there, in apartments in the Ile de France or villas in the plains of Lombardy, it is possible to leave a dinner with one’s spouse and children and – without compunction – take a scooter to the other side of town to rejoin one’s lover in a rented apartment. One is thereby following tradition no less dutifully than if one took up an honorary mayoral post – or honoured the community with a gift at harvest time.
+
+_Those counting the days_
+
+People particularly aware of their own impending physical decline may grow powerfully less concerned with the consequences of their actions on the lives of others. Death strengthens the soul against the pull of excessive guilt and compassion. Panicked by the ticking of the clock, the mortally-aware grab their pleasures where they still can. Death renders them more courageous about pushing themselves forward. They will ask for the phone number and suggest lunch or the trip to Vienna. They are especially sensitive to the nubility of flesh and the fall and cut of garments. They can be haunted by the sight of a small tattoo or a nose ring and remain infinitely generous towards immaturities of mind where these coexist with a grace of form. They are too worried and too sad to leave this particular kind of pleasure alone; they need to embrace it with manic energy as a defence against the terrors of disintegration and the onset of night.
+
+\*
+
+Some of us are in no way ideologically opposed to affairs. The idea may appeal hugely. And yet, in the course of pursuing them, we may discover that we have no real stomach for what they entail. We may find out – while unexpectedly unnerved at the start of a lie, or visited by guilty nausea in the playground – that we lack the temperament for them; that affairs are a skill and that, much to our regret and that of our fledgling lover, we may simply lack the talent to pull them off successfully.

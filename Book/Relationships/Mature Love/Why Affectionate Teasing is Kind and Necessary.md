@@ -1,0 +1,37 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Mature Love](https://www.theschooloflife.com/thebookoflife/category/relationships/mature-love/): [152. Why Affectionate Teasing is Kind and Necessary](https://www.theschooloflife.com/thebookoflife/why-affectionate-teasing-is-kind-and-necessary/)
+
+* * *
+
+# Why Affectionate Teasing is Kind and Necessary
+
+It may not seem like it, but teasing done with affection and skill is a profound human accomplishment.
+
+There’s nasty teasing, of course – in which we pick away at a sore spot in someone’s life. But we’re talking here of the affectionate version, something generous and loving – which feels good to be on the receiving end of.
+
+[![5925227531_aca0c8fc96_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/10/5925227531_aca0c8fc96_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/10/5925227531_aca0c8fc96_z.jpg)
+
+It may be lovely to be teased when, for example, you’re a teenager and in a grumpy, sullen mood, and your kindly dad nicknames you Hamlet, Shakespeare’s Danish prince of gloom.
+
+Or when you’re 45 and pretty serious in business and your old university friends come around and call you by that name they made up for you aged 19, the night you failed dismally trying to pick up a German girl who was in town.
+
+**[![6284824842_31204e91de_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/10/6284824842_31204e91de_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/10/6284824842_31204e91de_z.jpg)**
+
+All of us get a bit unbalanced in one way or another: too serious, too gloomy, too jokey. And so we all benefit from being tugged back towards a healthier mean. The good-teaser latches onto and responds to our distinctive imbalances and gets compassionately constructive about trying to change us: not by delivering a stern lesson, but by helping us to notice our excesses and laugh at them. We sense the teaser trying to give us a useful little shove in a good (and secretly welcome) direction and therefore know that, at its affectionate best, teasing is at once sweet and constructive.
+
+The English literary critic Cyril Connolly once famously said: _Imprisoned in every fat man a thin man is wildly signalling to be let out._
+
+[![10987950676_756bf56271_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/10/10987950676_756bf56271_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/10/10987950676_756bf56271_z.jpg)
+
+It’s a general idea with multiple variants: inside the fussy, over formal individual there’s a more relaxed person looking for an opening; there’s an ambitious, eager self quietly despairing within the lazy man; the gloomy, disenchanted cynic harbours a more cheery, sunny sub-self in need of more recognition.
+
+The teasing remark speaks over the head of the dominant aspect to the subordinated side of the self, whom it helps to release and relax.
+
+There’s a moment in _The Line of Beauty_ – a novel by Alan Hollinghurst, set in the 1980s – in which Nick, the charming young central character, is invited to a grand party and meets the British Prime minister, Margaret Thatcher. Everyone is slightly terrified of her, but Nick warmly and teasingly suggests she might like to dance to a pop song. The other guests are horrified – she’s meant to be obsessed by stringent economic reform and hard-nosed politics – but after a brief inner struggle, she replies with a smile: ‘You know, I’d like that very much.’ (Perhaps if, in reality, there had been more people to tease her, the pop-loving, dancing side of Mrs Thatcher might have played a greater role in national affairs – and history would have been different).
+
+[![15332081937_aae0956c9d_k](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/10/15332081937_aae0956c9d_k.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/10/15332081937_aae0956c9d_k.jpg)
+
+When we enjoy being warmly teased, it’s because the teasing remark emerges from a genuine insight into who we are. This person has studied us and put their finger on a struggle that’s going on in us; they’ve taken the part of a nice – but currently under-supported – side of who we are. It’s pleasing because normally others don’t see much past the front we put on for the world. Typically, the world just thinks we are gloomy, or stern, or intellectual, or obsessed by fashion. The teaser does us the favour of recognising that the dominant front isn’t telling the whole story; they’re kind enough and perceptive enough to see past the surface.
+
+Perhaps the most instructive question we can ask – the one that teaches us most about the value of affectionate teasing – is simply: what do I need to be teased about?
+
+[![](https://img.youtube.com/vi/U6n3Hz3jDik/0.jpg)](https://www.youtube.com/embed/U6n3Hz3jDik '')

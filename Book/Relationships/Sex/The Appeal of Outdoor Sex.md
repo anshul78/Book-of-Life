@@ -1,0 +1,31 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Sex](https://www.theschooloflife.com/thebookoflife/category/relationships/sex/): [77. The Appeal of Outdoor Sex](https://www.theschooloflife.com/thebookoflife/the-appeal-of-outdoor-sex/)
+
+* * *
+
+# The Appeal of Outdoor Sex
+
+For a lot of people, the idea of having sex outside is a big turn on. Why should that be, given how awkward, scratchy, sandy or muddy it can be on a beach, halfway up a hillside or in the shady bushes of a park – compared with the comfort of cotton sheets and a sprung mattress?
+
+[![3057487771_d7318e7bdd_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/12/3057487771_d7318e7bdd_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/12/3057487771_d7318e7bdd_z.jpg)
+
+It’s easy to think of orgasms as just physiological phenomena, but really these are manifestations of extreme psychological delight at certain deeply exciting ideas. With outdoor sex, the pleasing, almost utopian concept driving our pleasure forward is that we could be in a public place where others might see us but that this wouldn’t – &nbsp;as it so often does – matter any more. Wrapped up in the throes of passion, protected by the other’s desire, the promise is that we could lose self-consciousness and inhibition and entirely reconcile the private and the public sides of ourselves.
+
+As we strip each other off in glade or by the side of a supermarket, there’s a refusal to give way to the normal pulses of debilitating shame and embarrassment. Since early adolescence, we have learnt to lock doors and keep curtains shut. We have blushed at the threat of exposure. And yet now we’re no longer bothered by the sounds of passing traffic or the call of an insistent flock of starlings overhead. Emboldened by another’s affection, we are empowered to think that the erotic parts of ourselves don’t need to be sheltered and repressed. The outdoor orgasm that culminates signals our pleasure at finally evading our debilitating self-consciousness.
+
+[![2688441361_97164074ec_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/12/2688441361_97164074ec_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/12/2688441361_97164074ec_z.jpg)
+
+It should be no surprise that a great many artists, foremost among them Titian and Boucher, have been alive to the pleasures of sex in the outdoors. To view their work is a chance to turn over in our imagination the luxury and ease of the Garden of Eden, for which each one of us may still deep down hanker. The story of our banishment from Eden and the birth of physical shame isn’t – we can see – just a Biblical story, it’s an account of how we travelled painfully from unhibited toddlerhood to embarrassed adulthood.
+
+##### **[![Titian-The-Three-Ages-of-Man-1511-12](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/12/Titian-The-Three-Ages-of-Man-1511-12.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/12/Titian-The-Three-Ages-of-Man-1511-12.jpg)**
+
+##### Titian, _The Three Ages of Man&nbsp;_(1512)
+
+[![swing2](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/12/swing2.jpeg)](http://www.thebookoflife.org/wp-content/uploads/2015/12/swing2.jpeg)
+
+##### Jean-Honore Fragonard, _The Swing_ (1767)
+
+To make love outdoors is a temporary reversal of the Fall. It is the greatest expression of confidence in the wider world, it symbolises that we have tamed the landscape; we are not going to be attacked by wolves or harmed by the mockery of others. For most of our lives, we may have to cower behind double glazing and heating systems, lock our doors and wrap ourselves in padded coats, but now we can delight in a contrastive vision of the landscape as kindly, generous and on our side: the place where we are – for a time – totally at home.
+
+As we penetrate one another in the grass, we aren’t being turned on primarily by our bodies (we could do that just as easily at home). We’re being excited by our yearning to feel – at long last – a little more natural around sex in what is normally an all-too scary and untamed world.
+
+[![](https://img.youtube.com/vi/hRpDzJrC1OA/0.jpg)](https://www.youtube.com/embed/hRpDzJrC1OA '')

@@ -1,0 +1,37 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Mature Love](https://www.theschooloflife.com/thebookoflife/category/relationships/mature-love/): [149. Humour in Love](https://www.theschooloflife.com/thebookoflife/humour-in-love/)
+
+* * *
+
+# Humour in Love
+
+We know by instinct that humour is pretty important in relationships. But the reasons are often left a little vague.
+
+**It isn’t that we crudely want entertainment – there are enough comedians on TV. We don’t just want a laugh. We want to find a way to be annoyed with, and criticise one another’s most maddening sides without eliciting a drama, with lightness and a special kind of diplomatic immunity.**
+
+[![4026337443_a5b6943751_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/06/4026337443_a5b6943751_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/06/4026337443_a5b6943751_z.jpg)
+
+Spending time closely around someone inevitably exposes us to departures from what we can call normality or balance. Our partners are always a little crazy in many areas – as we, naturally, are too They might turn out to ring their mother five times a day, clean the kitchen as if surgery were to be performed there, show a wounding inclination to invite friends along on the most private occasions or need to arrive at the airport six hours early.
+
+**We need to say something, but doing so directly and in a serious voice can be painfully counter-productive. Too often, the partner just swiftly feels attacked and refuses the insight.**
+
+[![9647873866_14ba2df6db_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/06/9647873866_14ba2df6db_z1.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/06/9647873866_14ba2df6db_z1.jpg)
+
+This is where humour comes in. A skilful joke is a tool for criticising another person without arousing their irritation or self-righteousness. And the laughter we elicit isn’t just a sign they have been entertained; it’s gratifying proof that they have acknowledged an attempt to reform them.
+
+**What makes people irritating is that they have abandoned proportion. But they are prone not to recognise this abandonment when it is pointed out to them soberly. The art of crafting a joke therefore involves subjecting the troublesome exaggerated aspect of the other to an even greater, almost hyperbolic-degree of exaggeration – to the extent that they are then forcibly jolted into a recognition of the issue, while at the same time offered relief that they are not, of course, quite _that_ bad.**
+
+[![2165411154_5062562365_o](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/06/2165411154_5062562365_o.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/06/2165411154_5062562365_o.jpg)
+
+In the late 1980s, the then British Prime Minister Margaret Thatcher grew increasingly authoritarian with her colleagues and fellow politicians. Serious-minded articles appeared in newspapers urging the Prime Minister to be more collegiate and empathetic. It didn’t work at all; Mrs Thatcher simply got offended and dug in. But then a comedy show using puppets called Spitting Image turned the Prime Minister into a deep-voiced, psychopathic matron with a tendency to whack her naughty colleagues over the head with a truncheon. This obviously wasn’t how Mrs Thatcher actually behaved, and yet it was a tenfold exaggeration of a real – and painful – truth about her. Remarkably, presented in this form, the Prime Minister could see the point, felt assuaged by the wildness of the exaggeration and was in a position to laugh at herself. In her memoirs, she recalled tuning into the programme and chuckling – realising that she would henceforth need to learn to reign in a tendency that had clearly gotten out of hand.
+
+[![IA01-20-Thatcher-ITV](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/06/IA01-20-Thatcher-ITV.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/06/IA01-20-Thatcher-ITV.jpg)
+
+The comedy show was rehearsing a move we all need constantly to make in our relationships.
+
+We can imagine responding to a partner who had become overly agitated about signs of dirt in the kitchen by dramatically over-playing the gravity of the issue, insisting: ‘Let’s commit suicide over the bread crumbs by the sink: you’re right, life is no longer worth living on these terms; We could nip round to the late night pharmacy and get a bottle of sleeping pills or take the bread knife to those larger veins in our ankles. Soon, we won’t have to worry about this messy world any longer. Come on, it could even be fun.’ One would during the speech need to be chirpy, relaxed, with just a playful twitch of the lips as one elaborated the technical details. As comedians know, tone is key.
+
+The comic move is to blow up departures from the norm to such manifestly absurd proportions, that even the partner can see them for what they always were: over-reactions. Comedy skilfully teaches us that the way to get someone to see that they have over-reacted is not to sound mature and reasonable. It’s to continue to pump up the problem until the over-reaction becomes so clear, so benign by its outsize dimensions that our audience starts to laugh. We’ll have learnt to criticise through humour – and our relationships will be a whole lot more secure as a result, especially when we allow our lover to magnify our own failings into jokes in turn.
+
+[![](https://img.youtube.com/vi/OGEr6P3MDpk/0.jpg)](https://www.youtube.com/embed/OGEr6P3MDpk '')
+
+[![](https://img.youtube.com/vi/ehIiWha1oU8/0.jpg)](https://www.youtube.com/embed/ehIiWha1oU8 '')

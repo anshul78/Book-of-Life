@@ -1,0 +1,19 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Breaking Up & Heartbreak](https://www.theschooloflife.com/thebookoflife/category/relationships/breaking-up-heartbreak/): [186. 'Unfair Dismissal' in Love](https://www.theschooloflife.com/thebookoflife/unfair-dismissal-in-love/)
+
+* * *
+
+# ‘Unfair Dismissal’ in Love
+
+Our lover has hurt us deeply. Our suffering is at least comparable to being robbed or physically assaulted. This hurts a lot more than someone stealing our phone or bicycle.
+
+However, in those cases, there are big societal mechanisms for addressing our suffering: there are insurance companies, police forces, courts and ultimately prisons designed to restore justice. If an employer suddenly decided that they couldn’t stand us, they usually couldn’t just dump us: all kinds of rights and safeguards have been slowly and wisely established to safeguard our employment from whims and cruelty. Culturally, we’ve focused our collective systems of justice and redress around money, work and property.
+
+<figure class="aligncenter"><img src="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/07/Josef-Albers-e1562580448449.jpg" alt="" class="wp-image-23464"></figure>
+
+But in an area that matters just as much to us – love and relationships – we can’t contact a lawyer or go to the police with the accusation: ‘this person broke my heart!’ We’re on our own. Not only is there no easy way of getting redress, there’s little on offer to help us deal with the pain. If we have a toothache or a broken leg (which can be comparable to heartbreak in terms of anguish), we are met by a society that has evolved complex ways of dealing with the problems and built enormous institutions to offer us skilled help.
+
+The point isn’t that we should be able to go to a lawyer or a doctor with our complaint; we don’t want our lover locked up or undergo some emergency surgery. But we can, in a utopian spirit, imagine a society that had devoted itself with equal ambition – and over many decades – to addressing the intense, common problems of wounded souls.
+
+The Broken-Heart specialist of the future would carefully listen to our sobs, they might prescribe that we read a particular book (perhaps this one) or listen to certain pieces of music (like Mozart’s opera _Cosi Fan Tutte_ – ‘they’re all like this’ – in which all lovers are shown to let each other down). We could be invited to examine our expectations of relationships and be coaxed gently – but firmly – towards an understanding of just what went wrong and what we should learn. We might be prompted to reconsider what kinds of people to be wary of, or to seek out, as we re-enter the world of romance.
+
+It has always been hard for us to imagine large societal responses to private problems (in 1700, it was hard to image the existence of a reliable fire-brigade). Relationship endings are standard hazards of existence. And perhaps in 2100, people heading off to their Broken-Heart specialists, will look back on us with pity because – when our hearts were broken – there were not so many places to turn for wisdom, consolation and guidance.

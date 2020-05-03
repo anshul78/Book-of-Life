@@ -1,0 +1,27 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Breaking Up & Heartbreak](https://www.theschooloflife.com/thebookoflife/category/relationships/breaking-up-heartbreak/): [175. 10 Ideas for People Afraid to Exit a Relationship](https://www.theschooloflife.com/thebookoflife/10-ideas-for-people-afraid-to-exit-a-relationship/)
+
+* * *
+
+# 10 Ideas for People Afraid to Exit a Relationship
+
+1. You are, to a far greater extent than you perhaps realise, already alone. The condition you fear will happen has already happened. To be formally alone would merely mean concretising something that has been your reality for a long time anyway and, paradoxically, would be the first step towards helping you to bring the isolation and agonising frustration to a deserved close.
+
+2. The emotional loneliness you currently feel cannot end until you bring yourself to endure a period of practical loneliness; which is, as you of course know (but are terrified of knowing), the lesser of the two evils. The awkwardness of dinner by yourself is as nothing compared to the soul-crushing horror of feeling repeatedly and existentially misunderstood by the central person in your life. Someone who stubbornly doesn’t get it is a greater rebuke to who you are than an empty chair.
+
+3. You are spending a lot of energy defending yourself against legitimate hope by leaning unfairly on some undoubted general truths: that all lovers are flawed and that all honeymoon periods end. To tease out this reassuring but ultimately self-serving exaggeration, change ‘lovers’ to ‘movies’ or ‘holiday destinations.’ It is as factually correct to insist that there are no perfect lovers as to point out that there are no perfect films or resorts. But this is no argument for refusing ever to change TV channels or for denying that there might be an appreciable difference between Birmingham and Lake Como. There is, simply and squarely, such a thing as, ‘better’ and ‘worse’, a truth no less correct for being – as yet – hugely difficult to contemplate.
+
+<figure class="aligncenter"><img src="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/07/F%C3%A9lix_Vallotton_1913_-_Sunset-e1562852176290.jpg" alt="" class="wp-image-23484"></figure>
+
+4. It is worse to be ostensibly together while privately disconnected than to be properly, publicly, firmly by yourself, just as it is better to be allowed to cry than forced to smile while burning inside.
+
+5. What is really holding us back is something a little unexpected in the background: that we don’t trust or like ourselves very much, that we feel underserving and ashamed of ourselves (it’s to do with childhood). Our inability to leave is a symptom of self hatred. If we were firmly on our own side, it would be immediately evident that we deserved and could lay claim to something a great deal more sustaining.
+
+6. Complete the following sentence: ‘If all the practical hurdles could be taken care of as if by magic (the agony of telling them, the difficulty of finding a new place, the embarrassment of breaking the news to mutual friends etc), what I would really like to happen next is…’ Ignoring your reply means sacrificing yet more of your life on the altar of a tricky chat with certain acquaintances who don’t care anyway or of a boring afternoon or two with an estate agent. Your most precious commodity is time. And on death beds, no medals are handed out for endurance and a limitless capacity to consume bowls of misery.
+
+7. The suffering caused by being alone is far easier to endure and assuage than the suffering of a bad relationship. Compared with the appalling impact of squabbles, misunderstandings, bitterness and coldness, being on your own is a condition unworthy of serious concern. The only thing that truly deserves our terror is the prospect of life without a connection to someone we can admire and adore.
+
+8. You are implicitly assuming that being alone in the future will be an exact replica of how being alone felt before this relationship. And yet your experience in this couple will forever alter how you interpret the discomforts of the single state. The time before you were in this will not be the same as that which will follow once you are out of it: without noticing, silently, you have been acquiring an advanced diploma in compassion, gratitude and contented aloneness.
+
+9. Conquering the fear of being alone will be the ultimate guarantee of satisfying love henceforth. People who feel they have no choice make bad choices
+
+10. The relationship that is right for you isn’t the one without problems, isn’t the one where you won’t occasionally be desperate, lose your temper and behave atrociously, it’s one where you will never feel – as you do now – the constant doubt as to whether or not you should even really be here.&nbsp; You will be unhappy sometimes, but you’ll know in your marrow that getting out isn’t what you secretly long for; you will (fortunately for you) never want to read, or get anything out of, an essay like this again.

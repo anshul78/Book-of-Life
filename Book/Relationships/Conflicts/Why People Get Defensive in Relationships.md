@@ -1,0 +1,31 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Conflicts](https://www.theschooloflife.com/thebookoflife/category/relationships/conflicts/): [107. Why People Get Defensive in Relationships](https://www.theschooloflife.com/thebookoflife/why-people-get-defensive-in-relationships/)
+
+* * *
+
+# Why People Get Defensive in Relationships
+
+We often operate in romantic life under the mistaken view – unconsciously imported from law courts and school debating traditions – that the person who is ‘right’ or has the stronger case should, legitimately, ‘win’ any argument. But this is fundamentally to misunderstand what the point of relationships might be. It is not to defeat an opponent (there are no prizes for ‘winning’ other than self-satisfied loneliness) so much as to try to help each other to evolve into the best versions of ourselves.
+
+There’s a kind of argument that erupts when one partner has a largely correct insight into the problems of their partner. With a stern, masterful and almost gleeful tone, they may declare: &nbsp;‘you’ve been drinking too much’; ‘you hogged the conversation at the party’; ‘you’re always boasting’; ‘you don’t take enough responsibility’, ‘you waste too much time online’ or ‘you never take enough exercise’.
+
+The insight is not wrong; that is what is so tricky. The critic is correct but they are unable to ‘win’ because there are no prizes in love for correctly discerning the flaws of our partners. Indeed, paradoxically, by attacking a partner with clinical energy, we reduce our chances of ever reaching the real goal: the evolution of the person we have to live with.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/09/carafe-marthe-bonnard-with-her-dog-1915.jpg)
+
+When we’re on the receiving end of a difficult insight into our failings, what makes us bristle and deny everything isn’t generally the accusation itself (we know our flaws all too well), it’s the surrounding atmosphere. We know the other is right, we just can’t bear to take their criticism on board, given how severely it has been delivered. We start to deny everything, not because the accusations are wrong, but because we are terrified: the light of truth is shining too brightly. The fear is that if we admitted our failings, we would be crushed, shown up as worthless, required to attempt an arduous, miserable process of change without requisite sympathy – and that – unless and until we reform ourselves – we would have no claim on the affections or forgiveness of the other. That’s why we insist that we do actually do enough exercise, that we have been working very hard and that we have never wasted time on any embarrassing websites.
+
+We feel so burdened with shame and guilt already, a lover’s further upbraiding feels impossible to listen to. There’s too much pre-existing fragility in our psyches for us to admit to another difficult insight into what’s wrong with us.
+
+The irony of the defensive argument is that it’s the overly-confrontational pursuit of truth that will make the truth impossible to reach. In the philosophy of lying there’s a central historical example of what is termed the ‘just lie’ outlined by the ancient Greek philosopher Plato. If a crazed person comes to us and asks ‘where’s the axe?’ we are entitled to lie and say we don’t know – because we understand that were we to tell them the truth, they would probably use the tool to do something horrendous to us. That is, we can reasonably tell a lie when our life is in danger. In a couple, our partner may not literally be searching for an axe when they ask us an inquisitorial question, but psychologically, this is precisely how we might experience them – which makes it at least a little understandable if we say we simply don’t know what they are talking about.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/09/640px-Pierre_Bonnard_1867-1947_De_gebroeders_Bernheim-Jeune_-_Mus%C3%A9e_dOrsay_Parijs_22-8-2017_16-21-41.jpg)
+
+It may feel unfair to ask an accuser to take responsibility for our vulnerability. But if they want to help their relationship, they will need to make it abundantly clear that they won’t ever use the truth (if it is acknowledged) as a weapon.
+
+What is so sad is how easily we (as the accused) might, if only the circumstances were more sympathetic, confess to everything. We would in fact love to unburden ourselves and admit to what is broken and wounded in us.
+
+The answer is to create a situation where both partners accept that they are flawed but not – on this basis – ever beyond a need for love and kindness, where the mutual need for evolution is taken as a given – and where every well-considered criticism is handled as both correct and yet needing to be wrapped up in extraordinary layers of reassurance.
+
+There should be a recognition that people don’t change when they are told what’s wrong with them; they change when they feel sufficiently supported to undertake the change they (almost always) already know is due. It isn’t enough to be sometimes right in relationships, we need to be generous enough in our love in order that our partner can admit when they are in the wrong.
+
+[![](https://img.youtube.com/vi/UhXsqv8b7mE/0.jpg)](https://www.youtube.com/embed/UhXsqv8b7mE '')

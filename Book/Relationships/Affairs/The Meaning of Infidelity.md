@@ -1,0 +1,23 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Affairs](https://www.theschooloflife.com/thebookoflife/category/relationships/affairs/): [222. The Meaning of Infidelity](https://www.theschooloflife.com/thebookoflife/the-meaning-of-infidelity/)
+
+* * *
+
+# The Meaning of Infidelity
+
+Infidelity is commonly interpreted as close to the greatest tragedy that could befall any relationship – and as the natural, inevitable prelude to the break-up of a union.
+
+It is viewed in such dark terms because, under the philosophy of Romanticism which has dominated our understanding of love since the middle of the eighteenth century, sex is understood to be, not principally a physical act, but the summation and central symbol of love. Before Romanticism, people had sex _and_ fell in love but they did not always see these two acts as inextricably linked: one might love someone and not sleep with them. Or sleep with them and not love them. It was this dislocation that Romanticism refused to countenance. Sex was simply the crowning moment of love, the superlative way of expressing one’s devotion to someone, the ultimate proof of one’s sincerity.
+
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BZjIxNTdkMTUtOGNlNi00NWI5LTlkMjQtMDkwOWJhNDRmNTYxXkEyXkFqcGdeQXVyNjQ2NDA2ODM@._V1_.jpg)
+
+What this philosophy unwittingly accomplished was to turn infidelity from a problem into a catastrophe. Never again could sex be viewed as in any way divorced from intense emotion and a profound desire for commitment. It was no longer possible to say that sex meant ‘nothing’, in the sense of being a joyful, kind but emotionally-empty act devoid of any desire to care for or live with a new person in the long-term and in no way indicative of any drop in affection for the established partner.
+
+There are, of course, many cases where infidelity means exactly what Romanticism takes it to mean: contempt for one’s relationship. But in a great many other cases, it may mean something really rather different: a passing, surface desire for erotic excitement that coexists with an ongoing, sincere commitment to one’s life-partner.
+
+Our culture makes this thought close to impossible, and so getting ‘over’ an infidelity – by which is meant, learning to see that the unfaithful act might not mean what Romanticism tells us it means – has become a challenge of heroic proportions and most of the time, a brute impossibility. However much an unfaithful partner may patiently explain that it meant nothing, the idea seems entirely implausible. How could sex, the summation of love, ever mean anything less than pretty much everything?
+
+There may be one potential way out of the impasse: a frank examination of the recesses of one’s own mind and perhaps, an honest recall of certain moments of past personal experience. What this brave investigation is likely to throw up is evidence that one is strangely capable of something – in the circumstances – really rather surprising: caring deeply for someone and yet entertaining, or masterminding, a sexual scenario involving somebody else. However much the thought seems unbelievable when we hear it from the mouth of a straying partner, it does appear that it is, in some ways, really rather possible to think of screwing one person and loving another.
+
+**The best way to recover after an infidelity may therefore be to ignore what Romanticism tells us that infidelity has to mean, and to consult instead a more reliable source of information: what we ourselves took infidelity to mean the last time the idea crossed through our minds or our lives. It is on this basis that we may – with considerable pain of course – come one day to be able to forgive and even in a way understand and accept the apologies of a repentant partner. It is on the basis of subjective experience of unfaithful thoughts that we may redemptively enrich, complicate and soften what happens when we end up as their victims.**
+
+[![](https://img.youtube.com/vi/oLq1ktogxn4/0.jpg)](https://www.youtube.com/embed/oLq1ktogxn4?ecver=2 '')

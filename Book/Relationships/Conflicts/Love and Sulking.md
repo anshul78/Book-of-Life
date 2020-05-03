@@ -1,0 +1,29 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Conflicts](https://www.theschooloflife.com/thebookoflife/category/relationships/conflicts/): [121. Love and Sulking](https://www.theschooloflife.com/thebookoflife/love-and-sulking/)
+
+* * *
+
+# Love and Sulking
+
+One of the most exciting aspects of the early days of a relationship can be the sense that a lover understands us _without us needing to speak too much_.
+
+With other people, we’re always having to explain ourselves at length and even when we do, they frequently struggle to grasp our drift – but a true lover on the other hand seems to get us almost immediately, even in the finer-grained aspects of our personalities. No sooner have we tried to explain, for example, our feelings towards autumn evenings or that bit in a song we like when the violins start to rise that they generously step in to say, ‘I know, I know…’, seemingly ready to confirm our every sensation and idea.
+
+[![23766944199_0fa4ac7ddd_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/07/23766944199_0fa4ac7ddd_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/07/23766944199_0fa4ac7ddd_z.jpg)
+
+This is a profoundly beautiful and exciting discovery, but it can give rise to hugely troubling dynamics in terms of the long-term success of relationships, for the view that a good lover must intuitively understand us is – over time – one of the most dangerous suppositions responsible for a catastrophic outbreak of sulking.
+
+Sulking is a highly distinctive phenomenon within the psychology of love. Crucially, we don’t just sulk with anyone. We reserve our sulks for people we believe should understand us but happen on a given occasion not to. We could explain what is wrong to them of course, but if we did so, it would mean that they had failed to understand us intuitively and therefore, that they were not worthy of love. A sulk is one of the odder gifts of love.
+
+[![1551870489_349455a000_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/07/1551870489_349455a000_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/07/1551870489_349455a000_z.jpg)
+
+Our incensed background belief that a good lover should just know explains why on the evening when they unwittingly cause us offence at a party, we’ll sit quietly in the car on the way home and will reply with a simple ‘Nothing’ when they enquire if anything is up. And when we get home, we’ll disappear straight into the bathroom and bolt the door – and when they ask again, ‘Please tell me what is wrong’, we’ll remain silent with our arms folded, for we implicitly believe that a true lover, someone really worthy of our affection, would naturally be able to read our intentions through the bathroom panel, through our outer casing and into the caverns of our burnt and pained souls.
+
+Sulking has its touching side, evoking the enormous faith that we place in our partners capacities to interpret us. But part of becoming an adult must be to believe that we cannot fairly continue to expect others to read our minds if we have not previously deigned to lay out their contents through the admittedly very cumbersome medium of words. Even the most intelligent, sensitive lover cannot be expected to continue to navigate around us without a lot of patiently articulated verbal indications of our desires and intentions.
+
+[![15273365965_2695370841_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/07/15273365965_2695370841_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/07/15273365965_2695370841_z.jpg)
+
+Those charming early lucky guesses about what our lovers feel should not fool us too long. Even in a very successful relationship, there is only a tiny amount that a lover should ever be expected to know of their beloved without it having been explained in language. We shouldn’t get furious when our lovers don’t guess right. Rather than bolting our mouths and retreating into the comforting silence of a sulk, we should have the courage – always – to try to explain.
+
+[![](https://img.youtube.com/vi/NnCLoLhDkRs/0.jpg)](https://www.youtube.com/embed/NnCLoLhDkRs '')
+
+[![](https://img.youtube.com/vi/F164UeMGltE/0.jpg)](https://www.youtube.com/embed/F164UeMGltE '')

@@ -1,0 +1,204 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Parenting](https://www.theschooloflife.com/thebookoflife/category/relationships/parenting/): [244. The Joys and Sorrows of Parenting](https://www.theschooloflife.com/thebookoflife/the-philosophical-parent/)
+
+* * *
+
+# The Joys and Sorrows of Parenting
+
+Being a parent can be one of the sources of our greatest joys. It is also – intermittently – the cause of some of our deepest sorrows. It is likely that we will spend at least some of the time in despair and confusion, wondering whether it really had to be so hard. Philosophy has over the last 2,000 years been a discipline committed to calm, kindness, perspective and a reduction of paranoia. It is one of the most useful sources of solace and humanity. &nbsp;What follows are 26 small essays that aim to shed understanding and consolation on the trials and pleasures of parenting. They aim to provoke insight, recognition and a gentle way of staying calm around one of the most arduous yet deeply fulfilling jobs in the world.
+
+![](https://baby-photography-london.co.uk/wp-content/uploads/2015/05/baby-photographer-london-16.jpg)
+
+**1. Society’s Messages**** &nbsp;**
+
+Our societies promote deep enthusiasm about parenthood. They frame the act of bringing a new person into the world as a cause of unalloyed joy and celebration. But this very well-intentioned enthusiasm has an unintended habit of triggering a very difficult consequence: it becomes extremely hard for us to admit publicly to having problems around our new families. It feels like a grave and serious failing just of our own, a mark of a particularly and unusually deficient nature. We can feel almost unbearably guilty at certain thoughts we may have in the privacy of our hearts: that we’d rather not see our family for a few days; that we look very wistfully at the time before we had children; that we suspect we’re not naturally cut out to be a parent; that at certain points we resent or even dislike our own child.
+
+Our societies are floridly sentimental about parenthood – and therefore unwittingly cruel. They concentrate on the high points and deftly edit out the troubles. We should accept with no guilt and good grace that, of course, being a parent is wonderful _and_ difficult; rewarding _and_ depleting; exciting _and_, at times, unfeasibly tedious. No modern society has yet been fully honest about this strange and profound duality. We can and should – in our hearts – afford to be.
+
+**2. Romanticism**
+
+For almost all of human history, people didn’t particularly worry about being ‘good parents’. The expectation was, rather, that it was the _children_ who needed to be good. It was the child who carried the burden of living up to the demands and expectations of their parent – not the other way around.
+
+In the olden days, the role of the parent was easily defined and sharply limited: your job was to punish the children’s failings and errors; pick a marriage partner for them; select and guide their career and (if they behaved well and deserved your approval) leave them something in your will.
+
+Then, gradually, in Europe &nbsp;from the late 18th century onwards, things began to change. The catalyst was a movement of ideas known as Romanticism. According to this ideology, a child was a special, privileged entity born with a native wisdom and insight. The small glorious creature was someone whom society in general and parents in particular could fail. All of a person’s later problems were to be viewed as symptoms of parental neglect and confusion. At the same time, Romanticism stressed that marriage should be based on love – so it was a matter for the child, not the parents, to decide; a career was to be the expression of one’s true nature and, therefore, not a matter for parental interference. The age old injunction that children should honour their parents gave way to the idea (which now feels so natural) that parents should serve their children – and fail them in multiple ways. It began to be much much harder to be a good parent.
+
+**![](http://hoocher.com/Thomas_Gainsborough/Master_John_Heathcote_1770.jpg)**
+
+**3. Responsibility**
+
+We feel responsible for everything that happens to our child. Any problem they have must have a solution – and it is our imperative duty to find it and put it into action. Around children, we abandon our general, mature and dark sense that much that is truly important lies entirely outside our control. We know that a business cannot be insulated from competition, that sickness and death are inevitable; that every life is in some ways a disaster; that every person is complex, difficult, lonely and odd; that true friends are hard to find and that love is rare. But – when it comes to our children – we put this general knowledge aside. For them – we feel – it can be different… if only we do our job properly. Any trouble that befalls them is our fault; any suffering they experience is due to us. We wish (as an expression of our deep love) that the normal rules of human existence could be suspended just for them.
+
+The natural consequence of over-extended responsibility is guilt. That is why we fear and feel we are not good parents; we blame ourselves because we are haunted by a beautiful, touching, insane idea; that it is wholly in our power to make them happy.
+
+**4.** &nbsp; **Love**
+
+When they are very little, it can be slightly embarrassing to state plainly just how much we love our child. We don’t love them for their achievements or merits. Although we are enchanted by every one of their accomplishment, we would not withdraw our love if they were to stumble and fail. Rather, we would feel all the more tender and moved by their existence. We love them in an open-ended way: unconditionally. It is – amazingly and wonderfully – their frailties, their little sorrows, their moments of suffering, their inability to contribute or look after themselves that radically motivates our tenderness. If they get a blotch on their face, we love the blotch; if they struggle to learn to walk, we discover an immense sympathy for this challenge; if they are slow readers, we realise that reading is not a skill that defines human worth. If they fall ill, we would suffer in their place, if only we could. Their happiness matters more to us than our own.
+
+Until now, in our own lives, we perhaps thought of love in terms of what another could give us. Now, having had children, our vision of love is massively re-oriented. We start to experience love as the longing simply to make the other happy, to console them in their pains, to ease their difficulties, to rejoice in their existence and to keep them safe from harm. We cry at films we once called sentimental.
+
+**5.** &nbsp; **Irritation**
+
+For the last ten minutes you’ve put your whole life on hold in order gently to persuade a two year old to put on their coat. Or you made them a boiled egg and cut the toast perfectly and then they turned away in disgust when it was ready. Or you have to clip them into the booster seat in the back of the car – not because (as they seem to feel) you are a tyrant but because it is the law (though the task of explaining the legal system is beyond you at this moment). Or they hate kindergarten – and don’t comprehend what a mortgage is and that you are abandoning them only to the most carefully selected educators and not to random strangers. You still love them, but can’t pretend to be a dog any more because you’ve bashed your knee on the coffee table… but your child does not sympathise. They don’t see the reality of your good will; only the momentary frustration of their own will.
+
+And then you feel this strange thing: they aren’t very nice to you. They annoy you. You’re losing your temper with the little person you most love in the world and you hate yourself. Yet every kindly adult in the world totally understands. You aren’t bad; you’re just trying to do something very difficult better than any other generation ever has.
+
+**6.&nbsp;** &nbsp; **Authority**
+
+Nowadays, we can’t simply demand or insist or give an official, parental order – although such strategies worked for most of human history. We have to persuade rather than command. It’s a deeply kind philosophy. We have renounced authority because we’d rather be loved than feared. We want to enlighten, recommend, reason; we try to enter the imaginative world of our child and explain in terms that make sense to them why they need to go to bed (though they say they don’t feel tired); why they should try even a tiny bit of broccoli; why they shouldn’t kick granny’s shins (after she asked you not to draw on the wall); why you can’t stay in the bath for two hours or eat another biscuit (even though they are, frankly, delicious). We could force the issue.
+
+But we don’t.
+
+We have taken on the hardest task: to meet unreasonable intransigence with logic and compassion. And we do it with a very long and grand ambition in mind. That one day, our child will – themselves – adopt our stance. And so we (who may be respected by our peers and rather knowledgeable about the stock market or highly informed about intellectual property law) find ourselves stymied and delayed by over half an hour by a three year old who will not cooperate on putting on their coat.
+
+**![](http://2.bp.blogspot.com/-Ulyt8HobFSk/U5Pe6nlE8SI/AAAAAAAABt0/25mgPXWPT38/s1600/11-531907.jpg)**
+
+**7.** &nbsp; **Saying NO**
+
+We dream of being always able to say ‘yes’ to our child: to give them whatever they want, to keep them always happy. The problem is, though, that the child will want sometimes very much to do things that are dangerous or drastically unhelpful. They’ll want to say up even when they are very tired; they’ll want to eat four plates of ice-cream (even though they’ll feel ill later); they’ll want to watch 25 episodes of a favourite programme or hit another child or or put toothpaste in your hair when you have to work; they find the electric socket fascinating; maybe it would be interesting to spoon feed bleach to their baby sister… and if you say no they will not understand that you are being reasonable and have their best interests entirely at heart – they will feel you are simply horrible. You are a tyrant; their enemy.
+
+We are encountering the radical divergence of perspective that defines what it is to be a parent. We will romp and join in and share – but at some point we have to occupy a position of radical inequality. We can see it, they can’t; we understand the consequences, they don’t. And our loyalty to their better life will come at an unavoidable, and occasionally rather grim, price.
+
+**8.&nbsp;**** Appreciation**
+
+Of course, being a parent involves a lot of work and an endless busy round of cares and duties. But it is also a source of some of life’s most moving and tender moments – which in the daily rush we might come to forget. It’s truly astonishing that we have created this little life. When we glimpse them sleeping, when they say something &nbsp;deeply charming (‘someone has cut the moon’; ‘we didn’t buy the toy car at a toy shop, we bought it at a real shop’); when they instinctively put their hand in ours; when jumping up and down on the sofa makes them totally happy; when they want to help us; when they invite us to have a sniff of their favourite (and rather grimey) blanket; when they smile and laugh; when they fall asleep in the car on a long-journey and wake up, confused about where they are …
+
+We’re not just delighting in them. One of the uses of parenthood is to reconnect us – despite the accumulated layers of complex and disenchanting experience – with our own past innocence. In them we find again a lost and lovely part of ourselves, which is so sweetly painful (because of how hard adult life has become) that we may, at times, find ourselves fighting back the tears.
+
+**9.** &nbsp; **The good enough parent**** &nbsp;**
+
+The mid 20th century English psychoanalyst, Donald Winnicott, who specialised in working with parents and children, was disturbed by how often he encountered in his consulting rooms parents who were deeply disappointed with themselves. They felt they were failing as parents and hated themselves deeply as a result. They were ashamed of their occasional rows, their bursts of short temper, their times of boredom around their own child; their many mistakes; they were haunted by a range of anxious questions: are we too strict, too lenient, too protective, not protective enough? What struck Winnicott, however, was that these people were almost always not at all bad parents. They were not, by some fantasy ideal standard, perfect: but they were – as he came to put it, rather wonderfully – ‘good enough.’
+
+And good enough is even – &nbsp;strangely – better than perfect, because a child will live the rest of their life in a very imperfect world. We cannot get on if we are dependent on those around us living up to the highest imaginable ideals. The good enough parent is at times irate, stupid, a bit unfair, a bit tired or a touch depressed. There will be delays, confusions, mistakes, outbursts of irritation – and always (or almost always, which is enough) a background of deep love and good intentions.
+
+**10.&nbsp;**** Irony**
+
+One of the most natural ambitions of parenthood is to spare one’s child the specific, precise errors of one’s own upbringing. We know what went wrong for us. We were cajoled (perhaps) into doing things we didn’t like. So we never press our child to do anything against their will. Or we were always made to feel that money was a problem, so we shield our children from any hint of money worries. &nbsp;Or (possibly) we were made to feel that everything and anything was possible – which has’t entirely worked out – and so we try to impress upon our child that life is a sequence of tricky choices. But whatever we do to reverse the errors of our own childhood brings – with a horrible irony – the opposite result. Over the years we gradually realise we are forming for them a new set of problems. Maybe we never lost our temper at all, unlike our own rather fiery parents, but now our child is often rather rude and critical (which we never were); or maybe we have tried very hard to be always reasonable and give clear, proper explanations of all our decisions (unlike a more dogmatic parent of our own) but our child doesn’t really listen, as we would gratefully have done.
+
+It’s not our fault; we just cannot help but overcompensate. And if our child becomes a parent they will do the same, in another direction. We will have succeeded if the pendulum merely moves away a little less from the balanced centre with the swing of each generation.
+
+**11. Work and family**
+
+We have formed ever higher expectations about what it means to be a good parent – and what family life should ideally be like. But we’ve done this in the same historical epoch in which the importance of work has equally been stressed and required of both parents. The demands of the labour market have not, in general, been offset by any reduction in the expectations around intimacy, devotion or even the amount of time that parents should give. We are more under pressure to succeed at work and under more pressure to be very continually present and focused as parents – at exactly the time when capitalism requires our every last effort. Both of these ideals, Work and Parenthood, are very important to us. But they don’t harmonise. So we end up feeling both guilty and over-extended.
+
+The notion of balance has been, rather cruelly, proposed to solve this problem. But the truth is that we can rarely contrive a just accommodation. Any worthwhile life project (whether it is at work or around the family) will demand too much; we will – to state it brutally – fail in one or the other. We’d understand the impossibility if society routinely asked us to become experts at chess while also holding down a career as a rally car driver. It is not the fault of the world, or of ourselves that we don’t see that we are asking ourselves something very similar. Not all good ideals are compatible. A society cannot be highly democratic and highly rational at the same time; a business cannot be daringly innovative and a rock-solid investment. And we cannot be perfect parents and perfect workers. Something always has to give – and that is not our fault.
+
+**12. Sex**
+
+It’s not their fault, obviously, but children are the enemies of sex: they don’t believe in adult privacy, they take up all one’s time; they cry inconveniently in the late evening; they are exhausting; and (more deeply) they bring to the fore a set of emotions that don’t equate very well with the complexities of sexual desire. Children want – and encourage – the kindly, supportive, mature, generous and responsible aspects of our nature. Whereas the most intense kinds of sex often draw upon much darker sides to our characters: sides where we become aggressive or yielding; crude, coarse, wicked and wild. We are – through our children – reconnected to innocence and our erotic drives seem rather disgusting by comparison. Together in the parental bedroom, our minds are tethered to a story we were reading earlier about friendly mice and our worry about whether a little sniff means a cold is coming on. &nbsp;
+
+Sex drops off, so often, when a couple become parents because psychologically, our sexiest selves are less accessible. That’s why it can feel necessary to get physically far away before it seems possible to feel properly sexual about oneself or one’s partner; while the marriage bed itself becomes a place, mainly, of grateful sleep, family pillow fights and fretful, whispered dissention.
+
+**13. Disagreements**
+
+Having a child together seems (and in some ways truly is) a very deep connection between two people – you have done this astonishing thing together, created a new life, a person who will always be intimately allied to both of you.
+
+But precisely because you both love the child, you will find new areas of disagreement that feel incredibly important. You might have radically different attitudes to the importance of doing homework (is it something parents should take responsibility for, or something for the child to resolve in their own way?). Do you agree what is a proper bedtime; at what point does an illness warrant a trip to the doctor; is it OK to leave a child with grandparents for the weekend? Is the babysitter rather nice, or not nice enough? If your child cries before you go out for the evening, should you decide to stay at home, or is this not a big deal?
+
+It’s difficult to back down or make concessions, because you are not discussing personal preferences or your own convenience. You are arguing about the future of your child. You so much want things to go well for them and that is why you are locked into furious combat, full of insults and venom, with the one other person who cares as much as you do.
+
+**14. Staying Together**
+
+The idea of the good, strong family is almost unbearably moving; even their troubles and losses bring them closer; they squabble – but they make up; they get into money difficulties but they face them together; sorrows deepen their shared love. But in reality, obviously, it usually isn’t like this. We don’t live up to anything like the ideal. Troubles make the conflicts more bitter. We wonder if we should part; it could be such a relief to be alone. Then we think of the child.
+
+Staying together for the sake of the children doesn’t sound at all glamorous. It sounds like a compromise: a messy half-solution. What we’re facing, though, is the the dark thought that things might not be better apart. The evident fact that they are bad now does not – sadly – prove that a better option is truly available. Our anguished feeling that ‘anything would be better than this’ may simply ignore the dark truth: there are a great many ways that things would be a lot worse than this.
+
+Staying together ‘for the children’ should, in many cases, be recognised for the deeply heroic and loving act it really is. We realise that our absence will matter; that our child won’t really understand; that we will regret it if we leave; that this is the best of all available options.
+
+**15. Soothing**
+
+One of the things we discover around children – almost by accident – is the power of soothing. When they are very tiny, we understand that their distress has physical causes: they are upset because they’re not digesting properly, because they are overtired; because they are lying in the wrong position, because their diapers need changing. Instead of reassuring with words, or explaining or reasoning, or cajoling or warning or correcting, we correct the trouble with a cuddle or a hug; by rubbing the back or folding a little one into a blanket on the sofa, by humming a lullaby or stroking their hair or simply by cleaning them up. When they are a little older we start to lose a grip on this profound truth. Whatever the overt cause of the upset (the rotor has come off the toy helicopter, the lead keeps breaking in the pencil sharpener, the pasta noodles are touching the fish fingers on the plate, 7 x 4 is baffling) it remains open to us to soothe them. The source of calm is not the mind, but the body. And – most poignantly – we might apply this wisdom not simply to our child but to our partner as well. They (too) may be tired, rather than mean – and hungry rather than horrible, and so in need of quiet murmuring encouragement rather than a careful and highly logical and no doubt very accurate analysis of their failings.
+
+**16. Against the compliant child**** &nbsp;**
+
+Parents are delighted when infants and children follow their rules: it’s terribly convenient (and can seem very nice) when your child does what you suggest. But there’s a potentially worrying side to the overly ‘good’ child.
+
+Donald Winnicott – who is perhaps our wisest adviser as yet – saw a key importance in being able, as a child, to express freely a lot of ‘bad’ feelings without consequences, and without fear of retribution. Through life we will always have ‘bad’ feelings of one kind or another. Everything hinges on how we deal with them. The ‘good child’ (under pressure from a parent) pretends they only have nice and pleasing feelings. In order to have access to the more creative and ambitious potential in our own nature, we need to risk giving offence, we need to be willing to be thought bad or irresponsible or frankly absurd. If we try to hard to seem good we’ll not risk doing the interesting things we otherwise could.
+
+And our encounters with others will always involve understanding, managing and forgiving _their_ messy, vindictive, naughty, silly and devious sides. &nbsp;The really lovely qualities of adult life are not built on special exemption from wickedness, selfishness, bad temper or greediness. A child who has felt required to deny these parts of themselves will struggle to acknowledge the complex reality of others. The rigid, stilted, slightly boring adult was (we can be almost sure) required to be slightly too ‘good’ when they were little.
+
+**17. Ambivalence**
+
+It’s very disconcerting when a child switches from being loving and sweet to being hostile. One minute they are begging you to play with them; the next minute they are trying to kick you or bite you or screwing up their face in anger. How can this be the same child. Have we done something terribly wrong?
+
+At these challenging moments a useful person to consult is Melanie Klein, one of the first psychoanalysts to focus on understanding early childhood development. The young child ‘splits’ the parent into two distinct figures: the ‘good’ mother or father and the ‘bad’ version. In reality of course it’s just one person, but in the child’s inner life, it is as if there are two quite separate beings. Everything nice is attributed to one and everything painful or frustrating to the other. The child can’t imagine that one person might be both very lovely in some ways and also (at times) busy; or that irritating things might accidentally happen around a very kindly and nice parent. ‘Good’ mummy or daddy wouldn’t say that bathtime was over or stop you putting their phone down the toilet: it must be that ‘the ‘bad’ parent has suddenly turned up.
+
+The child is very gradually – and with great difficulty – learning the melancholy fact that will take a lifetime to digest: that real people are both pleasing and annoying and that many upsetting things are, really, no-one’s fault.
+
+**18. When they say ‘I hate you’**
+
+It feels like the worst moment imaginable. You &nbsp;have done everything you could and now this three (or thirteen) year old has turned and said – viciously – ‘I hate you.’ It’ hard to accept this can be happening.
+
+What we find even harder to keep in mind, though, is the level of trust and background security it takes for a child to be able to verbally attack, and seemingly reject, its parent. It’s not at all pleasing to be on the receiving end. But, very oddly, it’s not a sign of failure. At the core, here, is that the child has successfully learned that they can be very upset and survive. They can show they are furious with you because they are not so afraid, they have to hold it back. They have the security to be annoyed. They have been loved enough to know they can hate. The central hero of parental philosophy, Donald Winnicott, argued that &nbsp;‘for a child to be brought up so that he can discover the deepest part of his nature, someone has to be defied, and even at times hated, without there being a danger of a complete break in the relationship.’
+
+The child needs to be horrible and rejecting now in order, later, to be authentic appreciative and wise.
+
+**19.&nbsp;**** Sadness**
+
+Understandably we try to shield our children from sorrow: we instinctively want to cheer them up and distract them from painful things. But we can thereby inadvertently convey that the child is not supposed to, or even allowed, to feel sad. Even when there are genuine sorrows the child ends up feeling that have to pretend to be cheerful or untroubled. With a baby we endlessly jiggle them about in the hope of producing a smile; we buy lots of presents to create a burst of excitement if something goes wrong our instinct is to say ‘it doesn’t matter’ or &nbsp;‘cheer up’. One reason we may seek to banish sadness in our child is that we are warding off our own feelings of disappointment and sorrow. We’re using the child to try to manage our own mood. The other possibility is that sadness is taken by us to be a sign of our own failure: if our child isn’t grinning and laughing, it means we’re bad parents. We create the powerful impression that it’s never OK to feel down, lonely, bereft or gloomy, though in fact these are perfectly natural responses to many normal and trying experiences. Indeed sadness is often just the appropriate, perceptive, intelligent (and ultimately constructive) response to the sorrows of being human.
+
+**20. The skills to deal with grief**
+
+Our child will suffer and we will be helpless to prevent it, however much we wish we could. A favourite toy will break; their pet goldfish will die; someone will pick on them online or say something mean at school; they might not make the sports team.
+
+We can’t stop these things happening. But we can try to provide them with skills to deal better with their sorrows. First of all, there’s the capacity to actually be sad – rather than just angry or to fake indifference. There’s a difference between being feeling sad one hasn’t made the swimming team (and still liking swimming and trying again in the future) and the response of denying that one is sad at all and insisting that others cheat, that it’s unfair, that swimming is idiotic. Feeling sad isn’t at all pleasant, but it’s actually in many ways a lot better than the other options.
+
+Then there’s understanding. A key idea is that when people are mean or hurtful it is almost always because they themselves are suffering behind the scenes. We can’t see their pain – they seem arrogant and confident and very pleased with themselves. But we know they must actually be miserable – since no contented person could possibly gain satisfaction from deliberating humiliating another.
+
+We can teach our children the skills of good suffering.
+
+**21. Developmental milestones**
+
+We often have quite clear ideas of certain developmental achievements
+
+- Eating solids
+- The ability to pick up a small object (the size of a raisin) between the forefinger and thumb
+- Learning to walk or crawl
+- Learning to walk
+- Toilet training
+- Teething
+
+We’re very attentive and supportive, encouraging, helpful and rightly proud. But there’s also a very different set of developmental achievements that matter just as much (but around which we’re much less focused). We’re not collectively attentive around the first time a child is forgiving; when they learn to lose with good humour; when they first feel sorry for the hurt they have caused another; when they begin to daydream; when they can formulate a white lie in order to spare the feelings of another; when they first get curious about what another person may be feeling, rather than what they are overtly doing. Rather than track the external physical development of a child, an ideal society would track their steps on the very long and slow path to psychological maturity. And as each new accomplishment came into view, we’d ring up the grandparents and proudly tell our friends.
+
+**22. Setting an example**
+
+We naturally have very high hopes for our children. We imagine that if only we could set them the right example, they’d naturally and instinctively learn to be happy, wise, moderate and full of adventure (yet not take too many risks). They’d be patient (yet energetic and efficient); modest (yet successful); successful (yet not preoccupied by success); fulfilled in their work; clever (but not snooty or pompous) … we picture their ideal development. And yet there seems to be one major obstacle. We can’t set them the example that ideally we want to. Because as we have to honestly admit, these beautiful ideals have eluded us. We are irascible, anxious, frustrated, disappointed in certain key ways in our own hopes – and very loving towards them. And we worry that by seeing and knowing us they will learn the wrong lessons about life.
+
+The paradox of love is that we want (via our love) to free our child from the ordinary pains of existence. Our more realistic and helpful motive would be to equip them to cope with (rather than magically) avoid suffering. Our own suffering and failure isn’t an impediment to teaching them what they need to know. It’s the essential playbook. If they are very lucky they may suffer a little less than we do.
+
+**23. Adolescence**
+
+They will, at some point, get less close; they will tell you to go away (when you’ve been trying especially hard to be nice to them); you’ll buy a carefully considered present and they’ll hate it; they’ll condemn your clothes, your hair (or lack of it), your politics, your career. They might scream at you, take money from your purse or wallet, stay out late, refuse to take a bath, make some worrying friends, get drunk and close their bedroom door for the whole weekend. It can be exceptionally tricky for the parent.
+
+The concept of adolescence is a crucial one, because it distinguishes a complex phase of development from the rest of life. At a certain stage of development (for instance) the eyes of the flatfish migrate halfway around its head. To the owner of such a pet fish it would be deeply a alarming sequence – if they didn’t realise it was normal. It is a sign of inner security to be able (at 15 or 16) to tries out one’s power to disrupt, to destroy, to frighten, to wear down, to waste, to wangle, and to appropriate.
+
+The contortions of adolescence aren’t a picture of how someone will end up. We know this, and yet we forget when it happen to our own child. We should endure, as best we can
+
+![](https://goodmenproject.com/wp-content/uploads/2015/12/4-Things-by-newskin0.jpg)
+
+**24. Disappointment**** &nbsp;**
+
+When a child is very little, they are infinitely impressed by us and everything we can do. We’re brilliant at making a snug little cave under the kitchen table; we can kick a football for miles; we probably know everything; they are fascinated by our job; and want us to explain everything; they long for our attention and come up and say ‘will you play with me’ in the sweetest way. And then it gradually changes. They start to see the ways we’re very ordinary, or incompetent or confused; they don’t particularly respect our opinions; they find fault with us; they mock us for being so old; they are embarrassed when we dance; they worry what their friends will make of us; they hate our clothes; complain about our cooking or eating-out habits; we have become boring, ridiculous, annoying. We feel we have let them down in a deep and awful way. If only we had been a better parent – or simply a better person – this would never have happened. They will probably latch on to another set of parents and compare us unfavourably with them.
+
+We shouldn’t mind any of this. Failing one’s children a bit gives them an incentive to go on and achieve things on their own. What a terrifying spectre it would be if we truly were perfect. It would make their own lives directionless and punishing. They should thank us for letting them down a bit; our flaws give them a role and a mission.
+
+**25. Separation**
+
+The strange and moving, yet ideal, result of bringing up a child is that – in the end – they become capable of living quite independently of you. Not merely in the sense that they can provide materially for themselves (though that is a pretty significant accomplishment). But that they can leave you without feeling guilty or sad. If things have gone really well, they don’t perhaps even spend a lot of time thinking of you. They might not see you or contact you terribly frequently. It’s not that they have become cold or indifferent or don’t love you. It’s rather that, thanks to your intense help and devotion over many years, they are strong enough and secure enough in themselves to thrive on their own – and have busy plans to get on with. They don’t feel the need to blame you for any of their difficulties, they don’t secretly crave your approval or worry too much about what you would make of their choices. They’re assured that you can be OK without them.
+
+They will have taken possession in their own way of &nbsp;some of the best things about you; and won’t need to keep on returning to the source. &nbsp;
+
+You’ll have succeeded when you have done yourself out of the most important job in the world.
+
+![](http://www.stolenmomentphotography.net/img/s/v-3/p154383364-3.jpg)
+
+**26. Gratitude**
+
+They are always a generation behind. When you are finding out what it is like to be free of children, they may be immersed in the world of toddlers. When you’ll be simplifying your life, theirs will be getting a lot more encumbered.
+
+There’s no guarantee of this of course but it’s possible that at some point, significantly far in the future, you now adult child will turn to you and hint at how much they appreciate what you did for them. They’ll suggest that all your failings no longer matter to them. That they have – by outgrowing you – come to appreciate what you tried to do, not simply what you did. They will look, perhaps with real sympathy, at all the things you wish you hadn’t done, because – by now – they have done their own version of the same blunders. They will sense now how one might fly off the handle and yet be a lovely person; or how one might be absent, yet deeply tender; kindly but very tired.
+
+The child’s judgment will shift, ultimately, not when they become parents – because that is moment filled with a certain messianic hope – but when they realise they too have failed to be the parents they wished to be; when they – in their own turn – have been judged useless and impossible.
+
+And then, finally, the deepest reconciliation will be possible. We will understand that our own parents, like ourselves, were only feeble, muddled creatures doing what they could (and failing even at that pathetic hurdle) to show a love they so truly felt but were incapable ever of fully transmitting or enacting.
+
+**And that will be good enough.**

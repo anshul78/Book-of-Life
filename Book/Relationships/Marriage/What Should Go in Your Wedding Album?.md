@@ -1,0 +1,27 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Marriage](https://www.theschooloflife.com/thebookoflife/category/relationships/marriage/): [201. What Should Go in Your Wedding Album?](https://www.theschooloflife.com/thebookoflife/what-should-go-in-your-wedding-album/)
+
+* * *
+
+# What Should Go in Your Wedding Album?
+
+Wedding photographs are not simply a pleasing record of a special day. They have a bigger and deeper role. The aim of photos is to bottle the essence of what the wedding really signifies and make it available to us when we need it later. The task of the photographer is to create a series of works of art, made on many days, and perhaps not at all on the day of the wedding itself, that can remind the couple of answers to some key questions:
+
+![](http://bulletin.brynmawr.edu/files/2014/03/1-e1394661070111.gif)
+
+_i. Why did we get together?_
+
+We each have a long history. We may have to supply images of a gawky 15 year old or a snapshot with a glamourous, disastrous ex. It might be useful to show the messy kitchen sink or a picture of a lonely plate of beans on toast to remind us that we weren’t that happy living alone. We need these visual reminders because later we’ll be internally harassed by the question: why did I marry you, why did we bind ourselves together? There are actually very good reasons behind our choice, but we forget them. &nbsp;
+
+_ii. What virtues did we see in one another when we got married?_
+
+The images need to pick up on what charms us about each other. It might not be obvious things. The photographer needs to hear the wedding speeches from both partners and attempt to give these visual expression. There might be an image of one of you looking lost, or a close up of an ankle or a shot from another day of one one of you wearing a saggy jumper.
+
+_iii. What impact does each person’s family have on the relationship?_
+
+In the most useful Wedding album there would be special sections devoted to a visual analysis of each partner’s broader family. It wouldn’t seek to show them necessarily on the day – but to reveal certain underlying characteristics – a charming but often overbearing mother; a sweet but not very confident father; a sister who was always that much more successful; a much loved brother who rebelled against the conventions of the world and paid a conspicuous price. These people have played incredibly deep roles in forming our characters. We need to be constantly reminded of where we are each starting from.
+
+_iv. How normal are marital problems in society at large?_
+
+In an utterly unconventional way, the wedding album should include images of other people – especially quite admirable looking, interesting couples – in situations of despair and conflict. Their distress isn’t something to gloat about. It’s a deeply necessary visual cue to bring us back to a realistic assessment of our our own – necessarily imperfect – marriage. They are decent people and they are suffering. This is what happens. Therefore, the tensions and frailties of our own union are represented (as they really are) as the normal tribulations that decent people experience when they share their life with another. The album becomes a resource against premature panic.
+
+Looking back at one’s ‘wedding photos’ in subsequent years would then take its place within the overall purpose of the wedding: it would help, in a small way, to persuade us to stay married.

@@ -1,0 +1,81 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Marriage](https://www.theschooloflife.com/thebookoflife/category/relationships/marriage/): [205. The Standard Marriage and Its Seven Alternatives](https://www.theschooloflife.com/thebookoflife/the-standard-marriage-and-its-7-alternatives/)
+
+* * *
+
+# The Standard Marriage and Its Seven Alternatives
+
+In so many areas, we’re used nowadays to questioning the status quo – and exploring alternatives. It would be odd, therefore, not to try to perform the same exercise around marriage. Here seem to be our main options for how to arrange our personal lives:
+
+**1. Standard Marriage**
+
+**Upsides:** &nbsp;Firm Possession of one prized person, Continuity, Resolution, Children Reassured, Economic Stability, Social Prestige.
+
+**Downsides:** Sexual Boredom, Exasperation, Lack of Appreciation, a suspicion of Better Alternatives Out There.
+
+[![10334803094_6a0cffe84b_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/09/10334803094_6a0cffe84b_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/09/10334803094_6a0cffe84b_z.jpg)
+
+**2. Divorce**
+
+**Upsides:** New possibilities for Sexual Excitement, an End to Cycles of&nbsp;Exasperation, past problems had been Their Fault.
+
+**Downsides:** &nbsp;Perturbed Children, Economic chaos. No one Better Out There. In fact: Our Fault Too.
+
+**3. Sunset Clause Marriage (renegotiated every 10 years)**
+
+**Upsides:** Prospect of Sexual Excitement, More Appreciation and Effort, Children somewhat&nbsp;Reassured.
+
+**Downsides:** Insecurity, Jealousy, Terror of Abandonment, No One Actually Better. Difficult to pioneer.
+
+[![2920913067_f4065d3dcd_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/09/2920913067_f4065d3dcd_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/09/2920913067_f4065d3dcd_z.jpg)
+
+**4. Marriage with Secret Affairs**
+
+**Upsides:** Fragile Stability with Partial Excitement.
+
+**Downsides:** Deceit, Jealousy, Cowardice, Shame.
+
+**5. Polyamory**
+
+**Upsides:** Constant Sexual Possibilities, Not much Exasperation.
+
+**Downsides:** &nbsp;Socially non-prestigious,&nbsp;Jealousy, Children in Turmoil, Discontinuity, Exhaustion, Career Chaos.
+
+**6. Serial Non-binding Monogamy**
+
+**Upsides:** Sexual Possibility.
+
+**Downsides:** Moth-eaten loneliness & insecurity.
+
+[![14861151522_2968ac8c48_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/09/14861151522_2968ac8c48_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/09/14861151522_2968ac8c48_z.jpg)
+
+**7. Communal living**
+
+**Upsides:** Shared Child-Care, Sexual Variation.
+
+**Downsides:** Utopian, Jealousy, Factions, Bickering.
+
+**8. Celibacy**
+
+**Upsides:** &nbsp;Time to work and think.
+
+**Downsides:** Loneliness, Sexual Humiliation.
+
+**Conclusion**
+
+We see a recurring theme, a struggle between Loyalty and Freedom. We can invest in more Loyalty but must then risk suffering from Boredom, Lack of Appreciation and Sexual Frustration.
+
+Or: we can invest in more Freedom and risk Chaos, Irresolution, Exhaustion, Jealousy and Humiliation.
+
+[![5596344183_c391e601e9_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/09/5596344183_c391e601e9_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/09/5596344183_c391e601e9_z.jpg)
+
+It seems that whatever we choose is going to be very painful. The option is not between error and happiness but between what varieties of suffering we would ultimately prefer. This is why our very favourite quote is Kierkegaard’s playfully, bleakly exasperated outburst from _Either/Or_:
+
+“Marry, and you will regret it; don’t marry, you will also regret it; marry or don’t marry, you will regret it either way. Laugh at the world’s foolishness, you will regret it; weep over it, you will regret that too; laugh at the world’s foolishness or weep over it, you will regret both. Believe a woman, you will regret it; believe her not, you will also regret it… Hang yourself, you will regret it; do not hang yourself, and you will regret that too; hang yourself or don’t hang yourself, you’ll regret it either way; whether you hang yourself or do not hang yourself, you will regret both. This, gentlemen, is the essence of all philosophy.”
+
+[![6208401422_319d55cfc5_b](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/09/6208401422_319d55cfc5_b.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/09/6208401422_319d55cfc5_b.jpg)
+
+We do, however, have one suggestion: that humanity’s efforts should be spent not so much on retooling the external structure of relationships, as on rethinking the humbling central problem we’re grappling with all the while beneath the surface: why other human beings are so hard to love and why we are – by extension – so difficult to live around.
+
+In other words, perhaps the answer lies not in a new kind of relationship as in improved capacities around emotional skills. The solution to the dilemmas of relationships should be to increase our understanding of&nbsp;love – rather than merely to make it easier to find and fire new lovers.
+
+[![](https://img.youtube.com/vi/D2pZKTUvht4/0.jpg)](https://www.youtube.com/embed/D2pZKTUvht4 '')

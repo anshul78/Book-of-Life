@@ -1,0 +1,51 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Conflicts](https://www.theschooloflife.com/thebookoflife/category/relationships/conflicts/): [96. Five Questions to Ask of Bad Behaviour](https://www.theschooloflife.com/thebookoflife/five-questions-to-ask-of-bad-behaviour/)
+
+* * *
+
+# Five Questions to Ask of Bad Behaviour
+
+People around us often behave rather badly – and when they do, we tend to rush in with some very punitive explanations: they’re trying to hurt us, they’re deliberately attempting to ruin our lives, they’re morons, they’ve thought long and hard about harming us…
+
+Interestingly, small children also sometimes behave in stunningly unfair and horrid ways: they throw stuff on the floor, they scream and say mean things, they try to hit us or steal something from their little brother. But, crucially, our response to this is quite distinctive. We stay calm. We gently sort out the mess. We tend, almost unconsciously, to ask ourselves five key questions:
+
+1. Might they be tired?
+2. Might they be hungry?
+3. Might they be sad?
+4. Might someone have hurt them?
+5. Might they need a cuddle?
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/01/5-bad-behavioue.jpg)
+
+How far we are from behaving like this when we are with fellow adults in general, and our lovers in particular. Here we know at once why they did a bad thing: because they are a terrible person. Because they’re trying to destroy us. Because they’re hateful.
+
+But if we employed the infant model of interpretation, we would do something very different. We would, almost unconsciously, before looking elsewhere, ask ourselves those five very same questions:
+
+1. Might they be tired?
+2. Might they be hungry?
+3. Might they be sad?
+4. Might someone have hurt them?
+5. Might they need a cuddle?
+
+It’s very touching that we live in a world where we have learnt to be so kind to children: it would be even nicer if we learnt to be a little more generous towards the childlike parts of one another.
+
+It sounds strange at first – and even condescending – to keep in mind that in crucial ways other adults always remain childlike in part. But this way of seeing a person may be a helpful strategy for managing times when they are very difficult to cope with.
+
+When people fall far short of what we ideally expect from grown up behaviour and we dismissively label such attitudes as ‘childish’, we are,&nbsp;without quite realising it, approaching a hugely constructive idea. We see it simply as an accusation, rather than what it truly is: a recognition of an ordinary feature of the human condition.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/01/10614909766_0117b7c1dd_z.jpg)
+
+©Flickr/Russ
+
+Adulthood simply isn’t a complete state; what we call childhood lasts (in a submerged but significant way) all our lives. Therefore, some of the moves we execute with relative ease around children must forever continue to be relevant when we’re dealing with another grown-up.
+
+Being benevolent to another person’s inner child doesn’t mean infantilizing them. It means being charitable in translating things they say in terms of their deeper meaning. ‘You’re a bastard’ might actually be a way of trying to say ‘I feel under siege at work and I’m trying to tell myself I’m stronger and more independent than I really feel.’
+
+We’d ideally give more space for soothing rather than arguing; instead of taking our partner up for something annoying they’ve said, we’d see them like an agitated child who is lashing out at that the person they most love because they can’t think of what else to do. We’d seek to reassure and show them that they are still OK, rather than (as is so tempting) hit back with equal force.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/01/6170386317_edd29e47bf_z.jpg)
+
+©Flickr/Claudio Sabia
+
+Of course, it’s much much harder being grown-up around another adult whose inner child is on display than it is being with an actual child. That’s because you can see how little and undeveloped a toddler or a five year old is, so sympathy comes naturally. We know it would be a disaster to suddenly turn on the child and try to hold them fully responsible for every moment of their conduct. Psychology has been warning us for half a century or more that this isn’t the right route.
+
+We are so alive to the idea that it’s patronising to be thought of as younger than we are that we forget that it is also, at times, the greatest privilege for someone to look beyond our adult self in order to engage with – and forgive – the disappointed, furious, inarticulate or wounded child within.

@@ -1,0 +1,73 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Compatibility](https://www.theschooloflife.com/thebookoflife/category/relationships/compatibility/): [47. What Is Your Attachment Style?](https://www.theschooloflife.com/thebookoflife/what-is-your-attachment-style/)
+
+* * *
+
+# What Is Your Attachment Style?
+
+One of the greatest questionnaires in the history of 20th-century psychology had a modest start in the pages of a local Colorado newspaper&nbsp;_The Rocky Mountain News_ in July 1985. The work of two University of Denver psychologists Cindy Hazan and Phillip Shaver, the questionnaire asked readers to identify which of three statements most closely reflected who they were in love.
+
+![Image result for rocky mountains](https://www.offthebeatenpath.com/wp-content/uploads/2016/11/rockymountains_region_main.jpg)
+
+To hugely improve our chances of thriving in relationships, we should dare to take the same test:
+
+_ **A:** I find it relatively easy to get close to others and am comfortable depending on them and having them depend on me. I don’t worry about being abandoned or about someone getting too close to me._
+
+_ **B:** I find that others are reluctant to get as close as I would like. I often worry that my partner doesn’t really love me or won’t want to stay with me. I want to get very close to my partner, and this sometimes scares people away._
+
+_ **C:** I am somewhat uncomfortable being close to others; I find it difficult to trust them completely, difficult to allow myself to depend on them. I am nervous when anyone gets too close, and often, others want me to be more intimate than I feel comfortable being._
+
+Behind the scenes, the options refer to the three main styles of relating to others first identified by the English psychologist John Bowlby, the inventor of Attachment Theory in the 1950s and 60s.
+
+**Option A** signals what is known as a _secure_ pattern of attachment, whereby love and trust come easily.
+
+**Option B** &nbsp;is known as _anxious_ attachment, where one longs to be intimate with others but is continuously scared of letdown and often precipitates crises in relationships through counter-productively aggressive behaviour.
+
+And **Option C&nbsp;** refers to the _avoidant_ pattern of attachment, where it feels much easier to avoid the dangers of intimacy through solitary activities and emotional withdrawal.
+
+Questionnaires in newspapers are rarely of much use but Hazan’s and Shaver’s is the momentous exception. If there is one thing we should do to improve our relationships, it is to know which of the three categories we predominantly belong to – and to deploy the knowledge in love so as to warn ourselves and others of the traps we might fall into.
+
+We then need a little training because half of us at least are not secure in love; we belong in the camps of either the avoidant or the anxious, and we have – to complicate matters – an above average propensity to fall in love with someone from the other damaged side, thereby aggravating our insecurities and defences in the process.
+
+![Niccolo Pisano An Idyll: Daphnis and Chloe](https://i.guim.co.uk/img/static/sys-images/Guardian/About/General/2013/12/30/1388426053991/Niccolo-Pisano-An-Idyll-D-001.jpg?w=300&q=55&auto=format&usm=12&fit=max&s=9360f9c91ae0618234fd52f596f8e79d)
+
+Here is a brief list of what avoidants and anxious types should keep in mind in their relationships:
+
+IF YOU ARE AN AVOIDANT WITH SOMEONE ANXIOUSLY ATTACHED
+
+Recognise the extent to which you check out emotionally when things are intense, particularly when there is an offer of closeness.
+
+Recognise how you will tend to prefer sex and closeness with strangers and how nervous you will be around cuddles and kissing. You probably don’t want the light on either.
+
+Watch how you sabotage long-term intimacy.
+
+Have compassion that you are afraid of what you really want.
+
+Think back to how in your past, closeness would have been frightening because people let you down, and observe how you adopted a strategy of removal to protect yourself. You are hurt, not bad.
+
+Remind yourself that the present is different from the past and that you are ruining the present by bringing to it fear-laden dynamics that don’t belong there.
+
+It may feel like your partner is being aggressive and ill-tempered with you for no reason; they are at heart upset and unable to express their needs in any other way. They want you; and that is why they are behaving as they are.
+
+Look beneath their nagging and their accusations and believe in their underlying goodwill.
+
+When they attack you, see their longing for love.
+
+Do that very frightening thing: extend reassurance. And explain, calmly, the appeal of the cave.
+
+IF YOU ARE AN ANXIOUS PERSON WITH AN AVOIDANT PARTNER
+
+Things are not necessarily as bad as they seem.
+
+Their quiet might just be quiet, not a lack of love. Their distance isn’t meanness, it’s their way of maintaining equilibrium.
+
+You are not demented or ‘needy’ to want more; but your way of dealing with what you legitimately need is aggravating things hugely.
+
+You are triggering your partner by asking for intimacy too directly and also (probably) with too much anger.
+
+Realise that you need to tread lightly, and to be a little distant in requesting closeness.
+
+The partner isn’t mean or freakish; merely damaged – as are you. And that’s very normal. A full 40% of the population are in your positions.
+
+Knowing whether we can be classed as secure, avoidant or anxious in love should be a basic fact we grasp about ourselves. The next step is to accept with grace that if we are either avoidant or anxious, we will need considerable emotional schooling to get out of scratchy patterns and stand a chance of building up a good enough relationship.
+
+[![](https://img.youtube.com/vi/2s9ACDMcpjA/0.jpg)](https://www.youtube.com/embed/2s9ACDMcpjA '')

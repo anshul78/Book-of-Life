@@ -1,0 +1,29 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Marriage](https://www.theschooloflife.com/thebookoflife/category/relationships/marriage/): [202. What to Do on Your Wedding Night](https://www.theschooloflife.com/thebookoflife/what-to-do-on-your-wedding-night/)
+
+* * *
+
+# What to Do on Your Wedding Night
+
+Unfortunately, tradition has encouraged the idea that the night of the wedding should be filled with heroic sex. This _might_ happen but there are plenty of good reasons why it probably won’t after the drama of the wedding and a long party and partly, as well, because stringent expectations are alien to sexual intensity.
+
+![](https://i.pinimg.com/736x/79/ca/98/79ca980405e6feb051ee316ee1b09ff2--wedding-art-wedding-night.jpg)
+
+But the idea that sex is crucial is obviously not wrong – and the basic motive is right: the first night should be devoted to helping the couple with their sex-life.
+
+The question is how to do this. The assumption has been that great sex is the goal. But realistically what the married couple is preparing for is a life together in which sex will often be less than great and in which – increasingly over the years – sex will fade from view almost entirely. Instead of being spontaneous, inventive, impassioned and constant, sex will almost inevitably end up being intermittent, guarded and fraught.
+
+This isn’t a lovely prospect; it’s just what’s very likely to happen. And the couple will have to cope with it, if their marriage is to be bearable. At this great symbolic moment – in the special night after the wedding – a couple should ideally make together a series of vows around the attitudes they will try to adopt towards sex.
+
+_Wedding Night Vows_
+
+_Vow one: I understand &nbsp;that sometimes, perhaps tonight, sex will be disappointing; t__hat there will be times when I am really longing for sex and you will be busy, probably with a book or a phone. I promise to try not to see this as your fault._
+
+_Vow Two: I admit that it’s deeply unlikely that two people will be perfectly in harmony around what kind of sex they want. I promise to try not to see this a special curse on us._
+
+_Vow Three: I admit that if there are children they will often claim our attention at the least convenient moments. Our love for them will quite possibly inhibit us sexually; we’ll feel strange unleashing our stranger, more exciting desires – knowing how sweet and innocent they are. I promise to try to accept that if we have a child it will change our sex life probably for the worse and I won’t blame you._
+
+_Vow Four: I want to you to know that that I’ve been seriously turned on by you: I’ve found you at points monstrously and incredibly sexy. Probably sex will eventually become rare; but I promise I’ll try to remember how much I’ve lusted after you._
+
+_Vow Five: I understand that sex will only be as good as it can be: it won’t be everything I might fantasise it could be; I acknowledge that there will be areas of my sexuality that don’t make a great deal of sense to you; I promise I will try not to make you feel bad about this._
+
+The point of these mutual vows isn’t to diminish sexuality. By keeping the realistically bad prospects in view and anticipating them, they give a couple a better chance to find the best sex they can together. The danger isn’t that there are going to be challenges – that’s inevitable. It’s that the challenges will be seen as unfair and unreasonable and that resentment will build up to disastrous levels. The wedding night and its vows are aimed at reducing rancour.

@@ -1,0 +1,45 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Parenting](https://www.theschooloflife.com/thebookoflife/category/relationships/parenting/): [240. The Task of Parenthood](https://www.theschooloflife.com/thebookoflife/the-task-of-parenthood/)
+
+* * *
+
+# The Task of Parenthood
+
+Simply defined, the task of a good enough parent is to shepherd a human from babyhood to maturity. This comprises both a physical and an emotional dimension, physically involving such feats as the art of finding one’s mouth, putting on a sock, tying a shoe and combing the rear left side of one’s head. And emotionally, involving the arts of self-awareness, communication, realism and compromise.&nbsp;
+
+<figure class="aligncenter"><img src="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/03/Yamakawa-Chinese-Family-Photography-2.jpg" alt="" class="wp-image-24237" srcset="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/03/Yamakawa-Chinese-Family-Photography-2.jpg 640w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/03/Yamakawa-Chinese-Family-Photography-2-300x225.jpg 300w" sizes="(max-width: 640px) 100vw, 640px"></figure>
+
+The most basic and never to be forgotten fact about any infant is that it is necessarily born into a state of radical immaturity at the level of its capacity for emotional self-regulation. Over many long years, it must be guided into developing into that most prized but elusive of beings: an emotional adult. The distinction between adult and infant is, confusingly, never assured by age alone, nor can it be determined by simply looking at someone’s face and body, let alone their outward status or profession. There are nonagenarians who, in emotional aspects, are still mired in toddlerhood and nine year olds who – in their responses to life’s vicissitudes – rival many so-called grown-ups.
+
+The curriculum of emotional maturity, the journey between infancy and adulthood, covers some of the following transitions:
+
+– An infant believes, touchingly and unavoidably, that it is the center of the universe. An adult has had to learn, through considerable sorrow and inconvenience, that other humans appear to exist as well.
+
+– An infant insists vociferously on its wants, it is – in its rages – as categorical as a furious emperor. An adult has had to come to terms with the idea of compromise. It has learnt to be a diplomat. It has got to know that, oddly, there may be other points of view.
+
+– An infant believes that others around it will be able to understand its want and intentions without it needing to speak, that being loved means being magically understood – and falls into vicious sulks with those who do not correctly intuit its intentions. An adult has learnt the tedious requirement to speak calmly and explain the contents of its own mind: it has had to become a teacher of itself to others.
+
+– An infant cannot understand the influence of its body on its moods. It cannot tell that its despair has to do with tiredness or its excitement with an excess of sugar. An adult has learnt to coexist with its own body; it knows that at certain bleak-seeming moments, rather than giving up on humanity and its own life, it may simply need to get an early night.
+
+– An infant is a relentless idealiser: those who please it are wondrous creatures to whom it freely gives affection and tenderness. But by the same measure, those who frustrate it risk being framed as demons and monsters who deserve to be bitten or destroyed. An adult realises that there is no such thing as a wholly good or a bad person; it does not fall in love quite so regularly, and nor in hate.
+
+– An infant imagines that an adult must know exactly what it is doing. After all, it’s so big, it can kick a ball many metres into the air and drive a car. An adult knows how to tread a more nuanced path between trust and scepticism; it knows, in a benign way, that everyone is slightly making it up as they go along.
+
+– An infant is not aware of the pain or inconvenience it puts others to. It is blithely and beautifully self-absorbed. The adult has acquired a correct measure of the difficulties it causes others, especially those it loves; it can feel appropriate degrees of guilt; it can say sorry.
+
+– An infant is wildly and erratically afraid: of being eaten by tigers, of being destroyed by teachers, of being swept away by the wind. Some of these are its own aggressions projected outwards. The adult has correctly repatriated its fears. It has a sound sense of where terror belongs.&nbsp;
+
+– An infant is often either in tears or delighted. An infant is a creature of hope constantly buffeted by disappointment, and capable of being instantaneously thrown into rage or ecstasy. An adult has acquired a talent for poised melancholy interspersed with wry humour.&nbsp;
+
+– An adult doesn’t mind noticing aspects of its character that aren’t wholly mature. An adult knows that at moments, it will revert to infancy. A child, especially an adolescent one, will insist with telling and implausible vehemence that it is fully done with childhood.
+
+– An adult is someone who knows how to look after a child – chiefly because, somewhere in a very fortunate past, someone else has nurtured the childlike parts of them.
+
+These lessons and many others like it belong to the process known as emotional education. Tediously, this cannot be imparted quickly. It may take at least five times as long as learning how to master a foreign language to learn the rudiments of emotional intelligence. Patience therefore has to be one of the central prerequisites of any parental instructor. The module on the unyielding nature of reality will, for example, have to be taught on a thousand occasions before it takes root: over nounou’s broken eye, a sudden stain on a favourite pair of trousers, the end of screentime, the miserableness of going to bed, the boringness of the long car ride, the death of granny, the entirely unnecessary arrival of a sibling – and a thousand other tragedies, small and large, besides.&nbsp;
+
+Unlike a curriculum for a language, the emotional curriculum lacks a well-defined timetable. There aren’t crystal clear sections like those on the pluperfect or the use of the definitive article; one can’t limit lessons to Thursday afternoons or Monday mornings. There will be days when five separate learning modules have to be taught before breakfast is over – and without any warning of an upcoming challenge having been given. The child is at all times on the journey of striving to become a grown up. Every waking minute the young brain is pushing on to become the more mature self it is destined to become. This doesn’t mean that emotional maturity is what everyone will eventually accede to, no more than that every oak tree will reach the forty meters of which it is biologically capable; it simply means that this is the direction an infant is oriented towards and will be striving for unless impediments are placed in its way.
+
+<figure class="aligncenter"><img src="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/03/Yamakawa-Chinese-Family-Photography-9.jpg" alt="" class="wp-image-24242" srcset="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/03/Yamakawa-Chinese-Family-Photography-9.jpg 640w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/03/Yamakawa-Chinese-Family-Photography-9-300x225.jpg 300w" sizes="(max-width: 640px) 100vw, 640px"></figure>
+
+It is worth emphasising that all elements of immaturity – egocentricity, boastfulness, idealisation and so on – belong to health at a given age. The child has to go through every stage of madness and wilfulness in order one day to settle into an authentically mature position.
+
+Parents who succeed at teaching the emotional curriculum should not expect particular prizes or signs of gratitude. The reward – if and when it comes – will be more indirect but all the more sincere for that: an offspring who is inwardly alive, who can be kind to themselves and knows how to care for a less mature, still struggling creature, most pointedly, their own offspring.

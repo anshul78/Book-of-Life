@@ -1,0 +1,65 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Dating](https://www.theschooloflife.com/thebookoflife/category/relationships/dating/): [30. A Brief History of Dating](https://www.theschooloflife.com/thebookoflife/a-brief-history-of-dating/)
+
+* * *
+
+# A Brief History of Dating
+
+Our present dating habits can feel like a natural part of existence, but in reality, they’ve only been around for a very short time and, we predict, won’t continue for too much longer in their current form. Dating has a history, which it pays to try to understand as we navigate the ritual’s paradoxical and often confusing priorities.
+
+Let’s take a selective look backwards – as well as a peak forwards – at the history and future of dating:
+
+_27 March 1489, Medina del Campo, Spain_
+
+In a treatise signed between England and Spain, the two-year-old Tudor prince Arthur is formally engaged to Catherine of Aragon – who is at that point three years old. It’s an extreme example of what is an entirely normal practice all over the world in the pre-modern era: relationships are strategic transactions between families, where the feelings of the couple themselves are of no importance whatsoever. The idea that you might love, let alone be physically attracted to, the person you end up with would be deemed profoundly irresponsible, if not plain peculiar.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/07/600px-Juan_de_Flandes_002.jpg)
+
+_July 1761, Amsterdam, Netherlands_
+
+The publication of _Julie_, a novel by the French Romantic philosopher Jean-Jacques Rousseau, which becomes the fastest selling book ever written. The novel tells the story of Julie, a beautiful young woman from an aristocratic family who is expected to marry someone of her standing – but, contrary to all the rules, falls in love with her middle-class teacher, Saint-Preux. However, they cannot get married because of the differences in their social status. Rousseau is on the side of the unhappy couple – and his novel is the first major statement of the idea that relationships should essentially be founded on the feelings that exist between people, and have nothing to do with class, lineage or family concerns. But, as yet, Rousseau and his novel see no way of upturning the social order: you still marry who your parents and society tell you, but now at least, with Rousseau’s help, you can feel very sorry that you have to.
+
+_March 1855, Rome, Italy_
+
+In the major Italian novel of the 19th century, _I Viceré_, by Federico di Roberto, two characters, Lucrezia and Benedetto, are in love but can’t marry because Lucrezia’s mother refuses to give her permission on the grounds of social propriety. Crucially, the mother is shown to be old-fashioned and narrow-minded; couples formed by ‘reason’ are, the novelist suggests, a lot less happy than those guided by instinct. The book works with the growing Romantic assumption that relationships should be based on sentiment and that the best chances of finding someone we can get on well with over a lifetime is not to find out what their job is or whether they come from a good family, but whether we experience an overwhelming physical and emotional attraction in their presence. Marriage must be a union consecrated by feeling.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/07/635px-Lodewijk_XIV-Marriage.jpg)
+
+_1892, London, England_
+
+The most successful comic play of the year – _Charley’s Aunt_ – turns on the fact that Charley has invited Kitty to lunch on a date but, at the last minute, learns that his aunt won’t be able to join them. This creates a panic because a dating couple should have a chaperone, an older woman whose presence will ensure that nothing very intimate can be said or done. Charley’s solution is to get a male friend to put on a dress and impersonate his relative. The comedic atmosphere of the play suggests that the old rules around dating are firmly on their way out and are accepted as having some of the fustiness of a maiden aunt. The audience is meant to agree that dating is for the best when couples are left on their own to discover how they feel; there should even be a kiss at the end if things go swimmingly, as they do for Charley and Kitty.
+
+_1914, Eastbourne, England_
+
+The young George Orwell gets into trouble at school when he is caught reading _Youth’s Encounter_ by Compton Mackenzie: the first novel published in England that describes unsupervised adolescent dating. We’re starting to move beyond the odd chaste kiss: dating starts to be about sex as well.
+
+_June 23, 1960, Washington DC, USA_
+
+The US Food and Drug Administration approves the first oral female contraceptive pill. The idea that a date can happily and uncomplicatedly lead to sex becomes not only an emotional but now also a practical possibility.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/07/640px-Maria_Muldaur_1969.jpg)
+
+_Los Angeles, 1998_
+
+Speed dating is invented and the romantic comedy _You’ve Got Mail_ – the first major film based around online dating – is released. Both encourage the idea that it’s important to search very widely before selecting a possible partner. By now all the elements of modern dating are finally in place: firstly, parents have nothing to do with it; secondly, all considerations of money and social status are deemed ‘un-Romantic’ and unimportant; thirdly, you are meant to be swiftly emotionally drawn to someone in order for a relationship to be deemed legitimate and viable in the long term; fourthly, sex is interpreted as a central part of getting to know someone – and lastly, you’re meant to have a lot of dates (and possibly meet quite a few horrors on the way) before finally and happily settling down with that archetypal figure of the modern dating scene: The One.
+
+_Brussels, March 2009_
+
+The European Union releases a report that reveals that 50% of married couples in countries across the union end up divorced after fifteen years. Though entirely ignored by Europe’s dating couples, the report quietly raises the question of whether instinct is really any better guide to a good conjugal life than the old parental or societal rules used to be – as well as hinting at how much more miserable we can end up being when the sole justification for relationships is understood to be the intense emotional and sexual happiness of the two participants.
+
+Might there be another way to find our partners going forward? Where might dating be headed in the future?
+
+_Singapore, May, 2075_
+
+Artificial Intelligence has finally arrived, human nature has at last accurately been understood – and dating as we know it dies. For the first time, machines can entirely accurately predict who should belong with whom. Internet dating algorithms, for so long about as faulty as medieval brain surgery, achieve their promise: machines now swiftly find for us the optimal choice of partner for a lifetime together. They know who is available, what our quirks are, and who out there can best compliment them. All the rigmarole of dating in the Romantic era is done away: we no longer have to wonder whether we have found the ‘right’ person; a machine that we trust as much as we now trust doctors, tells us when we have located our destiny. We no longer have to rely on chance or random encounters. We no longer have to keep asking our friends and hoping to be introduced. We don’t have to listen to our parents, we don’t have to take along a maiden aunt, and nor do we have to listen to those equally unreliable entities, our subjective feelings. Couples are not always deliriously happy, but they at least have the satisfaction of knowing that they are with the person they _should_, all things being equal, be with.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/07/6042509138_f92f0e2119_b.jpg)
+
+© Flickr/Ilana
+
+Way back in 1489, there wasn’t any choice for Prince Arthur and Catherine of Aragon; now there is no choice either, but in 2075, it is a psychological machine that has determined the choice.
+
+Occasionally, people get a little nostalgic and curious about the old-fashioned, rather haphazard and sometimes thrilling Romantic way of dating. Some of them might dress up and recreate the ritual, like people who nowadays have fun on weekends trying out what it was like to row in a long-boat or live in a wigwam…
+
+All of which should give us a humbling sense of how particular and complicated contemporary dating truly is. We shouldn’t blame ourselves if, at the end of yet another barren or ambiguous date, we feel in need of a little guidance.
+
+[![](https://img.youtube.com/vi/Ob14PcHtazQ/0.jpg)](https://www.youtube.com/embed/Ob14PcHtazQ '')

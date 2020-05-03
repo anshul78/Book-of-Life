@@ -1,0 +1,33 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Compatibility](https://www.theschooloflife.com/thebookoflife/category/relationships/compatibility/): [43. Why Anxious and Avoidant Partners Find It Hard to Leave One Another](https://www.theschooloflife.com/thebookoflife/why-anxious-and-avoidant-partners-find-it-hard-to-leave-one-another/)
+
+* * *
+
+# Why Anxious and Avoidant Partners Find It Hard to Leave One Another
+
+There is a certain sort of relationship that is alternately passionate, fiery and painfully unfulfilling – and that tends to puzzle both outsiders and its participants; a relationship between one person who is, as psychologists put it, anxiously attached and another who is avoidantly attached.
+
+There is, in such couplings, a constant game of push and pull. The anxiously attached party typically complains – more or less loudly – that their partner is not responsive enough: they accuse them of being emotionally distant, withholding, cold and perhaps physically uninterested too. The avoidant lover, for their part, stays relatively quiet but in their more fed-up moments, complains that the anxious party is far too demanding, possibly ‘mad’ and, as they put it pejoratively, ‘needy’. One person seems to want far too much, the other far too little.
+
+![Image result for william eggleston](https://biblioklept.files.wordpress.com/2017/08/eggleston-tomatoes.jpg)
+
+The unhappiness unfolds in a cycle. At the start, the anxious partner loves the avoidant one with great intensity – but, in time, also growing frustration.&nbsp;The dissatisfaction grows ever more intense until, eventually one day, fed up with so much seeming rejection, the anxious partner overcomes their fears, decides they need something better and tells their lover that they’re off.
+
+At which point, the avoidant party undergoes a complete seachange. Their greatest fear, that of being engulfed in love, disappears at a stroke and reveals something that is normally utterly submerged in their character: a fear of being abandoned. Wholly liberated from the threat of being engulfed (the anxious one may by now have packed their bags), the avoidant one gives free reign to all their reserves of pent up romanticism and ardour – which feel utterly safe to bring out, now that there seems so little danger of reciprocation.
+
+Despite their fury, the anxious person hears the honeyed words and forthright promises, and – after some initial doubts – can’t help but be won over. The formerly distant partner appears to have become, in the nick of time, as they’d always wanted them to be, a warm soul. There is no reason not to return: after all, it’s not that they didn’t love this person, it was the feeling they weren’t loved back that was making things impossible…
+
+![Image result for william eggleston](https://media.timeout.com/images/103231820/630/472/image.jpg)
+
+For a time, there is bliss – and it seems that the couple are headed for long-term happiness. Liberated from their anxiety around engulfment, the avoidant partner gives free expression to love; liberated from their fear of abandonment, the anxious one is left feeling secure and trusting.
+
+But soon enough the problems return. Things become, as it were, too nice for the avoidant partner. It seems the anxious one isn’t going to leave them any more, they’re just going to stick around and seek ever greater closeness – and so the old fear of engulfment returns. They have no option but to start to pull away again and get distant, which gradually proves intolerable once again to the anxious partner. Within weeks or months, the pair are back in the same situation. Fierce arguments are back: the words needy and cold are once more in circulation. It’s time for another crisis and another threat of departure.
+
+It may go on like this for years, or a lifetime… From the outside, it is almost funny. From the inside, it is hellish.
+
+There are a few ways out: the avoidant party can realise, and learn to tolerate their fear of engulfment. The anxious party can grow conscious of their unnatural pull towards unfulfilling people, refuse to go back after a crisis and seek a future with more secure and reassuring sorts.
+
+![Image result for william eggleston](https://img.thedailybeast.com/image/upload/d_placeholder_euli9k/dpr_2.0/c_limit,w_585/fl_lossy,q_auto/v1/galleries/2016/11/03/the-best-of-photographer-william-eggleston/1611001-Jones-William-Eggleston-GAL-06_bg8rda)
+
+Or, yet more hopefully, both partners can acquire the vocabulary of attachment theory, come to observe their repetitions, gain some insight into aspects of their childhoods that drive them on – and learn not to act out their compulsions. They can learn the games they are unconsciously playing – and then, to the relief of all who care for them and to the redemption of their relationship, refuse to play them any longer.
+
+[![](https://img.youtube.com/vi/e9EgUvfgojY/0.jpg)](https://www.youtube.com/embed/e9EgUvfgojY '')

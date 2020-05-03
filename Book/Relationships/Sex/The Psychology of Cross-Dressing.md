@@ -1,0 +1,29 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Sex](https://www.theschooloflife.com/thebookoflife/category/relationships/sex/): [80. The Psychology of Cross-Dressing](https://www.theschooloflife.com/thebookoflife/the-psychology-of-cross-dressing/)
+
+* * *
+
+# The Psychology of Cross-Dressing
+
+Cross-dressing (and here we refer particularly to men dressing up as women) could hardly have a worse reputation. The concept of a man taking pleasure in putting on a pair of stockings seems laughable, pitiful – and plain sinister. We assume a marriage would almost certainly break up the day a wife found her husband in her underwear; and that a manager would lose all authority if his colleagues knew about his enthusiasm for mascara and lipstick. Cross-dressing seems like an admission of failure. Instead of living up to an ideal of strength, ruggedness and sheer ‘normality’, a man keen to slip on a dress is taken to be a deviant of a particularly alarming sort.
+
+![](http://41.media.tumblr.com/f0afec41fd199da8296e13489d783b3f/tumblr_n5ox7ghJj71retxoxo1_1280.png)
+
+But in truth, cross-dressing is grounded in a highly logical and universal desire: the wish to _be_, for a time, the gender one admires, is excited by – and perhaps loves. Dressing like a woman is merely a dramatic, yet essentially reasonable, way of getting closer to the experiences of the sex&nbsp;one is profoundly curious about – and yet has been (somewhat arbitrarily) barred from. We know cross-dressing well enough in other areas of life and there think nothing of it. A five-year-old boy living in a suburb of Copenhagen who develops an interest in the lifestyle and attitudes of the cow herders of the Arizona plains would be heartily encouraged to dress up in a hat, jeans and waistcoat and aim his pistol at an imaginary Indian chief – so as to assuage his desire to get a little closer to the subject of his fascination.
+
+![](http://wallzoa.com/wp-content/uploads/2013/06/western-cowboy-wallpaper.jpg)
+
+We should accept that the adult cross-dresser is no different. He too wants to inhabit the experiences of a group of people he is keen on. He seeks to know what it would be like to cross his legs in a tight cocktail dress, to walk across a marble floor in a pair of heels, to feel a grey cotton bra strap encasing his back, to put a little silver bracelet around his wrist, to feel the breeze on his bare waxed arms and to stroke his smooth long legs in the bath. He might extend to imagining what it would be like to kiss a man as a woman, to feel bristles that are normally his on lips as soft as those of the lovers he has known. Admiring himself in the mirror in a pair of black tights, the cross dresser samples the intense, fascinating satisfaction of being simultaneously himself _and_ the object of his desire.
+
+![](http://feminizationsecrets.com/wp-content/uploads/2014/01/crossdressing-pantyhose.jpg?796fdb)
+
+Though it may sound peculiar, in all this, the transvestite is only guided by the sort of questions that we otherwise admire greatly in the writing – and reading – of fiction. What makes _Anna Karenina_ moving is the intensity with which Tolstoy was able to imagine the experiences of a glamorous married woman in love with a handsome army officer. To write _Mansfield Park_, Jane Austen had to learn how to dress up not only in the grey simple frocks of an impoverished sixteen-year-old schoolgirl (her heroine Fanny Price) but also the braided jackets of a middle-aged swaggering member of the aristocracy (Sir Thomas Bertram) and the black waistcoat of a sensitive would-be clergyman (Edmund Bertram). The balding, heavily mustachioed Flaubert famously explained to his girlfriend Louise Colet that his heroine Emma Bovary had become for him more than a woman he was describing as a dispassionate observer of a fictional landscape: his identification with her was so total, he felt he had quite literally _become_ her. It was understandable, therefore, that he should have added to Louise that he had just masturbated at the idea of _being Emma_, lying back with her arms above her head, on a bed in a little hotel in Rouen, being powerfully penetrated by the local landowner Rodolphe.
+
+**[![bovary](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/12/bovary.png)](http://www.thebookoflife.org/wp-content/uploads/2015/12/bovary.png)**
+
+Transvestism is a way of tapping into our birthright of universal citizenship: it’s the most dramatic protest against being imaginatively bounded by the particular gender-province we happen to have been born into. Crossdressing enacts the great philosophical principle expressed by the Roman playwright, Terence: _Homo sum, humani nihil a me alienum puto_: I am human, nothing human (including mini skirts or a hair band) is alien to me.
+
+It may of course be a bit disturbing to sense that one is really not so firmly anchored to the gender one was born into. It may be bewildering to have to accept that one is at heart, in the semi-conscious mind, always going to be something far more diverse, multi-faceted but also perhaps interesting than a mere ‘man’ or a ‘woman’.
+
+![](https://s-media-cache-ak0.pinimg.com/736x/04/53/20/04532078d3827bebc60e27a414ff79c7.jpg)
+
+We shouldn’t be scared. Across a range of important fields of life, we can accept that our original identity and status shouldn’t be regarded as decisive; and know the value of extending our sympathies through art, travel and the work of the imagination. The transvestite is doing nothing more than practicing some basic empathetic moves with which we are already very comfortable in many areas. Although we haven’t fully recognised it yet, cross-dressing is a very normal thing to do.

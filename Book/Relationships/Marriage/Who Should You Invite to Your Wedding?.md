@@ -1,0 +1,13 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Marriage](https://www.theschooloflife.com/thebookoflife/category/relationships/marriage/): [203. Who Should You Invite to Your Wedding?](https://www.theschooloflife.com/thebookoflife/who-should-you-invite-to-your-wedding/)
+
+* * *
+
+# Who Should You Invite to Your Wedding?
+
+You don’t just need your close friends – because they will usually be indulgent to your failings; you need quite an intimidating audience – people who have travelled a long way; people you are slightly in awe of; people whose good opinion is important to you; people who are a bit sceptical of you. You might ask along some senior people from work (especially if you are not personal friends with them); a teacher from your school days that you admired and wanted to do your best for would be perfect; a crotchety aunt or a forbiddingly impressive friend of your parents might be good people to invite. The point isn’t that you should feel comfortable around them – but rather that you should feel especially uncomfortable at the prospect of quitting the relationship after having said, in front of them, that you never would.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/08/Edmund_Blair_Leighton_-_signing_the_register.jpg)
+
+There’s a growing trend, often driven by financial concerns, towards slightly smaller weddings but a big crowd is, in fact, supremely important (even if the budget only stretches to a sandwich for them later). One needs a maximum number of people there for a simple reason: so as to cause maximum embarrassment in years to come at the idea of having to call them all up and announce news of divorce. The larger the crowd, the slower one will be to pick up the phone.
+
+This gives due recognition to an important fact about marriage: it’s a social institution, in which we often stay for reasons that go way beyond our own emotional desires. It involves us, but it’s not just about us. It’s about the dog, the children, the grandparents, the friends who got married in imitation of us and whose own relationships would suffer if we split… This sense that the marriage isn’t just about us should come as a huge source of relief. There’s nothing harder than to be required to be happy in and for ourselves. What relief to know we will, with time, also be living for others and that our own frame of mind won’t always be such a big deal.

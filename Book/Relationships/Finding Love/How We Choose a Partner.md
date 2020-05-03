@@ -1,0 +1,75 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Finding Love](https://www.theschooloflife.com/thebookoflife/category/relationships/finding-love/): [21. How We Choose a Partner](https://www.theschooloflife.com/thebookoflife/how-we-choose-a-partner/)
+
+* * *
+
+# How We Choose a Partner
+
+How do we choose the people we fall in love with? The Romantic answer is that our instincts naturally guide us to individuals who are kind and good for us. Love is a sort of ecstasy that descends when we feel ourselves in the presence of a benign and nourishing soul, who will answer our emotional needs, understand our sadness and strengthen us for the hard tasks of our lives. In order to locate our lover, we must let our instincts carry us along, taking care never to impede them through pedantic psychological analysis and introspection or else considerations of status, wealth or lineage. Our feelings will tell us clearly enough when we have reached our destiny. To ask someone with any degree of rigour why exactly they have chosen a particular partner is – in the Romantic world-view – simply an unnecessary and offensive misunderstanding of love: true love is an instinct that accurately and naturally settles on those with a capacity to make us happy.
+
+The Romantic attitude sounds warm and kind. Its originators certainly imagined that it would bring an end to the sort of unhappy relationships previously brokered by parents and society. The only difficulty is that our obedience to instinct has, very often, proved to be a disaster of its own. Respecting the special feelings we get around certain people in nightclubs and train stations, parties and websites and that Romanticism so ably celebrated in art appears not to have led us to be any happier in our unions than a Medieval couple shackled into marriage by two royal courts keen to preserve the sovereignty of a slice of ancestral land. ‘Instinct’ has been little better than ‘calculation’ in underwriting the quality of our love stories.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/34423974924_7259678915_z.jpg)
+
+© Flickr/Emanuele Toscano
+
+Romanticism would not at this point, however, give up the argument quite so easily. It would simply ascribe the difficulties we often have in love to not having looked hard enough for that central fixture of Romantic reverie: _the right person_. This being is inevitably still out there (every soul must have its soulmate, Romanticism assures us), it is just that we haven’t managed to track them down – yet. So we must continue the search, with all the technology and tenacity necessary, and maybe, once the divorce has come through and the house has been sold, we’ll get it right.
+
+But there’s another school of thought, this one influenced by psychoanalysis, which challenges the notion that instinct invariably draws us to those who will make us happy. The theory insists that we don’t fall in love first and foremost with those who care for us in ideal ways, we fall in love with those who care for us in **_familiar ways_**. Adult love emerges from a template of how we should be loved that was created in childhood and is likely to be entwined with a range of problematic compulsions that militate in key ways against our chances of growth.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/14098365506_6c70959b4c_z.jpg)
+
+© Flickr/Sascha Kohlmann
+
+We may believe we are seeking happiness in love, but what we are really after is familiarity. We are looking to re-create, within our adult relationships, the very feelings we knew so well in childhood – and which were rarely limited to just tenderness and care. The love most of us will have tasted early on was confused with other, more destructive dynamics: feelings of wanting to help an adult who was out of control, of being deprived of a parent’s warmth or scared of his or her anger, or of not feeling secure enough to communicate our trickier wishes. How logical, then, that we should as adults find ourselves rejecting certain candidates not because they are wrong but because they are a little too right – in the sense of seeming somehow excessively balanced, mature, understanding and reliable – given that in our hearts, such rightness feels foreign and unearned. We chase after more exciting others, not in the belief that life with them will be more harmonious, but out of an unconscious sense that it will be reassuringly familiar in its patterns of frustration.
+
+Psychoanalysis calls the process whereby we identify our partners ‘object choice’ – and recommends that we try to understand the factors semi-consciously governing our attractions in order to interrupt the unhealthier patterns that might be at play. Our instincts – our strong undercurrents of attraction and revulsion – stem from complicated experiences we had when we were far too young to understand them, and which linger in the antechambers of our minds.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/13938506188_faea591a9b_z.jpg)
+
+© Flickr/DVIDSHUB
+
+Psychoanalysis doesn’t wish to suggest that everything about our attractions will be deformed. We may have quite legitimate aspirations to positive qualities: intelligence, charm, generosity… But we are also liable to be fatefully drawn towards trickier tendencies: someone who is often absent, or treats us with a little disdain, or needs to be surrounded all the time by friends, or cannot master their finances.
+
+However paradoxical it can sound, without these tricky behaviours, we may simply not be able to feel passionate or tender with someone. Alternatively, we may have been so traumatised by a parental figure, we cannot approach any partner who shares qualities with them of any kind, even ones disconnected from their negative sides. We might in love be rigidly intolerant of anyone who is intelligent, or punctual or interested in science, simply because these were the traits of someone who caused us a great deal of difficulty early on.
+
+[![14434489798_c335a7205f_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/14434489798_c335a7205f_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/04/14434489798_c335a7205f_z.jpg)
+
+© Flickr/Patrik Nygren
+
+To choose our partners wisely, we need to tease out how our compulsions to suffering or our rigid flights from trauma may be playing themselves out in our feelings of attraction. A useful starting place is to ask ourselves (perhaps in the company of a large sheet of paper, a pen and a free afternoon) what sort of people really put us off. Revulsion and disgust are useful first guides because we are likely to recognise that some of the traits that make us shiver are not objectively negative and yet feel to us distinctly off-putting. We might, for example, sense that someone who asks us too much about ourselves, or is very tender or dependable, will seem extremely eerie and frightening. And we might equally well, along the way, recognise that a degree of cruelty or distance belong to an odd list of the things we appear genuinely to need in order to love.
+
+It can be tricky to avoid self-censorship here, but the point isn’t to represent ourselves as reassuring, predictable people, but to get to know the curious quirks of our own psyches. We’ll tend to find that some ostensibly pretty nice things are getting caught in our love filters: people who are eloquent, clever, reliable, sunny can set off loud alarms. This is vital knowledge. We should pause and try to fathom where the aversions come from, what aspects of our past have made it so hard for us to accept certain sorts of emotional nourishment.
+
+[![6075559595_12c5c196da_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/6075559595_12c5c196da_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/04/6075559595_12c5c196da_z.jpg)
+
+© Flickr/Samuel Ramkalawan
+
+Each time we recognise a negative, we’re discovering a crucial association in our own minds: we’re alighting on an impossibility of love based on associations from the past projected onto the present.
+
+An additional way we can get at the associations which circulate powerfully in the less noticed corners of our brains is to finish stub-sentences, that invite us to respond to things that might charm or repel us about someone. We get to see our own reactions more clearly when we write things down without thinking too much about our answers, catching the mind’s unconscious at work. For instance, we can deliberately jot the first things that come into our heads when we read the following:
+
+If I tell a partner how much I need them, they will…
+
+When someone tells me they really need me, I…
+
+If someone can’t cope, I…
+
+When someone tells me to get my act together, I …
+
+If I were to be frank about my anxieties …
+
+If my partner told me not to worry, I’d…
+
+When someone blames me unfairly, I …
+
+Our honestly described reactions are legacies. They are revealing underlying assumptions we have acquired about what love can look like. We may start to get a clearer picture that our vision of what we are looking for in another person might not be an especially good guide to our personal or mutual happiness.
+
+[![6783298985_73b566a57e_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/6783298985_73b566a57e_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/04/6783298985_73b566a57e_z.jpg)
+
+© Flickr/waferboard
+
+Examining our emotional histories, we see that we can’t be attracted to just anyone. Getting to know the past, we come to recognise our earlier associations for what they are: generalisations we formed – entirely understandably – on the basis of just one or, hugely impressive, examples. We’ve unknowingly turned some local associations into strict rules for relationships.
+
+Even if we can’t radically shift the pattern, it’s useful to know that we are carrying a ball and chain. It can make us more careful of ourselves when we feel overwhelmed by a certainty that we’ve met the one, after a few minutes chatting at the bar. Ultimately, we stand to be liberated to love different people to our initial ‘types’, because we find that the qualities we like, and the ones we very much fear, are found in different constellations from those we encountered in the people who first taught us about affection, long ago in a childhood we are starting at last to understand and free ourselves from.
+
+[![](https://img.youtube.com/vi/IuV80wYRld0/0.jpg)](https://www.youtube.com/embed/IuV80wYRld0 '')

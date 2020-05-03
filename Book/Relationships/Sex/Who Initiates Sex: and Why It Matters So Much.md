@@ -1,0 +1,35 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Sex](https://www.theschooloflife.com/thebookoflife/category/relationships/sex/): [70. Who Initiates Sex: and Why It Matters So Much](https://www.theschooloflife.com/thebookoflife/who-initiates-sex-and-why-it-matters-so-much/)
+
+* * *
+
+# Who Initiates Sex: and Why It Matters So Much
+
+It can seem a highly trivial subject to get so upset about – being rightly no more significant than who should open the door first, or open a new jam jar first. And yet, judging from the heartache it tends to generate, it appears to matter very much indeed. It’s at the root of many affairs, it is the catalyst for vicious arguments and bitterness, the long-term future of small children can be decided by it – and couples routinely end up in therapy or (more often) the divorce courts because of it.
+
+At the heart of the drama are all the complexities involved when, late at night, in the darkness, one person’s hand moves over to tentatively touch the other’s body in a way that signals a desire to initiate either sex or a cuddle – and nothing much happens in return.
+
+This move ends up being so much more fraught than one might imagine because it has so little to do with making love: it’s about knowing that we are wanted. The willingness to initiate sex can appear like the litmus test of whether one is appreciated within the relationship as a whole – and therefore whether a couple remains a going concern or not. For one person never to initiate, or else merely to respond half-heartedly to caresses, is tantamount to declaring that they cannot possibly love the person they are with.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/08/40017883444_a944ae5a5e_z.jpg)
+
+©Flickr/Roman Boed
+
+In truth, a lack of initiation or response can mean many things. It may, at points, simply be a sign of exhaustion after a long day of childcare or office work. Sometimes an untouched hand is just an untouched hand. The real problem in the ambiguous darkness of the bedroom is not a lack of reciprocation per se, it is the way that that ambiguity is interpreted: the way that assumptions are formed without discussion – and grave offence is taken without the topic having first been aired.
+
+Beneath this lies a more pernicious problem still: shame. Unreciprocated touch becomes properly dangerous when it comes into contact with a &nbsp;high degree of self-suspicion or self-hatred on the part of the person who has dared to slide their hand across. What might merely have been judged an innocent or temporary lack of enthusiasm comes to be taken – silently and automatically – as evidence of something far more catastrophic: proof that the other person finds one disgusting.
+
+Ideally, if we all loved ourselves enough, we would know better what to do when we moved a hand across and we did not get much in return: we would address the matter within the couple through calm and kindly discussion and tried to determine what was at stake.
+
+If the evidence pointed squarely to a profound lack of interest or emotional capacity, we would leave. After all, there is nothing wrong with ending up sharing a bed with an emotionally or physically withholding partner; there is something very wrong, or at least very unfortunate, with sticking around once one knows this is the case.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/08/6253073496_458b265aac_o.jpg)
+
+©Flickr/Joe Wolf
+
+But these are not options open to us when we feel overly ashamed. Our unresponsive partners reinforce pre-existing feelings of unacceptability that render us bitter, mute and fragile. A history of not knowing how to value ourselves makes it extremely difficult for us to complain effectively about unfortunate treatment – let alone leave in order to seek warmer lovers elsewhere.
+
+As self-hating lovers, we cannot say, with the requisite calm and strategic patience, that we feel rejected, need to be understood and are looking for change. We will either say nothing at all and might have an affair – or else explode into a rage that guarantees our message won’t be heard. We won’t have the courage to interrogate the signs and adroitly change the course of the relationship in response.
+
+In the tensions around unreciprocated touch, we catch sight of a more general problem in love: the difficulties created when we aren’t able to ask for what we want in a relationship, when we suffer from a sense that we don’t deserve to be content and cannot handle frustration or respond to our misery adequately. We should not leave the untouched hand for too long in the darkness. We should dare to switch on the light, express our pain and consider our options without shame.
+
+[![](https://img.youtube.com/vi/gIUjpXAcH64/0.jpg)](https://www.youtube.com/embed/gIUjpXAcH64 '')

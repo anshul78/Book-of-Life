@@ -1,0 +1,35 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Compatibility](https://www.theschooloflife.com/thebookoflife/category/relationships/compatibility/): [54. Why Tiny Things about Our Partners Drive Us Mad](https://www.theschooloflife.com/thebookoflife/why-tiny-things-about-our-partners-drive-us-mad/)
+
+* * *
+
+# Why Tiny Things about Our Partners Drive Us Mad
+
+Lovers who’ve been together awhile tend almost universally to get maddened by what look (on the surface) like certain absurdly small matters. An otherwise quite reasonable and decent person might admit to a range of acute sensitivities around some of their partner’s rather minor habits – and a tendency swiftly to lose their temper on encountering them: they press far too hard on the chopping board; they don’t put their seat belt on until after the car is started; in their handwriting ‘b’ and ‘h’ are practically indistinguishable; they squeeze the toothpaste tube the wrong way (pressing at the neck rather than the bottom); they use the word the word ‘tragic’ to mean ‘sad’; they leave drawers fractionally open; when they drink a glass of water they never drink it right down to the end but always tip out the last few drops into the kitchen sink.
+
+![](http://flakphoto.com/assets/photos/jessica-todd-harper-self-portrait-with-christopher-clementines.jpg)
+
+Our reactions to such things can seem wildly out of proportion. We may get extremely worked up – and then feel mean and possibly insane. In quieter moments, we may wonder how we could ever let such insignificant matters get to us so much.
+
+Rather than tell ourselves we are simply idiotic (though of course we are all idiots at heart), we should lavish thought and time on the logic of our tiny points of ire. The little thing – the small irritant – is always a symbol of a large and in truth very important issue operating in the background of a relationship, though unfortunately it’s not always easy for us to put our finger on what the real issue is and therefore to give a calm and accurate account of what is, in fact, probably a genuine cause for concern.
+
+Ironically, we’re very generous about symbols when they turn up outside our own lives, particularly in art: at college we might write a thoughtful essay on what sunflowers meant to Van Gogh or why the colour blue was so important to Picasso. With these artists_,_ we are generous. We don’t think they were idiotic to get so obsessed with little things. We expend our imaginative effort to trying to work out what the details meant.
+
+![](https://upload.wikimedia.org/wikipedia/en/0/00/Pablo_Picasso,_1901-02,_Femme_aux_Bras_Crois%C3%A9s,_Woman_with_Folded_Arms_(Madchenbildnis),_oil_on_canvas,_81_%C3%97_58_cm_(32_%C3%97_23_in).jpg)
+
+We should take a lesson from this patient and investigative approach and do for the important little details of our own emotional lives some of what art historians did for the details of their canvases.
+
+For the vigorous&nbsp;pressing on the chopping board, it’s not the potential damage to the wood&nbsp;that’s in essence important. We could probably meet the expense of replacing the board once a year or so. But our partner’s overeager effort (as we see it) is a tiny moment in which we catch sight of a much more troubling and larger quality in them: a sense of indelicacy, roughness and lack of restraint. And we fear this side of them not so much in their life in general, but in relation to ourselves: the real fear is that they won’t realise when they are hurting us. Our worry isn’t for the board, but for ourselves.
+
+With the seat belt, the real point at issue might be around authority. We were always taught to put the belt on before starting the engine. We obeyed. We have learned to do the ‘right thing’. Why then do they feel they can get away with breaking the rules? What is this slightly arrogant, entitled sense of being different? The absurdly tiny detail of precisely when the seatbelt is fastened becomes the carrier of a grand and in its way properly legitimate concern: will my partner ever understand the fear of ‘doing the wrong thing’ and sympathise generously with it; will they stop feeling they are above the rules?
+
+Equally important issues are – behind the scenes – evident everywhere. The few drops of water the partner empties casually from the glass are not about wastage (in a lifetime it might add up to one bathful only) but the fear that they might treat us in a similar fashion and (without a second thought, after they have drunk the best of our years) throw us away.
+
+Around the handwriting: their cheery Post-it note on the kitchen table on Saturday morning ‘gone to buy bread’ (which could be pedantically deciphered as ‘gone to buy head’) doesn’t genuinely confuse us. Rather, we resent their lack of worry about being misunderstood. We resent the implication (embodied in this tiny detail) that they don’t have to take special care to make themselves clear to us. We see in the note a lifetime of misunderstanding and loneliness.
+
+![](http://jmireps.s3.amazonaws.com/gxl_4f7e0b57-0af0-4351-8e0b-1ada0a660dbf.jpg)
+
+So we are right to worry. The problem is the way we handle our anxieties. Ideally, we wouldn’t simply curse and get irritable. We would patiently transfer our attention and concern away from the minor instance, the symbol, towards the real nucleus of our complaint, which we would lay out with care, sympathy and a touch of humour.
+
+**Once the real issues in our relationships are raised, the annoying details may be less difficult to live with, because, most probably, our partner won’t be indifferent to our articulated worries. With the riskiest symbols decoded, love stands a chance of&nbsp;becoming ever more mutual, peaceable and secure.**
+
+[![](https://img.youtube.com/vi/W82s0_NyMKQ/0.jpg)](https://www.youtube.com/embed/W82s0_NyMKQ?ecver=2 '')

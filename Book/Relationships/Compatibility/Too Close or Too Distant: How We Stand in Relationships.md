@@ -1,0 +1,27 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Compatibility](https://www.theschooloflife.com/thebookoflife/category/relationships/compatibility/): [49. Too Close or Too Distant: How We Stand in Relationships](https://www.theschooloflife.com/thebookoflife/too-close-or-too-distant-how-we-stand-in-relationships/)
+
+* * *
+
+# Too Close or Too Distant: How We Stand in Relationships
+
+A humblingly large number of problems in relationships can be summed up with a blunt spatial metaphor: someone is standing too far away. Someone is standing overly close.
+
+Standing about the right distance from our partners, that rare feat, is only possible when, on the one hand, we know how to acknowledge that we need their love – and on the other, when we can trust that they will need us, which also means having the confidence to believe that we could, if it came to it, survive without them.
+
+![](http://www.tate.org.uk/art/images/work/P/P78/P78246_10.jpg)
+
+Both tendencies, standing too far and standing too near, started way back, long before adult relationship began, in the childhood years.
+
+We become the sort of people who like to stand very far away, preferably with a moat around us, when an original attempt at closeness ended in degrees of rejection, humiliation, uncertainty or shame that we were, as children, ill-equipped to know how to deal with. We became, without consciously realising it, determined that such levels of exposure would never happen again. At the first sign of being disappointed by a partner, we therefore now understand how to run far and fast from the pain. We won’t stick around and mention that we might be hurt. We are already on our island, doing lots of work, seeing other people, having an affair, convincing ourselves and others that all is fine – and, above anything else, not wanting to talk about it.
+
+On the other hand, we become the sort of people who stand very close when, way back, someone broke promises, blew hot and cold, vanished unexpectedly, perhaps died suddenly. We are now acutely suspicious, frantic and easily made furious in the face of the ambiguous moments of love: catastrophe never feels too far away. A slightly distant mood must be a harbinger of rejection; a somewhat nonreassuring moment is an almost certain prelude to the end. Our concern may be touching, but our way of expressing it is less so. In the face of the other’s swiftly assumed nastiness and unreliability, we demand that they be back exactly by a certain hour, we berate them for looking away from us for a moment, we force them to show us their commitment by putting them through an obstacle course of administrative chores. We get very angry rather than admit, with serenity, that we’re worried.
+
+![](https://www.maureenpaley.com/system/files/042016/570530806bf3b5051d000023/slideshow_slice_large/Maureen-Paley-Hannah-Starkey-Exhibition-9.jpg?1462461890)
+
+Resisting the urge to stand too far or too near may be the work of a lifetime. We will, if it works, learn to tell the partner that they have hurt us instead of insisting, at once, that we never even cared for them. We tolerate the risks of standing where we are and informing them with touching rawness that they have wounded us and that we are at their mercy.
+
+We also nurture our ability to interpret ambiguous moments without self-contempt. We know to give them some room, hopeful that they will return, but sure of our eventual survival even if they don’t. We don’t get furious and strict with them when they appear to have let us down: we simply say that we’re scared.
+
+![](https://www.zabludowiczcollection.com/uploads/exhibitions-events/_halfFixed/9712/Starkey-Hannah_Untitled-March-1997-tube-1997-UK.jpg)
+
+We can start the journey towards a more equitable position with a few simple questions: wondering which of the two – those who stand too far or those who stand too near – we most resemble; asking ourselves what in the past would have helped to make us so; tracking how our tendencies play out in day to day life in our relationships and finally picturing ourselves as one of those blessed individuals who know how to navigate the risks of love with a little more trust.

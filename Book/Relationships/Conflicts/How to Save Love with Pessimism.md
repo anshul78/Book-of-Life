@@ -1,0 +1,19 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Conflicts](https://www.theschooloflife.com/thebookoflife/category/relationships/conflicts/): [126. How to Save Love with Pessimism](https://www.theschooloflife.com/thebookoflife/how-to-save-love-with-pessimism/)
+
+* * *
+
+# How to Save Love with Pessimism
+
+[![12957126074_696d5d0b6c_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/11/12957126074_696d5d0b6c_z1.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/11/12957126074_696d5d0b6c_z1.jpg)
+
+It’s easy to be pessimistic about many things: the state of the planet, the economy, the future of humanity. And yet there’s one area where many of us retain a curious sense of optimism. We have faith that from among the millions of our fellow human beings out there, we will one day be able to locate a very special person.
+
+[![](https://img.youtube.com/vi/jcgW8pNQvo0/0.jpg)](//www.youtube.com/embed/jcgW8pNQvo0? '')
+
+We’re used to thinking of pessimism as the enemy of good things, but when it comes to relationships, it can be a vital ingredient in keeping a couple together.
+
+[![](https://img.youtube.com/vi/rzCmnUxAWrY/0.jpg)](https://www.youtube.com/embed/rzCmnUxAWrY '')
+
+Pessimism is generally equated with a grumpy and immature kind of mood. But it is, in fact, at the origin of wisdom – and can even leave us feeling surprisingly cheerful.
+
+[![](https://img.youtube.com/vi/5jADnNpx3R4/0.jpg)](https://www.youtube.com/embed/5jADnNpx3R4 '')

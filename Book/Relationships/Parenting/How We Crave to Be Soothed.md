@@ -1,0 +1,66 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Parenting](https://www.theschooloflife.com/thebookoflife/category/relationships/parenting/): [230. How We Crave to Be Soothed](https://www.theschooloflife.com/thebookoflife/how-we-crave-to-be-soothed/)
+
+* * *
+
+# How We Crave to Be Soothed
+
+One of the greatest skills any human can possess is a capacity for soothing: in a better arranged society, we would celebrate not only gifted athletes and canny entrepreneurs, but also those gentle souls who are most effective at delivering reassurance to their fellow frightened creatures in the face of the many physical and psychological torments to which our species is continually exposed.
+
+In premodern societies, the need for soothing was well understood at a collective level. In Christianity, the faithful turned at moments of need to their primordial soothing figure, the Virgin Mary – a figure who knew about suffering, who would listen to one’s sorrows and extend sympathy at moments of particular dread and panic.
+
+<figure class="aligncenter"><img src="https://lh4.googleusercontent.com/L2NTCS3ClyLv5gm_q2kcpO88ZmqOzcvdpk_pmZsOniz1Ib_vbTpK3PQnNa9eKYZbb3G8w3ruJbnXhH26xgWijm19hs2DQH9-LOObWVuYHnz0HiBPHiyNSYqxiBoWz-vnxgPZol6y" alt=""></figure>
+
+In a comparable spirit, Buddhists would turn to the figure of Guanyin, another female deity with a sound sense of the difficulties involved in trying to survive – and a ready supply of sweetness and compassion.
+
+<figure class="aligncenter"><img src="https://lh4.googleusercontent.com/YMa0U_YHSVZJ6Ze6spwDDLzYQ5CwvWGt_eK3dKYjDzJAbPNnBCokmCsqObtLcxamhHGkwt7jDcIby2xfo-PfC8G57OpwMQwBzFdYuqySSCA0dn6ilx_1JGpCuEMjGUW2ElQV7K-k" alt=""></figure>
+
+In replacing religion with medicine, we have too often forgotten to find a place for soothing, an art which few medical school teach their students – though whatever power one’s pills may have, tenderness and encouragement remain essential medications at the bedside of the distressed patient.
+
+The primary experience of soothing should ideally occur in the relationship between a parent and a child. One might go so far as to propose that there is nothing more important required of a parent than a capacity to soothe, this being the skill to which all other parental capabilities ultimately point. This is some of what a gifted soothing parent will know how to do:
+
+_– Identify that soothing is even required:_
+
+Not everyone who needs to be soothed is aware of the fact nor grateful to be reminded of it. Some of us who would most benefit from soothing present as angry, defiant and aggressive; it looks as if soothing would be the last thing on our minds. But the soother looks beneath this independent bluster and insists on their soothing offer nonetheless. They know that there is never a case of nastiness or deniance, cynicism or viciousness that does not have at its core a disguised longing for love. The truly soothing person is canny and generous enough to keep gifting assistance even to the prickly wounded ones who need kindness so badly they have forgotten how to ask for it.
+
+_– Normalise the need:_
+
+Admitting one’s need for soothing places ones in a vulnerable position. So the good soother subtly and quickly indicates that a search for soothing is ‘normal’, respectable and dignified. They have at the back of their minds a philosophy that life is constantly at risk of overwhelming even the most capable of humans, at a physical and psychological level – and therefore that there is nothing shameful whatsoever in seeking assistance. Not being able to cope doesn’t require any special permission: it could happen at any time of the week, the soother doesn’t keep to a version of a doctor’s surgery hours, they are on call at any time for whatever comfort one might seek. Nor does the problem necessarily need to be vast. One might need soothing simply because one is feeling a little sad or a bit weak for reasons one can’t exactly identify. Soothing isn’t reserved for those with life-threatening or critical troubles; it is something we should be able to draw on during all our travails, large and small. We don’t have to be more or less dead before we can say we can’t cope. A good parental soother teaches a child to have an honest relationship to their own vulnerability, helping to stamp out the scourge of machismo, the dangerous pressure to pretend to be stronger than one is… that ends up making one weaker and lesser than one should be.
+
+To those who worry that offering so much soothing to a child risks turning them into malingering attention-seekers, we might reply that attention seekers are never people who have had too much attention, they are people whom the world tragically forgot existed. No one who has been properly and consistently soothed will bother spending their adult life in bathetic bids to be noticed; the most logical outcome for a child who has been well soothed will simply be to devote particular energy to the task of soothing other people.
+
+_– Holding:_
+
+A primary weapon against distress is touch. At the news of anxiety, the soother doesn’t hesitate to hold the other person tightly in their arms, giving them a visceral sense of being a protective figure who is on their side against their foes. The panicked breathing and racing heartbeat have a chance to align with the steadier rhythms of the soother. In the early days, a soother might place an infant on their shoulder and stroke their head and back. Later on, it might be a cuddle on a knee, and later still, a standing hug. But the message will remain the same: the suffering will not have to be borne alone.
+
+_– Singing:_
+
+Lullabies reveal the extent to which it’s not necessarily words that can make us feel more tranquil. The baby doesn’t understand what’s being said but they are calmed all the same by even the clumsiest (but most heartfelt) song; this shows us that we are all tonal creatures long before we are creatures of understanding. Ancient Greek mythology was fascinated by the story of the musician Orpheus, who had to rescue his wife from the underworld. To get there he needed to make his way past Cerberus, a ferocious three-headed dog who guarded the entrance to the land of the dead. Orpheus was said to have played such sweet, enchanting music that the wild beast calmed down and became – for a while – mild and docile. The Greeks were giving themselves a reminder of the psychological power of music. Orpheus didn’t reason with Cerberus, he didn’t try to explain how important it was that he should be allowed to pass, he didn’t speak about how much he loved his wife and how much he wanted her back. Cerberus was – as we ourselves are at times of distress – pretty much immune to reason. But he was still open to being calmed. It was a matter of finding the right channel to reach him, the channel of a song.&nbsp;
+
+_– Concern:_
+
+At the first mention of a physical ailment, the good soother puts into motion some well-practiced responses: most importantly, a suggestion that one lie down on the sofa (for challenges shouldn’t really be faced in a vertical position), then a blanket (probably oversized, thick and a bit worn) and afterwards, a hand on the forehead to check for a raised temperature. Soon after, it might be time for a tray.
+
+_– Food:&nbsp;_
+
+Hunger isn’t the point. It’s the idea of nourishment that counts: a priority is to go and make something to eat or drink. The good soother will at once offer a range of dishes; hot chocolate for sure, but also toast, lemon cake and – almost certainly – a soft boiled egg. The rituals of preparation are central, familiar smells should come up from the kitchen along with the gentle knocking of pans and crockery, active symbols of concern and kindly bustle. In one of the most soothing paintings in the world, the 18th century French artist Chardin shows us a woman in a plain kitchen taking the top off a boiled egg. The title of the painting, _The Convalescent,_ lets us know that the food is destined for someone who is unwell, but cleverly, Chardin has kept them out of sight. He is on this occasion out to celebrate the carer rather than the cared for. He wants us to notice the woman’s qualities of patience, concentration and genial concern. We are being reminded of what love involves and how deeply indebted we are, all of us who enjoy a measure of health and sanity, to those who once soothed us.
+
+<figure class="aligncenter"><img src="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/03/81jh2D59kL._SL1280_-819x1024.jpg" alt="" class="wp-image-24255" srcset="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/03/81jh2D59kL._SL1280_-819x1024.jpg 819w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/03/81jh2D59kL._SL1280_-240x300.jpg 240w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/03/81jh2D59kL._SL1280_-768x960.jpg 768w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/03/81jh2D59kL._SL1280_.jpg 1024w" sizes="(max-width: 819px) 100vw, 819px"></figure>
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  
+_– Supplies_
+
+The good soother knows that this is not the time for Heidegger. They therefore bring us colouring posters, puzzles, pens, very silly but compelling books and even sillier and more compelling magazines.&nbsp;
+
+_– Nicknames:_
+
+The good soother renames their charges during their difficulties. Like a patient in a hospital whose wrist is ringed with an identifying code on registration, the soother assigns their offspring a new name for the duration of the crisis, ideally one that indicates both smallness and bravery, vulnerability and strength: ‘sweet soldier’ or ‘brave mushroom’ perhaps, or ‘gutsy button’ or ‘poor potpot’ (alliterations are especially good). This might be supplemented with the prefix ‘my’, to imply – like a general with his troops – that one is very much fighting this together, be it a virus or a bout of sadness.
+
+_– Being boring:_
+
+The most soothing people are a little boring, in a good way. We aren’t looking to them to entertain us or dazzle us in our moments of woe. While a crisis lasts, we just need them to be pottering around quietly, realigning books or sorting out the photos, and telling us a few simple things about local life: what’s going on with the neighbour’s rabbit, what the lady in the postoffice said about her son’s exam results etc. This isn’t a time for big ambitions or perplexing theories, we’re retrenching and can be cheered by nothing larger than a small walk around the park or the sight of a vase of pretty spring flowers. The normal horizons and ambitions have fallen away, we’re taking it a day – or a few hours – at a time.
+
+_– Loyalty_
+
+The good soother leaves us in no doubt as to where their loyalties lie. We don’t even need to have finished recounting our mistreatment at the hands of others for them to be ready with their outraged interventions on our behalf: _what absolute cheek; they need their head examined. What a monster. If they dare to lay a hand on you, I’m going to…_ A normally gentle soul reveals they have a backbone – and more. They would fight to the death for us. They are suddenly a fearsome combatant and the thing they’d risk their life for would be us. They don’t expect us to be perfect, we might be to blame as well, but for now, they are on our side. It’s the way they are built. They may respect the law in theory, but in principle, they’d do pretty much anything to try to spring us out of prison. This is what it means to have had a ‘privileged’ childhood.
+
+A household in which soothing manoeuvers unfold sets a child up for life. It won’t then matter what troubles they encounter, they will be armed with the finest psychological weapons with which to slay them. Even better, the soothing voice won’t merely be a voice outside of them, it’ll become the way they speak to themselves. Years later, when the soothing parent might no longer be with them, and time might have greyed and aged them, they will still be able to minister to their own needs with the tenderness they learnt in their long-distant childhood; they’ll know that the storm will pass, especially if they find a way to have a small lie down and, perhaps, a boiled egg.

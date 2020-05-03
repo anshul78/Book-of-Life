@@ -1,0 +1,11 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Breaking Up & Heartbreak](https://www.theschooloflife.com/thebookoflife/category/relationships/breaking-up-heartbreak/): [197. How Not to Break Up with Someone](https://www.theschooloflife.com/thebookoflife/how-not-to-break-up-with-someone/)
+
+* * *
+
+# How Not to Break Up with Someone
+
+[![10613675024_c8104b0be9_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/11/10613675024_c8104b0be9_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/11/10613675024_c8104b0be9_z.jpg)
+
+Telling someone you don’t want to be with them is always difficult. But there are better and worse ways of doing it. Realising that you shouldn’t be with someone isn’t the worst thing. It’s not daring to tell them in a frank, timely and liberatingly brutal manner.
+
+[![](https://img.youtube.com/vi/591zwrqsDVM/0.jpg)](//www.youtube.com/embed/591zwrqsDVM? '')

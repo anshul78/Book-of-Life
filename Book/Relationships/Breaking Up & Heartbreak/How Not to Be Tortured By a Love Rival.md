@@ -1,0 +1,35 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Breaking Up & Heartbreak](https://www.theschooloflife.com/thebookoflife/category/relationships/breaking-up-heartbreak/): [187. How Not to Be Tortured By a Love Rival](https://www.theschooloflife.com/thebookoflife/how-not-to-be-tortured-by-a-love-rival/)
+
+* * *
+
+# How Not to Be Tortured By a Love Rival
+
+Sometimes, we are not only left in love; we are left _for someone else_ – a rival who comes to assume a large, indeed monstrous position in our imaginations. The torture comes down to one essential question which pursues us into the early hours: _What do they have that we do not?_
+
+Part of the agony rests on a basic feature of human psychology; we know ourselves from the inside, in great and dispiriting detail, whereas we can know others only from the outside, from what they choose to reveal, which may be almost nothing, aside from an attractive face and a charming manner.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/06/1280px-John_Henry_Frederick_Bacon_-_The_golden_butterfly_-_The_Harvey_family.jpg)
+
+As a result, we may feel that the person we have been left for – and whom we know only on the basis of having briefly met them at a party or stalked their online profile – is wonderful in every way. Where we are shy, they will be confident; where we are chaotic they will be well-organised; where our sexuality is complex, theirs will be simple; where we’re too domestic, they will be exciting…
+
+Well-meaning friends may try to bring us back into contact with our good sides: they will speak of our kindness, intelligence or sense of fun. But this may not be the best way forward; the point isn’t to rehearse how decent we are. Properly to get over the pain of a love-rival, we need to realise how mediocre pretty much every human who has ever existed tends to be. There is not, in fact, ever any such thing as a ‘perfect person’, there are merely differently tricky ones, as time will inevitably reveal to our idealising ex.
+
+Our failings or defects may well be real but the picture we’ve got of ourselves as compared with our love rival is skewed by undue ignorance. Recovery does not involve the denial of our less admirable sides: it requires a more nihilistic, and therefore more balanced sense of what people in general are like.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/06/On_the_Beach_-_Two_Are_Company_Three_Are_None.jpg)
+
+Of course the rival has qualities we lack. It is true that they have better hair, or a more impressive salary. But at the same time they have an enormous number of very serious problems which we can be assured exist, not because we know them, but because we know human beings in general.
+
+No one examined from up close is ever anything other than disappointing – and every person one has to share a life with will prove so maddening over time, one will at points wish they had never been born. Whatever attraction a new lover can offer our ex, they will also supply them with a whole a new set of irritants, which will end up frustrating them as much we ever did, indeed more so, because they so sincerely hoped &nbsp;– as they packed their bags – that such flaws would not exist in their next partner.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/06/Edvard_Munch_-_Jealousy_-_Google_Art_Project.jpg)
+
+Our ex-lover has not entered the gates of paradise, they have merely exchanged one imperfect relationship for another. We should never compound our grief with the thought that our ex will be uncomplicatedly happy.
+
+The deep lesson of being supplanted is not that we are so bad. It’s that we have been left because of a common delusion: the belief that if only one was in a _different_ relationship, one would be substantially happier. And yet, the truth is that more or less every human relationship has its own special and beautifully distinct forms of acute unhappiness.
+
+That there is much wrong with us is, of course, true; but this dark fact invariably sits within a far larger, grimmer and yet strangely consoling truth: that every person has much wrong with them.
+
+In future relationships, once we get over abandonment, the person we need to find is not the one who thinks we are perfect (and will never leave us on this basis) but rather one who can quite clearly see our failings and yet – the key advantage – knows how calmly to make their peace with them. The lover we need is not someone who stays with us because they think we are irreplaceably marvellous but because they’ve wisely realised that no-one is as attractive as they seem at first – and that to smash up a relationship generally involves nothing much finer than a prelude to novel encounters with frustration and disappointment.&nbsp;
+
+[![](https://img.youtube.com/vi/9vbIO3TpLXY/0.jpg)](https://www.youtube.com/embed/9vbIO3TpLXY '')

@@ -1,0 +1,11 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Conflicts](https://www.theschooloflife.com/thebookoflife/category/relationships/conflicts/): [125. On How to Defuse an Argument](https://www.theschooloflife.com/thebookoflife/on-how-to-defuse-an-argument/)
+
+* * *
+
+# On How to Defuse an Argument
+
+[![4018556210_f76041ca79_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/12/4018556210_f76041ca79_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/12/4018556210_f76041ca79_z.jpg)
+
+The simplest way to defuse your partner’s fury&nbsp;is not to tell them to calm down or to use the occasion&nbsp;to bring up another argument, but to offer a genuine apology (they’re always free). In the heat of an argument, remember that they’re not ‘nasty’, but&nbsp;hurt&nbsp;and vulnerable and that, at times, we too have been impossible.
+
+[![](https://img.youtube.com/vi/bjAyarZgtIs/0.jpg)](//www.youtube.com/embed/bjAyarZgtIs '')

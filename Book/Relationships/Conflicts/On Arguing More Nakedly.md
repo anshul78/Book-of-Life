@@ -1,0 +1,34 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Conflicts](https://www.theschooloflife.com/thebookoflife/category/relationships/conflicts/): [93. On Arguing More Nakedly](https://www.theschooloflife.com/thebookoflife/on-arguing-more-nakedly/)
+
+* * *
+
+# On Arguing More Nakedly
+
+In long-term relationships, whatever the pleasures, we are – statistically speaking – likely to spend up to 10% of our time caught up in the intoxicating and all-consuming business of arguing. Each argument will seem to be uniquely about itself. It will have its distinct flashpoint, features, injustices, stupidities and what to us appear to be self-evident truths that the partner is blithely resisting: the absurdity of proposing to leave at 7.23pm when we had both agreed – only two hours ago – that we’d leave at no later than 7.10pm; the idiocy of telling a younger son he could have extra screen time when we’d already explained to him that he’d breached his limit; the insult of the partner laughing aloud at our sister-in-law’s cheap jibe against us at the family reunion…
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/05/3182768822_c0692e7b1a_o.jpg)
+
+Faced with such offences, we dig in like eager, well-paid lawyers. We marshall evidence. We say, on the basis of this or that, they are obviously going to have to rethink their line and surrender to our perspective. The first round may begin peacefully enough, but the urgency and annoyance stand to increase as the second and third rounds unfold; each team adding a little vengeance and irritation to their proclamations. Sometimes, with the logic of the argument so stubbornly resisted by the other party, voices will be raised, faces will flush, someone (whom we have named in our will ,and to whom we have otherwise given our lives) may be called a c\*\*\* or a b\*\*\*\*\*\*, a door might be slammed and a gloom could descend that will take a good two days to clear.
+
+Such rigmaroles are so shameful and dispiriting, we tend not to mention their entrails to others – and others in turn keep quiet about their squabbles to us, deepening our feelings of isolation and embarrassment. We go around saying that we’ve had a bit of ‘a tiff’ or are ‘going through a bad patch’ – in lieu of confessing openly that the person we love appears, sometimes at least, to have substantially ruined our lives.
+
+The great error we make is to assume that the way to fix an argument is to attempt to reach an objective truth that can, once it has been brought out into the open, neutralise the force of the fierce offence we feel. But there’s an unfortunate and somewhat paradoxical side of arguments in relationships: it substantially doesn’t matter what the truth is. It’s by the by who has the stronger case. It’s an irrelevance who can ‘win’.
+
+That’s because there is only ever one thing we really want from our partners behind, or beneath, an argument: we need to know we are loved. We are arguing so bitterly not because a client has hired us in a courtroom but because we are emotionally in pain, because the relationship has forced us – as they will – to make ourselves awesomely vulnerable in front another person we depend on. What we are longing for, beneath our furious eloquence, is reassurance. We are calling them a c\*\*\*\* in lieu of asking them tearfully if they still love us and why, in that case, they have hurt us quite so much.
+
+Rather than dwell tirelessly on the surface complaints, we might therefore learn to cut straight to the emotional substratum of the situation and raise one of six possible objections to the partner:
+
+1. I feel you don’t value me. 
+2. I feel abandoned.
+3. &nbsp;I feel not good enough.
+4. I feel you are trying to control me.
+5. I feel you’re not accepting who I really am.
+6. I feel unseen and unheard.
+
+We might, if the words were sometimes too hard to utter, simply paste the list to the fridge door and point mutely at them at the height of a dispute. Rather than try to win a proxy managerial battle over scheduling or bedtimes, we might immediately disclose the emotional explanation for our upset: _when you are late for something we’d agreed on_, _I feel unseen and unheard… When you contradict me in front of my family, I feel abandoned…_
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/05/2959908781_c910556d18_o-1024x842.jpg)
+
+By a grievous logic, it so often seems that the only way to feel safe is to punch back – when in love we are invariably going to be so much safer (that is, so much more likely to be a recipient of affection and atonement) if we manage calmly to reveal our wound at once to its (usually unwitting) perpetrator. The best response is not to make ourselves more impregnable, but to dare to be a little less defended.
+
+Differences of opinion between partners may crop up over anything, but arguments – the sort of heated matches that end in slammed doors and insults – are only ever about one thing: the anxiety of being excessively vulnerable before someone we adore and can’t control. It may look like a fight over scheduling or childcare, really it’s a fight about the terror of emotional abandonment. If we kept this idea in mind, we might save ourselves so much time in legalistic point scoring, possibly four hours a week or more which could be put to use gardening, helping the aged or learning a foreign language. There’d be so much less to shout about – and so many more exciting things to get on with…

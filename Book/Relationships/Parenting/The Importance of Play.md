@@ -1,0 +1,45 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Parenting](https://www.theschooloflife.com/thebookoflife/category/relationships/parenting/): [226. The Importance of Play](https://www.theschooloflife.com/thebookoflife/the-importance-of-play/)
+
+* * *
+
+# The Importance of Play
+
+The useful thing about children is that they don’t let their imaginations get hampered by the more irritating or incidental aspects of reality. They will for example take one look at a sofa and see in it the basis for an ingenious spacecraft capable of travelling swiftly and comfortably to adjoining galaxies.
+
+<figure class="aligncenter is-resized"><img src="https://lh3.googleusercontent.com/uti2t-JHN5Yvvi6y1edjuJIE3eZyrgfeZfaXGpHYYss0dCpN1HbTnIHWRdaNgBQ4aMeJol3aCMSPkPsLgKTLSoJRDWD52DPZlRD93vxCiFNg4tAQXhPNvi29EYjaXFWkqzFMMlV7" alt="" width="464" height="425"></figure>
+
+Or they will judge that an unprepossessing backyard is in fact the ideal premises for a new kind of restaurant offering fascinating combinations of food not yet developed in the ordinary restaurant sector.
+
+<figure class="aligncenter is-resized"><img src="https://lh6.googleusercontent.com/o1kVQa4pJ2tVGfzctL4cpTazWOSrJzZAx_8dwICLwBL9GsZnyQ55hPbDFVHl8MpgKPBIO7qRFZ9UPPKduaTrIEaR9R7xhDslS0mEGZMyec8bPBD4Xon9qKBtkxBelCojGEc_ako1" alt="" width="301" height="401"></figure>
+
+Or they will know how to size up a sibling and recognise a brave, disciplined and resolute national leader who will be able to lead her country out of its troubles and invent a new way of doing politics.
+
+<figure class="aligncenter"><img src="https://lh5.googleusercontent.com/OZVoE44NZs-wLZnbcWvwSTz_Aes4xUuA7Dx70MR280IcaenkPCGWssY4zRGNYmud6YwJURVu3d-LsHqptmVYM6XQCP6AjxKzJ-PFxhdSDw4Yibxp4XEqigRMVVTk0SvwLLfXBR9C" alt=""></figure>
+
+Children don’t see a need to wait until every practical detail has been sorted out before beginning to imagine fresh schemes and put original proposals into development. They know the gist of what has to be done – and are keen to sketch out at speed the broad strokes of their plans. They have none of the normal adult respect for so-called sensible objections to every new idea or obedience to the many reasons why something should not be tried and the status quo left morosely undisturbed.
+
+Children tend to be right in their hunch that the practical details can generally be sorted out with time, but that what one really needs at the outset is vision. Most impressive developments have been works of the imagination long before they were feats of engineering or politics, art or science. They were ideas that needed to be pictured with a fanciful, confident and unfrightened mind, one that would not at every juncture curtail its freedoms by pointing out that something might cost a bit too much, or that some members of the team might be unsettled by an innovation or that there were quite a few government rules against that sort of thing. Take flying as an example. On the one hand, powered flight was a practical breakthrough reliant on some steady work around wing shapes, petrol engines and landing gears. But there was arguably in the plane as much imagination as there was engineering; the plane had to be dreamt of before it could be designed. And a lot of this imaginative work was carried out by pioneers of playful thought in the nineteenth century, the great age of technological daydreaming when utopian big children imagined how one might fly between cities in miraculous heavier than air machines – and one day get from Paris to New York in only a few hours.
+
+<figure class="aligncenter"><img src="https://lh3.googleusercontent.com/ZPCjsKPtDC9i9oGJT4HJkaZ7B0_mnoqPe1XrKyK5LwIgSzGtVDEY_DN9QHySRX6wiKzzuGN4c7kK2wvpmJp3hnCvVlwOLYAoHA_QwfePkqEa7QAAahcBAm3QPewEVU4y60TevGkK" alt=""></figure>
+
+_Albert Robida, The Future of Air Travel, 1882_
+
+<figure class="aligncenter is-resized"><img src="https://lh3.googleusercontent.com/5yXioEXvpMiRUrvEsjAsbXYCBRUMrg5cigmjFEy4OAidFGzGlJfXkOWaCI-i47r3SV84NIXL9EZtPLh49OtonB0ED1AEQaf3u0q9_lRfbDX2-9XmBUt78HNnXJiWgZDvIzreRXkk" alt="" width="395" height="562"></figure>
+
+_J. Xaudaro, Concorde before Concorde, 1920: ‘Thanks to the air express, New York will be only one and a half hours away from Paris. Price of the trip: 1,000 dollars.’_
+
+These pioneers of technology also imagined email, submarines, cross Channel tunnels, vacuum cleaners, mobile phones and digital education. It’s a tribute to the scale of their ambitions that reality still has to catch up with their thoughts around jetpacks and winged firefighters.
+
+<figure class="wp-block-image"><img src="https://lh5.googleusercontent.com/B1ZrUyjJowJOir9RnOU9FNyHiC5a3emPCOx2MzbRTXXL7314PdiOb74Hl_lcjiWPnkqRwpIxHQT_DaBrZPlZIno9Fhq0D_ImqvG__cLzWSUIOJfBCVXzUMCgAmMNitsBfsARKiJV" alt=""></figure><figure class="wp-block-image"><img src="https://lh4.googleusercontent.com/S34O2k2afMtSs-kuTph_VwEikU0x8K-Zxh8GjlUYF7iaAh3-BFogAHHOE4bwCTRlJeWMJJECOBinbL3XAhieilqo-glnRX3BXOfPgLjFI2NEE_L0QOQcqyl7LYGrLWnTFMofnMR1" alt=""></figure><figure class="wp-block-image"><img src="https://lh4.googleusercontent.com/yfx82MGvyxJLoxGDpA7qN_ROYkDX5xJIQpUs_JU71D6CpupPyUzFtJjHf18TuP1QGDlOB25n6b6R_AA3cA4xG0KwR4BLFarLV9u3fLiCiIe-BvvDHk7UzpXTBf9v0Yhi7SO5ca9w" alt=""></figure>
+
+Children don’t only have things to teach us around playfully imagining the future. They are also particularly canny at imagining better sorts of friends. Reality can be very poor at providing us with the kind of people we really require to feel understood and comforted. What we long to hear and the sort of interactions we crave may not always be possible in the compromised conditions of a typical home. But – sensibly – this rarely holds children back. They will latch ingeniously onto a promising-looking thirty centimetre piece of cloth and stuffing with button eyes and decide that this is the friend they always longed for and deserve: someone who can understand their sorrows, will have comforting things to say when they are confused, will want to have cups of tea with them in the night and always, always be ready for a hug.
+
+<figure class="aligncenter is-resized"><img src="https://lh5.googleusercontent.com/EZiK3e3GvnAgddH8iYOHDotwgzGKEr7y0Fw9lajUh4rY50PlVe-BIxPHIjPZFYgu8epQ_3UxvkbuzmWagT4nmSd5rN2lRAZLsRw1tcGCEDhJg2D8Tj175GfaO7VwksKebQTqGy5Y" alt="" width="255" height="312"></figure>
+
+_This teddy bear, housed in London’s Victoria and Albert Museum’s teddy collection, is named Little Tommy Tittlemouse. It was the much loved companion of the donor, a Mr J. H. B. Gowan. He continued to send birthday cards to his ‘son’ after he had given the bear to the V&A in 1965. This tradition only ended with his death. Tommy’s birthday is on 24 November and the V&A continues to receive cards for Tommy from all over the world._
+
+Later on, a few canny adults discover books – and try out a similar move. They learn how to feel connected to a person who might have died in 1420 AD or 300 BC and who tells them important things with a freshness and clarity no one in their vicinity could match. They take to carrying this friend around with them in a bag wherever they go – and don’t mind if its corners get dirty or pages mottled. They stay up late with the friend and might weep at a tenderness and understanding that seems so far from what they would receive from their own acquaintances. A few of these adults even become writers, and day after day confide to a page what it feels so hard to express to others in person – a grown-up version of the very same move they might once have made in childhood, when their frayed bear patiently heard so many of their sorrows. Bookshops, the toyshops of big people, end up as peculiar places where our disappointments with others can be mediated and redeemed – and friends not found in life can at last be secured through the grown-up game we soberly call ‘art’.
+
+The ideal position of play in life was explored by the Ancient Greeks. Among all their gods, two mattered to them especially. The first was Apollo, god of reason and wisdom. He was concerned with patience, thoroughness, duty and logical thinking. He presided over aspects of government, commerce and what we would now call science. But there was another important god, a diametrically opposed figure the Greeks called Dionysus. He was concerned with the imagination, with impatience, chaos, emotion, instinct and play. The ‘Dionysian’ involved dreams, liberation and a relaxation from the strict rules of reason. Importantly, the Greeks did not think that any life could be complete without a combination of these two figures. Both Apollo and Dionysus had their claims on human lives, both would lead to dangerously unbalanced minds if they were absent for too long.
+
+When children have driven us to the edge of sanity with their games (along with the attendant shrieks, follies, upturned sofas and ruined saucepans), we should keep in mind how much we, weary guardians of Apollo, remain in debt to all that the young followers of Dionysus and their ever-present call to bend reality in the direction of our dreams.

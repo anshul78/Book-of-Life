@@ -1,0 +1,44 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Marriage](https://www.theschooloflife.com/thebookoflife/category/relationships/marriage/): [198. Alternatives to Romantic Monogamy](https://www.theschooloflife.com/thebookoflife/alternatives-to-romantic-monogamy/)
+
+* * *
+
+# Alternatives to Romantic Monogamy
+
+To a greater extent than we perhaps realise, when it comes to what sort of relationships we are allowed to have, our societies present us with a menu with only a single option on it: The Monogamous, Cohabiting Romantic Relationship, usually served with a Side Order of Children.
+
+To be considered remotely normal, we are meant to develop overwhelming emotional and sexual feelings for one very special person, who will then become a combination of our best friend, sole sexual partner, co-parent, business associate, therapist, travel companion, property co-manager, kindergarten teacher and soulmate – and with whom we will live exclusively in one house, in one bed, for many decades, in substantial harmony and with an active tolerance for each other’s foibles and ongoing desire for their evolving appearance, till death do us part.
+
+But what is striking, for an arrangement supposed to be entirely normal, is just how many people cannot abide by its rules. At least half flunk completely, and a substantial portion muddle along in quiet desperation. At best, only around 15% of the population admit to being totally satisfied, a thought-inducingly low figure for a menu option vigorously claiming universal validity.
+
+In our societies, those who can’t get on with Romantic Monogamous Marriage are quickly diagnosed as suffering from a variety of psychological disorders: fear of intimacy, clinginess, sexual addiction, frigidity, boundary issues, self-sabotage, childhood trauma etc. We powerfully imply that someone might be psychologically ill if they don’t want to keep having sex exclusively with the same partner, or seek to spend every other weekend apart or want to develop a close friendship elsewhere.
+
+<figure class="aligncenter"><img src="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/07/columbus90.jpeg" alt="" class="wp-image-23493" srcset="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/07/columbus90.jpeg 1000w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/07/columbus90-300x200.jpeg 300w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/07/columbus90-768x512.jpeg 768w" sizes="(max-width: 1000px) 100vw, 1000px"></figure>
+
+But there might be another approach, this one drawn from the pioneering work of advocates of gay rights, namely that any taste or proclivity must by definition be acceptable and non-pathological, except in so far as it might hurt the unwilling or unconsenting. From this perspective, while many ways of life might be different to society’s presently preferred option, it cannot be right to judge, correct, amend and seek to re-educate all those attracted to them.&nbsp;
+
+With this in mind, the menu of love we should use starts to look very different. Aside from Romantic Monogamy, all kinds of alternative ways of living could be devised, including (to kick-start a list):
+
+**The Parenting Relationship**
+
+A union oriented first and foremost towards the well-being of children, where parents are free to form unions with other parties, once the welfare and security of off-spring are assured.
+
+**The Separate Spheres Relationship**
+
+A union which understands that no two people should ever be expected to be in total proximity night after night – and respects the role of certain kinds of privacy in contributing to emotional well-being and a robust sense of self.
+
+**The Yearly Renegotiated Relationship**
+
+A union which is accepted by both parties as having only a one-year assured lifespan, after which it must be re-negotiated but without any presumption that it will necessarily be so or resentment if it is not – a source of insecurity with surprisingly fruitful and aphrodisiacal side-effects.
+
+**The Love-or-Sex Union**
+
+A union which recognises the difficulty of fusing love and sex in one couple, and makes the possibility of dividing the two, and seeking fulfilment from alternative sources, non-tragic, unshameful and predictable.&nbsp;
+
+In love, we accept an absence of choice that would be intolerable in other areas of life. We consent to wearing a uniform that cannot possibly fit our varied shapes, and without daring to make even minor moves to assemble our own wardrobe. All our collective energies go into creating astonishing varieties of foods, machines and entertainments, while the entity that dominates our lives – our relationships – continue in a format more or less unchanged for 200 years.
+
+It would be a genuine liberation if, whenever a new couple came together, it was assumed that they almost certainly would not go along with the romantic monogamous template, and that the onus was therefore on them to discuss – up front, in good faith and without insult – the arrangements that would ideally satisfy their natures. Extra marks would be awarded for innovation and out-of-the-box schemes – while protestations of satisfaction at the standard model would raise eyebrows.
+
+Once upon a time, male offspring of the European upper classes had only two career options: to join the army or to join the church. Such narrow-mindedness was eventually dismissed as evident nonsense and eradicated, and the average citizen of a developed country now has at least 4,000 job options to choose from. We should strive for a comparable expansion of our menus of love. We are not so much bad at relationships, as unable – presently – to understand our needs without shame, to stick up politely for what makes us content, and to invent practical arrangements that could stand a chance of honouring our complex emotional reality.
+
+[![](https://img.youtube.com/vi/0yhVV0oBPdg/0.jpg)](https://www.youtube.com/embed/0yhVV0oBPdg '')
+  

@@ -1,0 +1,27 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Conflicts](https://www.theschooloflife.com/thebookoflife/category/relationships/conflicts/): [120. I Wish I Was Still Single](https://www.theschooloflife.com/thebookoflife/i-wish-i-was-still-single/)
+
+* * *
+
+# I Wish I Was Still Single
+
+One of the haunting thoughts that can make us especially snappy and bitter in relationships is the idea that if only we were single, we would be a lot happier. In love, we are so conscious of the troubles of our present lives, we are naturally drawn to look back and remember the nicer aspects of solitude. We remember being able to get up whenever we wanted; we recall not having to fret about where we threw things. We remember how inoffensive our own bad habits were, when we were the only ones to witness them. We recall not having to justify our meal choices, however eccentric; we could go out somewhere and never tell anyone; we could (when we felt like it) work through till 2 a.m. without being accused of being obsessive or cold. We could have hope for a better future.
+
+It was all so nice in comparison with the life we live now.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/11/783px-George_Gordon_Byron_6th_Baron_Byron_by_Richard_Westall_2.jpg)
+
+But memory is a very unreliable instrument – which isn’t a small point, for this cognitive frailty has a huge impact on how we assess our lives in the present. It seems we are editors of genius and know just enough about how to romanticise our single days to poison our conjugal ones.
+
+The ideal solution would be if, long before we met anyone, a talented film-maker were charged with making a close observational documentary about our single lives. They’d capture our face at 5.30pm on a winter Sunday afternoon, as the sun begins to set and we know we’ll be alone till we reach the office on Monday morning. They’d observe us looking across the room at someone at a party and not having the courage to do more. They’d capture us spending a lot of time at our parents’ house, and growing increasingly tetchy in their company. They’d show us struggling to know what to do when the fridge stopped working or we felt a terrible pain in our stomach.
+
+We’d then be required to view this documentary at regular intervals just after a bruising fight with our partner. It would provide crucial evidence – which our own memories are so good at strategically omitting – of how less than ideal being single can be and our resentment against our current state would be proportionally diminished.
+
+We would realise that though we are sad now, we were also very sad then. We would accept, with good grace and a touch of dark humour, that life simply gives us few opportunities to be content.
+
+**Exercise**
+
+Imagine that a documentary maker had made a film about you being single. What would some of the more distressing scenes be?
+
+[![](https://img.youtube.com/vi/oltjYiXvMnY/0.jpg)](https://www.youtube.com/embed/oltjYiXvMnY '')
+
+[![](https://img.youtube.com/vi/qN3DDXegxxc/0.jpg)](https://www.youtube.com/embed/qN3DDXegxxc '')

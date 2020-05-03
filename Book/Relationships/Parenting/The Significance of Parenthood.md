@@ -1,0 +1,23 @@
+[Chapter 1.Relationships](https://www.theschooloflife.com/thebookoflife/category/relationships/): [Parenting](https://www.theschooloflife.com/thebookoflife/category/relationships/parenting/): [245. The Significance of Parenthood](https://www.theschooloflife.com/thebookoflife/the-significance-of-parenthood/)
+
+* * *
+
+# The Significance of Parenthood
+
+Most of our lives are spent in situations of numbing sterility. There is usually no option but to conform and obey impersonal rules. We don’t in our work generally create anything of particular wonder or interest. We don’t know how to paint or play Chopin’s Scherzo No. 2 in B flat minor. We can’t personally manufacture an iphone; we don’t don’t know how to extract oil from the ground.
+
+And yet, without being conscious of the specifics, we are at points capable of doing something properly miraculous: we can make another person. We can conjure up the limbs and organs of a fellow creature. We can create a liver, we can design someone else’s brain, we can – by ingesting a mixed diet perhaps including bananas, cheese sandwiches and ginger biscuits – make fingers, we can connect neurones that will transmit thoughts about the history of the Ancient Persians or the workings of the dishwasher. We can choreograph the birth of an organic machine that will probably still be going close to a hundred years from now. We can be the master coordinator and chief designer of a product more advanced than any technology and more complex and interesting than the greatest work of art.
+
+**![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/01/childrens-drawings-716340_1920-1024x710.jpg)**
+
+Having a child definitively refutes any worry about our lack of creativity and dismantles (at least for while) the envy we might otherwise feel about the inventiveness of others. They may have written a stirring song, started and sold a bio-engineering company or plotted an engaging novel. But we will have created the oddest yet most inspiring work of art and science around: one that is alive; one that will develop its own centers of happiness and secrecy; that will one day do its homework, get a job, hate us, forgive us, end up being, despite itself, a bit like us and eventually, make humans of its own that can spawn themselves into perpetuity.
+
+However much they may resent one another, grow apart or be worn down by the humdrum nature of family life, parents and children are never entirely able to get past the supernatural sequence of events that connects creators and created. Because two people met fifteen years ago in a friend’s kitchen, liked the look of one another, swapped phone numbers and went out for dinner, there is now – across the table – a being with a particular sort of nose, a distinctive emotional temperament and a way of smiling that (as everyone remarks) unnervingly echoes that of a dead maternal grandfather.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/01/6785847039_01e51f7906_o.jpg)
+
+Parenting ineluctably demands that one address the greatest, founding philosophical question: what is a good life? As we go about answering it in our words and actions over long years, we will at least know that we have been spared the one great fear that otherwise haunts us and usually manifests itself around work: that of not being able to make a difference. There will not be the remotest danger of lacking impact, only of unwittingly exerting the wrong kind. We will be the biographers, coaches, teachers, chefs, photographers, masters and slaves of our new charges.
+
+Our work will lend us the opportunity to show our worst, but also our best selves in action: it is the particular words we will find, the touch of our hands, the encouraging look only we will be able to give, the swerve towards lenience or the brave defence of principles that will make a decisive difference to the sorrows and joys of another human being. Who we are every day, the specific individuals we will have matured into, will have an unparalleled power to exert a beneficial influence on somebody else’s life. We will – in our role as parents – be terrified, exhausted, resentful, enchanted and forever spared any lingering doubt as to our significance or role on the earth.
+
+[![](https://img.youtube.com/vi/4ihuh6AKyY8/0.jpg)](https://www.youtube.com/embed/4ihuh6AKyY8 '')
