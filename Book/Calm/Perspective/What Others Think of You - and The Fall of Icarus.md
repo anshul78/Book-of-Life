@@ -1,0 +1,27 @@
+[Chapter 5.Calm](https://www.theschooloflife.com/thebookoflife/category/calm/): [Perspective](https://www.theschooloflife.com/thebookoflife/category/calm/perspective/): [46. What Others Think of You - and The Fall of Icarus](https://www.theschooloflife.com/thebookoflife/what-others-think-of-you-and-the-fall-of-icarus/)
+
+* * *
+
+# What Others Think of You – and The Fall of Icarus
+
+**_Landscape with the Fall of Icarus_** is a large painting from the 1560s that hangs in Belgium’s largest museum, the Musée des Beaux Arts – and is held to be a meticulous copy of an original (now lost) work by the Flemish artist Pieter Bruegel the Elder.
+
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c2/Pieter_Bruegel_de_Oude_-_De_val_van_Icarus.jpg/1200px-Pieter_Bruegel_de_Oude_-_De_val_van_Icarus.jpg)
+
+It shows a superficially bucolic scene: ships are taking sail, a shepherd is tending to his flock, distant cities look prosperous and ordered.
+
+But in the bottom right hand corner of the canvas, a tragedy is unfolding, all but unheeded. Reckless Icarus, the legendary figure from Classical mythology, is in the final stages of one of the ancient world’s most famous aeronautical disasters. Together with his father Daedalus, the young man had made himself a pair of wings, glued together with wax. Daedalus had warned his son not to fly too close to the sun in case its heat were to melt the structure, but the impetuous boy soared too high anyway and, in the painting, has just tumbled down into the waves, to his death.
+
+![](https://media.licdn.com/mpr/mpr/shrinknp_1000_1000/AAEAAQAAAAAAAAeYAAAAJDhlZDdjZmY5LWQ4YjgtNDc3OC1iNmRlLTVlYTcxMzgzZWQ4OQ.jpg)
+
+Icarus’s end is deliberately not the central focus of the painting. You have to peer very closely to see the drowning man. You might miss him entirely, without the title to alert you. The eye is drawn instead to the glittering cities and smart ships in the distance. As if to emphasise the point, the ploughman at the centre of the painting references a popular proverb: ‘No plough stops for the dying man.’
+
+This neglect of Icarus’s tragedy is, at one level, terrifying and sad. We read into it how little the world cares about our own pains. And yet, from another perspective, this neglect is deeply gratifying and importantly redemptive. It is one of the central sources of our unhappiness that we spend so much of our lives fearing for our reputations and wondering what others will think of us when we fail – as we inevitably will at points. The slightest change in our image in the eyes of others can obsess us. We lie awake at night wondering how we could cope without the approval of people we don’t even like very much. We surrender our freedom to the verdicts of strangers.
+
+But the painter’s stroke of consoling genius is, here, to show us how, when we really mess up, almost no one will be looking or caring very much. The farmer is too busy ploughing, the shepherd is too taken up with thinking about the weather, someone else is overwhelmingly intent on fishing. Our tragedies don’t occupy society the way we fear they will. A few people might notice for a moment, then swiftly move on to the next thing. We are at the centre of the galaxy only in our own minds.
+
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6e/Der_Sturz_des_Ikarus_%28Ausschnitt%29.jpg/220px-Der_Sturz_des_Ikarus_%28Ausschnitt%29.jpg)
+
+Other people mostly don’t care what happens to us or what we’ve done. The world is still filled with humans who haven’t heard of us and never will. Those who might be angry or disappointed with you now will have forgotten all about you soon enough. Your disgrace will, in time, be subsumed within the larger amnesia of a consolingly indifferent world. It isn’t just Icarus who is being swallowed up and obscured by the waves: some of the same obscurity awaits our greatest errors and embarrassments.
+
+[![](https://img.youtube.com/vi/X75Roe_davA/0.jpg)](https://www.youtube.com/embed/X75Roe_davA '')
