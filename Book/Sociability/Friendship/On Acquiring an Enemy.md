@@ -1,0 +1,19 @@
+[Chapter 4.Sociability](https://www.theschooloflife.com/thebookoflife/category/sociability/): [Friendship](https://www.theschooloflife.com/thebookoflife/category/sociability/friendship/): [70. On Acquiring an Enemy](https://www.theschooloflife.com/thebookoflife/on-acquiring-an-enemy/)
+
+* * *
+
+# On Acquiring an Enemy
+
+We’re not talking here of a mere opponent. This person isn’t just presenting an alternative argument or competing honourably with you. What you’re up against is properly sinister: you have a committed enemy, someone who genuinely despises you and appears hell bent on causing you pain and humiliation. At least in theory, they want you dead. Part of the solution lies in not watering down the problem.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/11/dc43267aefb703ffb7156cf6f69f4de0-male-portraits-portrait-paintings.jpg)
+
+A first move is to stop thinking of your enemy as strong. They may be outwardly capable or successful but the way they are behaving towards you reveals their fundamental psychological incompetence. No contented, reasonable or wise person would ever set out deliberately to harm another human. The enemy may seem daunting but by a kind of cosmic justice, you can be assured of their inward misery and mediocrity. Only someone who was craven, weak, deformed and wholly inadequate would positively want to damage the life of another.
+
+You’re dealing with a wounded figure, not an impregnable foe.
+
+The enemy’s unreasonable, unjust and cruel qualities are merely strategies they’ve come up with to cope with their own suffering. You don’t know what that suffering is. It will stem from things in their past you can scarcely guess at. Something about you – perhaps your appearance, your background or your ideas – taps into a reservoir of historic oppression or anxiety. But the viciousness isn’t, ultimately, really about you. You are the victim, not the cause of their folly.
+
+Congratulations on joining the club. Everyone, however careful they might be, acquires enemies (even cheerful, carefree types have them). It’s impossible to have even a halfway interesting life without attracting people who hate you. Their presence says nothing about you, and everything about the amount of unhappiness in circulation and the dynamics of envy and projection in a competitive jostling world. You should never try directly to appease them, because you’re not truly the reason they are so agitated. An enemy isn’t a sign your life has gone wrong, it’s proof that you’re starting to do a few valuable things.
+
+We are primed to respond to enemies with all the fear and panic we experienced when we first encountered them in childhood, namely at school. There were few options for us then, we had to keep sitting in class, we had to see them day after day. But we’ve grown a lot since then. Though it can feel hard to believe, we have a whole range of options. We can cross town and work somewhere else. We can leave the city. If need be, we can relocate around the world and start afresh. Our limbs are remarkably robust and so are our psyches. We can truly survive that most unfair yet inevitable aspect of a decent life: a vicious and unjust enemy.

@@ -1,0 +1,31 @@
+[Chapter 4.Sociability](https://www.theschooloflife.com/thebookoflife/category/sociability/): [Communication](https://www.theschooloflife.com/thebookoflife/category/sociability/communication/): [78. How to Become Someone People Will Confide in](https://www.theschooloflife.com/thebookoflife/how-to-become-someone-people-will-confide-in/)
+
+* * *
+
+# How to Become Someone People Will Confide in
+
+It is a mark of character to be thought of as someone that others can safely confide in; there is a high degree of empathy, generosity and open-mindedness implied in being the person that friends instinctively turn to when everything has gone dark.
+
+But we may come to realise that, despite our best intentions, often others do not quite see us in this way. If we ask them directly what the matter is, they try to look cheerful and insist that everything is fine. We know it can’t be but nor do they seem inclined to open up to us. We end up lonely and a little helpless.
+
+There are plenty of good reasons why people tend to show extreme care before opening up. A confidant may turn out to be patronising, alarmist, sentimental, panic-inducing or moralistic. The dangers of humiliation can be acute. To dare to confide, we need a strong feeling that our companion is going to be unreservedly understanding, gentle and kindly. But even if we feel ready to be all these things, how do we signal our capacities properly to others?
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/10/5740833496_7b9e42310b_z-1.jpg)
+
+©Flickr/Julio Albarrán
+
+The almost touchingly obvious method is via direct assertion. We might say: _don’t worry, I won’t judge_ or simply: _you can tell me, I’m very understanding_. Kind though such statements may be, they can’t generally help because they don’t touch the core fear that – whatever we may _say_ – we may still turn out to be disturbed by, or hostile to, the details of actual revelations.
+
+The more skilled approach requires a greater degree of courage on our part. It involves regularly admitting to something difficult and troubling and rather shameful about ourselves. It’s by letting others know something of our own vulnerabilities that we free them up to share some of the things they are terrified of admitting in their lives. Our revelation proves far better than a headline statement that we are reliable because we know from the inside what it’s like to carry a dreadful secret and to feel frightened of another person’s reaction to it. We’re demonstrating a crucial idea: that we won’t turn on them because we’ve trusted them not to turn on us.
+
+The process of building up trust often functions in an incremental way: we reveal a small and not too awful fact about us, and the other then starts to share a little of what’s going on for them. From there, we take a bolder step of admitting to something more significantly awkward: something we know could be seen as really not very acceptable. We’re inviting the other to follow us in turn and to feel secure in opening their hearts yet wider.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/10/33331450053_024320d7e4_z.jpg)
+
+©Flickr/Cabin Events
+
+The underlying idea is that in order to demonstrate our position as an empathetic receiver of confidences, we have to show our broken and flawed sides: we’ve failed, so another can tell us of their failure; we’ve been hurt so, they can admit to being hurt; we’ve done, and admitted we’ve done, very stupid things so we’re not going to turn against those who have also been at points very silly.
+
+To be a good companion, it isn’t enough simply to be polite or to commiserate. We need to take a risk. We need to give our friends something they could use against us – so that they can feel safe in giving us something we might use against them. Under the umbrella of mutually assured destruction, real trust and friendship can then flourish.
+
+[![](https://img.youtube.com/vi/eEqpFkIpl4g/0.jpg)](https://www.youtube.com/embed/eEqpFkIpl4g '')

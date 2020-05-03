@@ -1,0 +1,29 @@
+Chapter .: [Friendship](https://www.theschooloflife.com/thebookoflife/category/sociability/friendship/): [69. 'Couldn't We Just Be Friends?'](https://www.theschooloflife.com/thebookoflife/couldnt-we-just-be-friends/)
+
+* * *
+
+# ‘Couldn’t We Just Be Friends?’
+
+One of the most subtly hurtful and quietly damning of all remarks, perhaps quietly and sweetly delivered on the doorstep at the end of a long evening, with the taxi still hovering somewhere just out of sight, is the suggestion that we should in the end probably remain ‘just good friends’.
+
+![](https://hookedonhouses.net/wp-content/uploads/2008/12/porch-night.jpg)
+
+We know exactly what to understand by this. The path towards a tender future is being gently but firmly closed off. We are, with a smile, being shunted into the category of the failed, the ignored and the lightly despised. The other must in some way have worked out the despicable truths about us – all the ones that we tried so hard to disguise and even to believe didn’t exist – and has logically decided to take their leave. We return crushed to an apartment which we had left with butterflies and elevated hopes only a few hours before.
+
+![](https://i.pinimg.com/originals/96/2b/18/962b18645c103dd3d12ea8a3f338c82c.jpg)
+
+We hear the invitation to a friendship as synonymous with insult because our Romantic culture has continuously, and from a young age, made one thing sharply clear to us: love is the purpose of existence; friendship is the paltry, depleted consolation prize.
+
+Though this seems like unsurprising common sense, what should detain us and encourage us to probe a little at the claims made on love’s behalf is one basic source of evidence: the behaviour, level of satisfaction and state of mind of lovers themselves.
+
+If we were to judge love chiefly by its impact, by the extent of the tears, the depths of the frustrations, the viciousness of the insults that unfold in its name, we would not continue to rate it as we do and might indeed mistake it for a form of illness or aberration of the mind. The scenes that typically unfold between lovers would scarcely be considered imaginable outside of conditions of open hostility. Those we love, we honour with our worst moods, our most unfair accusations, our most wounding insults. It is to our lovers that we direct blame for everything that has gone wrong in our lives, it is they we expect to know everything we mean without bothering to explain it, it is to their minor errors and misunderstandings that we respond with sulks and rage.
+
+![](http://thephilosophersmail.com/wp-content/uploads/2014/04/PM-170314-calmC1.jpg)
+
+And, by comparison, in friendship, the supposedly worthless and inferior state whose mention should crush us at the end of a date, we bring our highest and noblest virtues. Here we are patient, encouraging, tolerant, funny and – most of all – kind. We expect a little less and therefore, by extension, forgive an infinite amount more. We do not presume that we will be fully understood, and so treat failings lightly and humanely. We don’t imagine that our friends should admire us without reserve and stick by us whatever we do, and so we put in effort and behave, pleasing ourselves as well as our companions along the way. We are, in the company of our friends, our best selves.
+
+Paradoxically, it is friendship that offers us the real route to the pleasures that Romanticism associates with love. That this sounds surprising is only a reflection of how underdeveloped our day-to-day vision of friendship has become. We associate it with a casual acquaintance we see only once in a while to exchange inconsequential and shallow banter. But real friendship is something altogether more profound and worthy of exultation: it is an arena in which two people can get a sense of each other’s vulnerabilities; appreciate each other’s follies without recrimination, reassure one another as to their value and greet the sorrows and tragedies of existence with wit and warmth.
+
+Culturally and collectively, we have made a momentous mistake which has left us both lonelier and more disappointed than we ever needed to be. In a better world, our most serious goal would not be to locate one special lover with whom to replace all other humans, it would be to put our intelligence and energy into identifying and nurturing a circle of true friends. At the end of an evening, we would learn to say to certain prospective companions, with an embarrassed smile as we invited them inside – knowing that this would come across as a properly painful rejection – ‘I’m so sorry, couldn’t we just be… lovers?’
+
+[![](https://img.youtube.com/vi/yP88kT6ZvwA/0.jpg)](https://www.youtube.com/embed/yP88kT6ZvwA '')
