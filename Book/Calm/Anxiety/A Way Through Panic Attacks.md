@@ -1,0 +1,47 @@
+[Chapter 5.Calm](https://www.theschooloflife.com/thebookoflife/category/calm/): [Anxiety](https://www.theschooloflife.com/thebookoflife/category/calm/anxiety/): [11. A Way Through Panic Attacks](https://www.theschooloflife.com/thebookoflife/a-way-through-panic-attacks/)
+
+* * *
+
+# A Way Through Panic Attacks
+
+During a panic attack, the pervasive worry that we normally carry within us and that is typically content merely gently to corrode away our lives promptly changes tack and decides it might be better to try to kill us off instead – preferably very soon.
+
+We’re meant to give an hour-long speech in a couple of minutes but we stand petrified in the wings of the theatre, our mouth entirely dry, our heart racing and our mind unable to remember so much as the first letters of the alphabet, let alone what our name is.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/03/Panic-Attack-1-1024x874.jpg)
+
+The airplane doors close and we realise that we won’t be able to get off for six hours, that we can hardly move our legs without touching passengers on every side, that the air we’re breathing has passed through the lungs of two hundred other people and a couple of jet engines too and that we’re about to be a few miles off the ground – and the whole situation suddenly seems wholly surreal, tear-jerkingly cruel and deeply unsurvivable.
+
+Or we’re at a business meeting, surrounded by colleagues and prospective clients and we’re made aware that our bowels are about to open or our stomachs to heave across the table, and that we’ll be publicly reduced to a pure emanation of noxious sludge – after which it would evidently be best not to try to continue with one’s life and instead to be taken away, done in and never mentioned again.
+
+What are we to do at such moments? What could the most well wrought philosophy do for us when we’re about to shit ourselves or start wailing uncontrollably at the back of a tightly packed Airbus?
+
+There might, in spite of everything, be a few shreds of advice to hold on to:
+
+Firstly, though this seems like the oddest and most embarrassing thing ever to have unfolded, it happens all the time, even to good, decent people who are worthy of respect and will enjoy a lengthy and dignified old age. This is not the end though – of course – it feels exactly like it.
+
+Secondly, accept the fear; don’t fight it. It’s like trying to wrestle with the current, best to let the waves carry one this way and that; they’ll tire eventually and set one back on shore. Never struggle against a rip tide. Accept that maybe the speech won’t happen, you might faint in your seat or be forced to run out of the room. So what. Refuse to be humiliated by the panic. You don’t have to be competent all the time. Everyone is allowed some failures and this just happens to be one of your well-earnt ones.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/03/Panic-Attack-2-1-1024x771.jpg)
+
+Thirdly, when calm has returned, try to think all this through, ideally with a kindly friend or therapist. It’s to do – perhaps in part – with a baseline sense of unworthiness. You don’t, at some level, feel it’s allowed for you to give a speech and impress a hundred people or succeed in your career. Maybe, in your unconscious, this might make someone (a parent?) feel jealous or inadequate – and it’s kinder, therefore, to stick with being small and unobtrusive.
+
+To which the answer is to reassert, in the light of day, the basic truth that you have every right to exist and draw pleasure from this life, that there is nothing illegal about working a positive effect on others, that you can be a decent colleague, friend, parent and citizen – and make it to the bathroom on time. You are allowed to be.
+
+Also, consider that the panic might have to do with a memory of long ago having been appallingly controlled, hurt and not allowed to get away. It’s an airplane door that has just closed but in the unconscious mind, it’s a perhaps also return to other situations of powerlessness that were unmasterable and that continue to haunt.
+
+To which the answer is to go back to the past, understand it fully and drain it of its power to upset the present. The memories need to be heard and the trauma digested but the plane is going to take off and the doors will eventually open again and one will be free to go wherever one wants, because one is now an adult, with all the agency and liberty that word should imply.
+
+Or maybe what powers your terror is a feeling that you have to impress other people and won’t be forgiven if you don’t.
+
+To which the answer is that you’re OK just as you are; the days of having to impress are over; you need to prove nothing at all. There is no need to let self-contempt keep tearing you apart.
+
+Fourthly, at the height of the fear, it can help to get deeply but redemptively pessimistic about everything. Though it seems like everything matters intensely, gloriously, in truth, nothing matters at all. Almost every human on the planet is entirely indifferent to you; out in the Mojave desert, scorpions are scuttling among the rocks; an eagle is soaring above the Korakorum pass, up there in the universe, the two moons of Mars, Phobos and Deimos, are completing their orbits. You will soon enough be dead, properly inert rather than merely scared, and it will have been as if you never existed. You are but a blip in eternal cosmic time; whether your speech unfolds well or badly, or your soil your trousers or not is a matter of sublime, beautiful indifference to planet Kepler 22b, 638 light-years from earth in the constellation of Cygnus.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/03/Panic-Attach-3-1024x739.jpg)
+
+Lastly, don’t avoid everything that scares you; don’t let the panic reduce you. Don’t accord the fear so much respect that you start to listen to its tyrannical dictates.
+
+Answer the aggression within every panic attack with its opposite: a deeply unconditional love towards you, its unfortunate, blameless, worthy and loveable victim.
+
+[![](https://img.youtube.com/vi/lbJv4AiDatg/0.jpg)](https://www.youtube.com/embed/lbJv4AiDatg '')

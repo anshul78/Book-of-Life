@@ -1,0 +1,47 @@
+[Chapter 5.Calm](https://www.theschooloflife.com/thebookoflife/category/calm/): [Anxiety](https://www.theschooloflife.com/thebookoflife/category/calm/anxiety/): [06. Preparing for Disaster](https://www.theschooloflife.com/thebookoflife/preparing-for-disaster/)
+
+* * *
+
+# Preparing for Disaster
+
+We may not think of it in quite such naive terms, but we are liable to start out – somewhere in the semi-conscious mind – with a script of how our lives might go.
+
+![](https://i.pinimg.com/736x/a0/f4/d4/a0f4d45530d4fc4c49709a2e1583666d--thanksgiving-dinners-happy-thanksgiving.jpg)
+
+First will come education, with its deep friendships, moments of intoxicating self-discovery, tender first loves and at points, sheer riotous good fun.
+
+Then will come a career, something that pays, but won’t be done merely for money. We’ll be competent, respectable and fairly honoured for the intensity of our efforts.
+
+Alongside it will come a central relationship, probably a marriage. The union will last forever and be marked by mutual satisfaction, sincere friendship and frequent passionate sex. There’ll be kids too, offering us a chance to nurture a grateful, adorable small person, the best of its two parents, whom we will watch grow into an admirable, motivated adult.
+
+With advances in science, we will lead an active and pain-free life, mentally and physically healthy, into our early eighties. Our parents will themselves have died at an advanced age and when the time comes for us, the end will be swift and painless.
+
+This is, more or less, the script we’re handed by a technologically advanced, secular, consumer society – and it’s no wonder that, in many moods, we should want to cleave to it and trust it wholeheartedly.
+
+![](https://assets.wired.com/photos/w_1400/wp-content/uploads/2015/12/Home-for-Christmas.jpg)
+
+But the truth, never asserted as a general rule, never insisted upon in tones of suitable melancholy solemnity, is that no one gets through their allotted span without a major off-script event. Something, somewhere, will go catastrophically wrong. Not potentially, or incidentally, but necessarily, because of the structure of human existence and of our appalling exposure to error, accident, madness and illness.
+
+Someone very important to us will die long before they should, in horrific and entirely unexpected circumstances.
+
+We’ll suffer a significant reversal in professional life, probably triggered by a folly on our part, an entrenched character flaw or a collision with one of the very sharp edges of the business cycle.
+
+A central relationship will go wrong: a child will develop a major grievance, someone whom we trusted entirely will betray all the hopes we’d lodged in them.
+
+Illness and death will strike from the blue: a stroke on the airport concourse, cancerous cells in an unfeasibly young body, a haemorrhage that came at least twenty years too soon.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/10/The_Scream-804x1024.jpg)
+
+The permutations are as endless as they are ghastly. We cannot know what it will be exactly; what is certain is that it will be something; an event committedly disastrous in nature that will stop us in our tracks, make us question every resilient assumption and break our hearts. The only guarantee is that we will not exit this life without a calamity.
+
+If there is any defence or consolation to be found, it lies – of course – in knowing the fact head on and preparing for it assiduously in the quieter stretches. ‘To philosophise is to learn to die,’ knew Montaigne, and he might have added, to be more all-encompassing, to suffer too. Expecting the unexpected horror is the one move we can make to insulate ourselves a little from the vengefulness and wickedness of Fortune.
+
+We know that something will come. And when it happens, we should not feel especially cursed. Our lives may appear to have gone off-script, but that is only because the script we were holding to was a sentimental lie. We are, in fact, following the path that all humans must walk. We should never feel persecuted for falling victim to what is the repressed yet general truth.
+
+![](http://www.actingoutpolitics.com/wp-content/uploads/2014/10/BaconPop.jpg)
+
+It is, at least, on the basis of off-script events that we develop our deepest friendships, surrender our self-righteousness, acquire the right kind of gallows humour – and grow up. Newly aware of the ubiquity of random disasters, we start to appreciate the bits that are on-script. We can know just how much to cherish the quiet days in which nothing much has yet gone very wrong.
+
+And when the off-script event comes, we can at least say that we knew – and realised a while back that this what it means to be human.
+
+[![](https://img.youtube.com/vi/4Qk7fJACO70/0.jpg)](https://www.youtube.com/embed/4Qk7fJACO70 '')

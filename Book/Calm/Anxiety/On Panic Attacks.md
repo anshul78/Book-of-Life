@@ -1,0 +1,11 @@
+[Chapter 5.Calm](https://www.theschooloflife.com/thebookoflife/category/calm/): [Anxiety](https://www.theschooloflife.com/thebookoflife/category/calm/anxiety/): [20. On Panic Attacks](https://www.theschooloflife.com/thebookoflife/on-panic-attacks/)
+
+* * *
+
+# On Panic Attacks
+
+[![5021241570_1121b3796a_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/01/5021241570_1121b3796a_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/01/5021241570_1121b3796a_z.jpg)
+
+Panic attacks often belong to a family of self-destroying behaviour, created by feelings of loss of control in situations of high expectation.
+
+[![](https://img.youtube.com/vi/Vf7-7zL67Pg/0.jpg)](https://www.youtube.com/embed/Vf7-7zL67Pg '')

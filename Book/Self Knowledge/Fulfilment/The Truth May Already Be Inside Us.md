@@ -1,0 +1,79 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Fulfilment](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/fulfilment/): [109. The Truth May Already Be Inside Us](https://www.theschooloflife.com/thebookoflife/the-truth-may-already-be-inside-us/)
+
+* * *
+
+# The Truth May Already Be Inside Us
+
+From a young age, we’re taught to expect that the truly important ideas must lie outside of us, usually very far outside of us in time and place. Someone else – cleverer, wiser and more prestigious than we – will already have hatched the crucial thoughts and it is our task to pay homage to their intelligence, to learn what they had to say, to be as faithful as possible to their words and to align our perspective with theirs.
+
+As part of this process, we will need to read a lot of books, listen to teachers and write untold numbers of essays about pre-existing intellectual authorities. We will find that the best way to convince anyone of anything we might be saying is to do our utmost to hide that we may have formulated the idea ourselves and instead to add copious footnotes to show that we got it all from someone else, preferably someone with a prestigious name and a long publishing record. One of the most foolhardy answers to give to any enquiry as to where a thought originated is to remark that it simply popped into our very own heads. Our heads are not understood to be where anything especially valuable might lie.
+
+This readiness to submit to outside expertise has its evident merits: a society in which everyone refused to listen to those who had come before them would squander a lot of time, would be needlessly presumptuous and would have to keep reinventing wheels. But the background impulse automatically to mine the ideas of others before asking ourselves what we think is ruinous in its own way, leading to punishing degrees of stagnation, the wrong kind of conformity and a woeful number of minds that end up in the grave with their riches wholly untapped.
+
+Not all good ideas have yet been had – and our minds are as good a place as any in which they might one day hatch. We need to develop a greater loyalty to what is going on in these minds: we have met hundreds of people, experienced a great many places, entertained a vast variety of sensations and perceptions. Our minds are stocked. We have read more than Socrates, we have had as many – if not more – experiences than Plato. We don’t have to go back to university to do yet another degree. We already have the raw material with which to produce valuable insights. We are simply lacking confidence.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/10/660px-Portrait_of_Michel_de_Montaigne_circa_unknown.jpg)
+
+One thinker who was especially irked by this tendency to underrate our own minds was the sixteenth-century&nbsp;French philosopher Michel de Montaigne. He took particularly objection to the habit (already prevalent in his day) of manically footnoting and quoting other people in academic works:
+
+“Whenever I ask an acquaintance of mine to tell me what he knows about something, he wants to show me a book: he would not venture to tell me that he has scabs on his arse without studying his lexicon to find out the meanings of scab and arse.”
+
+This kind of reluctance to put trust in our own experiences might not be problematic if other minds could be relied upon faithfully to express everything we had thought and felt; if, as it were, they knew all our arses and all our scabs. But,&nbsp;as Montaigne recognised, other people, even very clever ones, will be silent on a great many important themes that circulate in our minds. If we allow existing thinkers to define the boundaries of our curiosity, we will needlessly hold back the development of our minds. A meeting in Italy crystallised the issue for Montaigne:
+
+“In Pisa I met a decent man who is such an Aristotelian that the most basic of his doctrines is that the touchstone and the measuring-scale of all sound ideas and of each and every truth must lie in conformity with the teachings of Aristotle, outside of which all is inane and chimerical: Aristotle has seen everything, done everything.”&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp;
+
+Aristotle had, of course, done and seen a lot. Of all the thinkers of antiquity, he had perhaps been the most comprehensive, his works ranging over the landscape of knowledge. But the very scale of Aristotle’s achievement bequeathed a problematic legacy. He had, paradoxically, prevented many of his successors from behaving like him – for he had risen to greatness only by doubting much of the knowledge that had been built up before him and putting immense faith in the fruits of his own mind.
+
+Montaigne was criticising the impulse to think that the truth must always lie far from us, in another climate, in an ancient library, in the books of people who lived long ago. It is a question of whether access to genuinely valuable things must be structurally limited to a handful of geniuses born between the construction of the Parthenon in Athens and the sack of Rome, or whether as Montaigne daringly proposed, they may be open to you and me as well. He wanted to point us to an unexpected source of wisdom and insight: our own craniums. If we attend properly to our ideas and learn to consider ourselves plausible candidates for a thinking life, it is, implied Montaigne, open to all of us to arrive in the coming days at insights no less profound than those in the great ancient books.
+
+The thought is not easy. We are educated to associate virtue with submission to authorities, rather than with an exploration of the volumes daily transcribed within ourselves by our perceptual mechanisms. Montaigne tried to return us to ourselves.
+
+“We know how to say, ‘This is what Cicero said’; ‘This is morality for Plato’; ‘These are the ipsissima verba of Aristotle.’ But what have we got to say? What judgements do we make? What are we doing? A parrot could talk as well as we do.”&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;
+
+Interesting ideas are, Montaigne insisted, to be found in every life. However modest our biographies, we can all derive greater insights from ourselves than from all the books of old.
+
+“Were I a good scholar, I would find enough in my own experience to make me wise. Whoever recalls to mind his last bout of anger…sees the ugliness of this passion better than in Aristotle. Anyone who recalls the ills he has undergone, those which have threatened him and the trivial incidents which have moved him from one condition to another, makes himself thereby ready for future mutations and the exploring of his condition. Even the life of Caesar is less exemplary for us than our own; a life whether imperial or plebeian is always a life affected by everything that can happen to a person.” &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; &nbsp;
+
+Only an intimidating scholarly culture has made us think otherwise, said Montaigne: “We are richer than we think, each one of us.”
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/10/Tomasi_di_Lampedusa_foto.jpg)
+
+In the leading Italian novel of the 20th century, _The Leopard_ by Tomasi di Lampedusa, one of the central passages describes two characters dancing together at a party, shortly after their engagement has been announced. They are in love but:
+
+… they were blind to each other’s failings, deaf to the warnings of fate, deluding themselves that the whole course of their lives would be as smooth as the floor they were dancing on. Neither was particular kind, both were selfish, each had many secrets; yet there was something sweet about watching them together: their hopes were muddled and naive – but he was murmuring playfully in her ear; the scent on her hair was delightful; they were mortal creatures, for whom death was still an abstract, distant notion; they held one another, trying to brighten the brief passage between birth and death.
+
+This paragraph is regularly held up to Italian students as a high point of literary brilliance. But there’s a very strange feature to it: there’s nothing in it that we didn’t already understand or know. The author didn’t have access to any truth from which we had been barred: we’ve seen couples dancing; we’ve been in relationships; we’ve experienced love; we know how complicated we are; we’ve had moments of tenderness and compassion for others despite their flaws. All the truths the passage describes were already in our minds; but we stayed silent. What might have held us back from writing similarly charming and true passages is that we have vastly under-respected our own intelligences: we have not had the courage of our most powerful intuitions. We have behaved as if we needed permission or a famous name like di Lampedusa (who was – in fact – just like any of us, until he started to take his own thoughts seriously).
+
+Centuries earlier, another Italian artist, Michelangelo, defined his own attitude to his work as a sculptor: _the statue is already in the stone, my work is to liberate it._
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/10/prisoner-awakening-1.jpg)
+
+##### _Michelangelo: The Awakening Prisoner_ 
+
+Just like Michelangelo’s stones, there are already all kinds of great thoughts in our heads: it is merely that we need to liberate them from the dense block of our own hesitancy.
+
+We suffer from excessive respect. We are taught to admire the minds of infinite, baffling but astonishing figures like Michelangelo, Aristotle, Plato, di Lampedusa or Montaigne. We are invited to stand in awe at the achievements of these geniuses but also – somewhere along the way – we are made to feel that their thought processes must be quasi-magical and that it is ultimately simply mysterious how they were ever able to come up with the ideas they have had.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/10/Daguerreotype_of_Ralph_Waldo_Emerson.jpg)
+
+But there is a radically different view, suggested by a hugely prescient quote from the 19th-century American genius Ralph Waldo Emerson: _In the minds of geniuses, we find – once more – our own neglected thoughts_. What this tells us is that the genius doesn’t have different kinds of thoughts from the rest of us. They simply take them more seriously. We ourselves will often have had our own sketchy, hesitant version of their ideas – which is why their works can have such a distinctive impression on us. What they present feels surprising and impressive, of course; yet also obvious and right – once it has been pointed out. They are giving clear and powerful articulation to notions that are already familiar because we’ve been circling them ourselves, possibly for years, without quite ever being able to close in on them properly.
+
+Genius can in this sense be defined as paying closer attention to our real thoughts and feelings and being brave and tenacious enough to hold onto them even when they find no immediate echo in the world beyond. The reason why we disavow so much of what passes through our minds is under-confidence. We kill off our most promising thoughts for fear of seeming strange to ourselves and others (which explains why small children are, in their own way, so much more interesting than the average adult: they have not yet become experts in what not to say or think). But when we censor and close down, when we take fright and try not to think, is exactly the moment when the so-called genius starts to take note of what is happening within them.
+
+We operate with a false picture of intelligence when we identify it too strongly with what is exotic and utterly beyond us. It is something far more provocative than this. Clever is what we all can be when we pay careful attention to what is truly passing through consciousness. We all have very similar and very able minds; where geniuses differ is in their more robust inclinations to study them properly.
+
+_Manoeuvres_
+
+Imagine, for once, that the truth does not lie outside of you.
+
+Put aside external authorities.
+
+Ask yourself what you think.
+
+Stay faithful to what you have felt.
+
+Believe that it is within your capacity to know.
+
+Learn to catch your own unthought thoughts.
+
+Examine – as it were – your own arse.

@@ -1,0 +1,31 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Fulfilment](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/fulfilment/): [111. The Desire to Write](https://www.theschooloflife.com/thebookoflife/the-desire-to-write/)
+
+* * *
+
+# The Desire to Write
+
+In no other age can so many people have harboured such intense ambitions to become writers. The longing one day to turn out a book – probably a novel or, less likely, an autobiography – lies close to the center of contemporary aspirations.
+
+This is – at one level – a hugely welcome development, a consequence of widespread literacy, higher educational standards and a proper focus on the power of books to change lives. But looked at from another angle, it may also, in private, be the result of something rather more desultory: an epidemic of isolation and loneliness. The army of literary agents, scouts, editors and writing coaches testifies not only to our love of literature, but also, less intentionally, to an unaddressed groundswell of painful solitude.
+
+ ![Image result for lonely suburbs](https://images.theconversation.com/files/65914/original/image-20141201-20598-1dlwdsg.jpg?ixlib=rb-1.1.0&q=45&auto=format&w=926&fit=clip)
+
+© Flickr/Scorpions and Centaurs
+
+Reasons for wanting to write are multiple of course, but the structurally simplest option may also be the most pervasive: we write because there is no one in the vicinity who will listen. We start to long to set down our memories and emotions on a page and to send them out into the wider world because our friends can’t be bothered to hear us, because our partners are preoccupied and because it’s been agonisingly long since anyone gave us an uninterrupted stretch of time in which we could be attended to with respect and attention – in short, because we are very lonely.
+
+Writing, for all that it might begin with experiences of joy or disinterested intellectual fascination, also owes its origins to despair, shame and a lack of someone to cry with. It is when we have screamed a long time for help, and no one came, that we may begin quietly to burn to write a novel instead. Writing can be the presenting solution to a more poignant ambition beneath: to be heard, to be held, to be respected, to have our feelings interpreted, and soothed, to be known and appreciated. Flaubert put it at its simplest: if he had been happy in love at eighteen, he would never have wanted to write.
+
+![Image result for kersting reading](https://upload.wikimedia.org/wikipedia/commons/b/b4/Kersting_-_Der_elegante_Leser.jpg)
+
+At the start of the West’s journey into self-awareness, we meet the figure of Socrates, who puts forward a striking proposition: writing is not what thoughtful people should ideally be doing with their time, he suggests. For Socrates, writing is a pale imitation of and replacement for our true vocation, which is that of talking to our fellow human beings, in the flesh, in real time, often with a glass of wine on the table, or while walking to the harbour or doing some exercise in the gym, about what really matters. The birth of literature is, in the Socratic world view, simply a symptom of social isolation and an indictment of our communities.
+
+![Related image](https://i0.wp.com/bassertive.com/wp-content/uploads/2017/06/platon_aristoteles.jpg?fit=400%2C449&ssl=1&w=640)
+
+Even if we find literature the finest of substitutes, infinitely better than anything else yet invented, it still pays to recognise that substitute is what it might primarily be, that writing is in certain ways an act of very polite and artful revenge on a world too busy to listen and that we would never develop such fierce bookish ambitions if we had not first been let down by those we needed so much to rely upon.
+
+A slightly more conscious awareness of writing as compensation may lend us energy to acknowledge our unrequited ache for more visceral forms of contact. Whatever the satisfactions of writing alone in bed, we should perhaps not cease so easily to give up on the ecstasies of mutual understanding and sympathy. It is far from easy to write a decent novel; it may be even harder – yet ultimately more rewarding – to learn to locate a circle of true friends.
+
+A better world might, from this perspective, be one in which we wanted a little less ardently to be writers – because we had collectively grown ever so slightly better at listening and making ourselves heard. Literature’s loss might, in the end, be humanity’s gain.
+
+[![](https://img.youtube.com/vi/axXn_Vn2vYo/0.jpg)](https://www.youtube.com/embed/axXn_Vn2vYo '')

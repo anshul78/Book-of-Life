@@ -1,0 +1,48 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Growth & Maturity](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/growth-maturity/): [126. The Ultimate Test of Emotional Maturity](https://www.theschooloflife.com/thebookoflife/the-ultimate-test-of-emotional-maturity/)
+
+* * *
+
+# The Ultimate Test of Emotional Maturity
+
+One of the more puzzling aspects of the way we’re built is that our emotional development does not necessarily or automatically keep pace with our physical growth. We can be fifty-five on the outside and four and a half in terms of our impulses and habitual manner of communicating – just as we can be on the threshold of adulthood physically while an emotional sage within.&nbsp;
+
+In order to assess our own and others’ emotional development, we can make use of a single deceptively simple question that quickly gets to the core of our underlying emotional ‘age’.
+
+**_When someone on whom we depend emotionally lets us down, disappoints us, or leaves us hanging and uncertain, what is our characteristic way of responding?_**
+
+There are three methods which indicate emotionally immature behaviour (we might grade ourselves on a scale of 1-10 according to our propensities).
+
+Firstly: we might sulk.
+
+That is, we simultaneously get very upset while refusing to explain to the person who has upset us what the problem might be. The insult to our pride and dignity feels too great. We are too internally fragile to reveal that we have been knocked. We hope against hope that another person might simply magically understand what they have done and fix it without us needing to speak – rather as an infant who hasn’t yet mastered language might a hope a parent would spontaneously enter their minds and guess what was ailing them.
+
+Secondly: we might get furious.
+
+Another response is to get extremely, and disproportionately angry with the disappointing person. Our fury may look powerful, but no one who felt powerful would have any need for such titanic rage. Inside, we feel broken, at sea and bereft. But our only way of reasserting control is to mimic an aggrieved emperor or taunted tiger. Our insults and viciousness are, in their coded ways, admissions of terror and defencelessness. Our pain is profoundly poignant; our manner of dealing with it a good deal sadder.
+
+Thirdly: we might go cold.
+
+It takes a lot of courage to admit to someone who has hurt us that we care, that they have a power over us, that a key bit of our life is in their hands. It may be a lot easier to put up a strenuous wall of indifference. At precisely the moment when we are most emotionally vulnerable to a loved one’s behaviour, we insist that we haven’t noticed a slight and wouldn’t give a damn anyway. We may not simply be pretending: remaining in touch with our wounds may have become conclusively intolerable. Not feeling anything may have replaced the enormous threat of being fully alive.
+
+<figure class="aligncenter"><img src="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/08/3970006701_6b6c50a143_z.jpg" alt="" class="wp-image-23559" srcset="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/08/3970006701_6b6c50a143_z.jpg 452w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/08/3970006701_6b6c50a143_z-212x300.jpg 212w" sizes="(max-width: 452px) 100vw, 452px"></figure>
+
+These three responses point us in turn to the three markers of emotional maturity:
+
+Firstly, the Capacity to Explain.
+
+That is, the power – simple to describe but a proper accomplishment in practice – to explain why we are upset to the person who has upset us; to have faith that we can find the words, that we are not pathetic or wretched for suffering in a given way and that, with a bit of luck, we will find the words to make ourselves understood by someone whom we can remember, deep down, even at this moment of stress, is not our enemy.
+
+Secondly, the Capacity to stay Calm.
+
+The mature person knows that robust self-assertion is always an option down the line. This gives them the confidence not to need to shout immediately, to give others the benefit of every doubt and not to assume the worst and then hit back with undue force. The mature like themselves enough not to suspect that everyone would have a good reason to mock and slander them.
+
+Thirdly, the Capacity to be Vulnerable
+
+The mature know, and have made their peace with the idea, that being close to anyone will open them up to being hurt. They feel enough inward strength to possess a tolerable relationship with their own weakness. They are unembarrassed enough by their emotional nakedness to tell even the person who has apparently humiliated them that they are in need of help. They trust – ultimately – that there is nothing wrong with their tears and that they have the right to find someone who will know how to bear them.
+
+In turn, these three traits belong to what we can call the three cardinal virtues of emotional maturity: **Communication, Trust** and **Vulnerability**.
+
+These three virtues were either gifted to us during a warm and nourishing childhood or else we will need to learn them arduously as adults. This is akin to the difference between growing up speaking a foreign language, and having to learn it over many months as an adult. However, the comparison at least gives us an impression of the scale of the challenge ahead of us. There is nothing to be ashamed of about our possible present ignorance. At least half of us weren’t brought up in the land of emotional literacy. We may just never have heard adults around us speaking an emotionally mature dialect. So we may – despite our age – need to go back to school and spend 5 to 10,000 hours learning, with great patience and faith, the beautiful and complex grammar of the language of emotional adulthood.
+
+[![](https://img.youtube.com/vi/tz7zxh9Bfow/0.jpg)](https://www.youtube.com/embed/tz7zxh9Bfow '')
+&nbsp;&nbsp;  

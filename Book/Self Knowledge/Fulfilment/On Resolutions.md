@@ -1,0 +1,11 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Fulfilment](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/fulfilment/): [122. On Resolutions](https://www.theschooloflife.com/thebookoflife/on-resolutions/)
+
+* * *
+
+# On Resolutions
+
+[![5331344043_cc39a1a2d6_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/12/5331344043_cc39a1a2d6_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/12/5331344043_cc39a1a2d6_z.jpg)
+
+Any occasion to improve ourselves should be seized upon. We need resolutions: they are promises we make to our better selves. In the future, we should try to worry less, forgive more, look at things through other people’s eyes and, most of all, learn to appreciate what we have.
+
+[![](https://img.youtube.com/vi/xMigomn8KLM/0.jpg)](//www.youtube.com/embed/xMigomn8KLM '')

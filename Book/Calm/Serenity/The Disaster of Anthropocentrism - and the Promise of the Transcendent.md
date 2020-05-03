@@ -1,0 +1,57 @@
+[Chapter 5.Calm](https://www.theschooloflife.com/thebookoflife/category/calm/): [Serenity](https://www.theschooloflife.com/thebookoflife/category/calm/serenity/): [29. The Disaster of Anthropocentrism - and the Promise of the Transcendent](https://www.theschooloflife.com/thebookoflife/the-disaster-of-anthropocentrism-and-the-promise-of-the-transcendent/)
+
+* * *
+
+# The Disaster of Anthropocentrism – and the Promise of the Transcendent
+
+The modern age is inherently anthropocentric in outlook (from _anthropos_, greek for human), that is, it places human beings and their experience and concerns at the centre of the hierarchy, above the claims of nature, animals, gods or the universe more broadly. We are now, in every way, in our own eyes, the centre of the show.
+
+It was not always thus. Religions traditionally declined to give human beings a central or anointed place in the cosmos. The ancient Greeks pictured their Gods living on the summit of Mount Olympus and looking down upon humans with a mixture of amusement and pity. Zen Buddhism interpreted nature, with all its diverse flora and fauna, as far more important than anyone kind of upright ape of questionable merit. And Judaism and Christianity presented the world ‘theocentrically’, with human life as a small, not very impressive fragment in a much larger scheme known only to the infinitely superior mind of God.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/06/35956526513_02eed0360c_k.jpg)
+
+© Flickr/Rennett Stowe
+
+Our attention would, in the historic past, constantly have been drawn back to theocentric or biocentric perspectives. In ancient times, in the Parthenon, on the Acropolis above Athens, there stood a ten-metre-tall statue of Athena made of gold and ivory. No merchant, statesman or general, however accomplished in human terms, could look upon it and think of themselves as anything other than insignificant beside it. In London, after the huge fire of 1666, the largest part of the city’s revenue was assigned for decades to the building of St. Paul’s Cathedral: an edifice massively larger and more impressive than any other of the time. The Cathedral radiated across the city the fundamental idea that life on earth would be fleeting, our concerns slight and our personal triumphs petty in comparison to the glory of an omnipotent, omniscient and eternal God.
+
+With the decline of religion we have come to embrace a philosophy we can term anthropocentrism: we have identified ourselves, as humans, as the most important things that exist. It’s a move that can be cast as liberation. The stories on which God-focused societies were founded have been displaced by more visceral tales of human heroism in business, science or the arts, but this liberation has brought an unexpected kind of suffering in its wake: a vicious sense of our own lack of importance as compared with that of certain esteemed others. It has unleashed a torrent of envy and inadequacy.
+
+Theocentric or biocentric societies cast all our eyes upwards and attenuated destructive internecine feelings by reminding us that we were, everyone of us, in the wider scheme, ultimately, puny and forgettable propositions. But in our times, there is now no established point of reference beyond us that can matter. What happens to us here and now is framed as overwhelmingly important; it is all there is. And so everything that goes wrong, everything that frustrates or disappoints us fills the horizon of being. The idea of something bigger, older, mightier, wiser and nobler than us to which we owe love and obedience has been stripped of its power to console us.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/06/2737010659_1509194529_b.jpg)
+
+© Flickr/Steve Jurvetson
+
+Religion, for its part, located the important events at distant points in time: in the age of myths and heroes or in the year 33 AD when Jesus was crucified. The events of our own days would be seen as mere ripples and minor accidents in the immense fabric of theological time. There was nothing very special about now. Our natural instincts to panic and despair were reduced by being set within the grandest of perspectives.
+
+The theocentric view of religion made it impressively clear that the so-called great figures in society were not really so great. They might indeed have power over us, but they in turn were nothing as compared to divine authorities. The Greeks built into their culture stories, which they told themselves again and again in poems and plays, of how their greatest king, Agamemnon, was gruesomely punished by divine justice for the arrogance of his life. He was above all other people, but he was still a lowly subject of the Gods. The story was still being retold in the 18th century, when the German composer Gluck set movingly to music the central words: ‘great kings to whom all must bow, must themselves kneel before the Gods.’
+
+A non-anthropocentric outlook allowed us to perceive ourselves as beautifully unimportant and rather ridiculous. How long we might live, whether we were very successful or not, how intelligent we were or how beautiful, would have to be absurd concerns from the point of view of a deity, Mount Olympus or the distant planets. We were invited, usefully, to see how unimpressive our merits all ultimately were. From the point of view of the divine, we would appear as a goldfish or house spider might to us.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/06/7350575270_cc33f376fb_k.jpg)
+
+© Flickr/Daily Sublime
+
+In modernity, we have been left without these comforts and reliefs, tormented by a stupefyingly vast sense of our own importance in a nevertheless wholly indifferent universe.
+
+Secular societies do not orient themselves around devotion to something bigger than, or beyond, themselves. They are not interested in what we can term transcendence: contact with something eternal and grand in comparison with which our ordinary preoccupations will come to feel unimportant and redemptively insignificant in our own eyes.
+
+With the receding of religion there is in general nothing left to awe or relativise us. Our immediate difficulties and burdens, our conflicts and pains are, it seems, all there is – and so they loom ever larger and more desperately in our agitated minds.
+
+However, the sources of transcendence needn’t be – as religions presumed – composed of deities. They might involve the sight of the stars at night, spread out in a mantle of darkness: uncountably many, unimaginably distant and themselves constituting only an infinitesimal fraction of the cosmos. We can begin to conceive how vanishingly minor our sun, our planet and we ourselves are in this sublime immensity. Imagined from sufficiently far away, all human differences fade. Our collective similarities seem more evident. Our conflicts and competitions feel less urgent or significant.
+
+Or it might be immersion in a desert that generates our sense of awe. Here, for hundreds of years very little has happened. History has been measured in inches of wind-erosion; a boulder slipped from a hillside three hundred years ago. Since then, little has happened. We’re introduced to a epochal sense of time: it doesn’t matter what we did yesterday or what we may do tomorrow. The normal scale of relevance we apply in our lives is suspended. The crags don’t care who we are; they’re not impressed, or disappointed, by our careers; they don’t ask about our sex lives or our romantic histories. We are returned to a universal common denominator.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/06/17134738529_990fe2fd91_k.jpg)
+
+© Flickr/inefekt69
+
+We might meet a hint of transcendence on a more domestic scale in a small animal: a duck or a hedgehog. Its life goes on utterly oblivious to ours. It is entirely devoted to its own purposes. The habits of its species have not changed for centuries. We may be looking intently at it but it feels not the slightest curiosity about who we are; from its point of view, we are absorbed into the immense blankness of unknowable, incomprehensible things. A duck will take a piece of bread as gladly from a criminal as from a high-court judge; from a billionaire as from a bankrupt felon; our individuality is suspended – and it is an enormous relief.
+
+Nature habitually envelops us in forces and sequences that are entirely above and beyond our control. The trees flower in spring and lose their leaves in autumn; the sea rises and falls, the earth spins around the sun bringing winter and summer, with no regard at all to us. And, therefore, our individual errors and our failings come to seem irrelevant: the processes of nature will continue with us or without us, whether we mess up or triumph, whether we have been mean or said something asinine. Nature does not upbraid us for being fools. A central task of culture should be to remind us that the laws of nature apply to us as well as to trees, clouds and cliff faces. Our goal is to get clearer about where our own tantalisingly powerful yet always limited agency stops – and where we will be left with no option but to bow to forces infinitely greater than our own.
+
+Today, the transcendent is real, but disorganised and fragmented. Religions organised it: they interpreted it; they ensured our regular contact with it: they took it to the centre of shared public culture; they insisted on its importance. It could not be dismissed as sentimental or merely private: they made it public and gave it its proper status.
+
+There continue to be endless opportunities to meet the transcendent but for the moment they seem to be left to individual chance. This power to bring a consoling perceptive to our troubles is not harnessed by any powerful institution that has our best interests in view. The consolation is there, but we live unconsoled, waiting for the transcendent to be mastered and applied to our inner squalls and sorrows.
+
+[![](https://img.youtube.com/vi/nxYQhuiTSNQ/0.jpg)](https://www.youtube.com/embed/nxYQhuiTSNQ '')

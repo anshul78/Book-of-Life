@@ -1,0 +1,37 @@
+[Chapter 4.Sociability](https://www.theschooloflife.com/thebookoflife/category/sociability/): [Confidence](https://www.theschooloflife.com/thebookoflife/category/sociability/confidence/): [52. The Impostor Syndrome](https://www.theschooloflife.com/thebookoflife/the-impostor-syndrome/)
+
+* * *
+
+# The Impostor Syndrome
+
+In many challenges – personal and professional – we are held back by the crippling thought that people like us could not not possibly triumph given what we know of ourselves: how reliably stupid, anxious, gauche, crude, vulgar and dull we really are. We leave the possibility of success to others, because we don’t seem to ourselves to be anything like the sort of people we see lauded around us. Faced with responsibility or prestige, we quickly become convinced that we are simply impostors, like an actor in the role of a pilot, wearing the uniform and making sunny cabin announcements while incapable of even starting the engines. It can feel easier simply not to try.
+
+The root cause of the impostor syndrome is a hugely unhelpful picture of what other people are really like. We feel like impostors not because we are uniquely flawed, but because we fail to imagine how deeply flawed everyone else must necessarily also be beneath a more or less polished surface.
+
+[![4395455002_6a737b7d9b_o](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/4395455002_6a737b7d9b_o.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/4395455002_6a737b7d9b_o.jpg)
+
+The impostor syndrome has its roots far back in childhood – specifically in the powerful sense children have that their parents are really very different from them. To a four year old, it is incomprehensible that their mother was once their age and unable to drive a car, tell the plumber what to do, decide other people’s bedtimes and go on planes with colleagues. The gulf in status appears absolute and unbridgeable. The child’s passionate loves – bouncing on the sofa, Pingu, Toblerone… – have nothing to do with those of adults, who like to sit at a table talking for hours (when they could be rushing about outside) and drink beer which tastes of rusty metal. We start out in life with a very strong impression that other people – especially competent and admirable other people – are really not like us at all.
+
+This childhood experience dovetails with a basic feature of the human condition. We know ourselves from the inside, but others only from the outside. We’re constantly aware of all our anxieties, doubts and idiocies from within. Yet all we know of others is what they happen to do and tell us, a far narrower, and more edited source of information. We are very often left to conclude that we must be at the more freakish and revolting end of human nature.
+
+&nbsp;[![2798006010_e7ac67655f_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/2798006010_e7ac67655f_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/2798006010_e7ac67655f_z.jpg)
+
+Far from it. We’re just failing to imagine that others are of course every bit as disturbed as we are. Without knowing exactly what it is that troubles or wracks another outwardly very impressive person, we can be sure that it will be _something_. We might not know exactly what they regret, but there will be agonising feelings of some kind. We won’t be able to say exactly what kind of unusual sexual kink obsesses them, but there will be one. And we can know this because vulnerabilities and compulsions cannot be curses that have just descended upon us uniquely, they are universal features of the human mental equipment.
+
+The solution to the impostor syndrome lies in making a crucial leap of faith, the leap that others’ minds work in basically much the same ways as ours do. Everyone must be as anxious, uncertain and wayward as we are. It’s a leap of faith because we just have to accept that the majority of what we feel and are, especially the more shameful, unmentionable sides, will have a corollary in each and every one of us.
+
+&nbsp;[![SONY DSC](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/4414878066_4e38468cd1_b.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/4414878066_4e38468cd1_b.jpg)
+
+One of the tasks that works of art should ideally accomplish is to take us more reliably into the minds of people we are intimidated by and show us the more average, muddled and fretful experiences they have. That way, we would be helped to understand that we are not barred by our vulnerabilities from doing what they do. This is what the philosopher Montaigne – writing in the 16th century – was attempting to do when he playfully informed his readers in plain French that: ‘Kings and philosophers shit and so do ladies’.
+
+![](http://3.bp.blogspot.com/-BHOFNyer7DE/UFwq7M9L4BI/AAAAAAAAAbM/OHvoicpeP0U/s1600/medwomenatwork1-pisan.jpg)
+
+Montaigne’s point is that for all the evidence that exists about this shitting, we might not guess that these people ever had to squat on a toilet. We never see distinguished types doing this – while, of course, we are immensely well informed about our own digestive activities. And therefore, we build up a sense that because we have crude and sometimes rather desperate bowels, we can’t be philosophers, kings, or ladies; and that if we set ourselves up in these roles, we’d just be impostors.
+
+![](http://www.experience-it-all.com/wp-content/uploads/2011/01/googleexecs.jpg)
+
+It’s a neat example because, despite the lack of evidence, we know that these exalted people must of course excrete in exactly the same way we do. With Montaigne’s guidance, we are invited to take on a saner sense of what grand, powerful people are really like. But the real target isn’t just an underconfidence about bodily functions; it extends into the psychological arena too. Montaigne might also have said that kings, philosophers and ladies are wracked by self-doubt and feelings of inadequacy, sometimes bump into doors and have weird lustful thoughts about members of their own families. Furthermore, instead of considering only the big figures of 16th century France, we could update the example and refer to CEOs, corporate lawyers, news presenters and successful startup entrepreneurs. They too can’t cope, feel they might buckle under pressure and look back on certain decisions with shame and regret. No less than shitting, such feelings are not what separates us from them. Our inner frailties don’t cut us off from doing what they do. If we were in their roles, we’d not be impostors, we’d simply be normal.
+
+Making a leap of faith around what other people are really like helps us to humanise the world. It means that whenever we encounter a stranger we’re not really encountering a stranger, we’re in fact encountering someone who is – in spite of the surface evidence to the contrary – in basic&nbsp;ways very much like us – and that therefore nothing fundamental stands between us and the possibility of responsibility, success and fulfilment.
+
+[![](https://img.youtube.com/vi/eqhUHyVpAwE/0.jpg)](https://www.youtube.com/embed/eqhUHyVpAwE '')
