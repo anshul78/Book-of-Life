@@ -1,0 +1,31 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Emotional Skills](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/emotional-skills/): [68. Why Our Best Thoughts Come To Us in the Shower](https://www.theschooloflife.com/thebookoflife/why-our-best-thoughts-come-to-us-in-the-shower/)
+
+* * *
+
+# Why Our Best Thoughts Come To Us in the Shower
+
+We might suppose that the best place to think would be a&nbsp;large room with a big desk, plenty of natural light and a window with a view – perhaps onto water or a park.
+
+This is the premise behind the layout of most offices. The nearer one gets to the top, the closer one’s work station will approximate to this supposed ideal: in tribute to the quality of thinking that, ideally, one would do there. Bosses tend to have big desks and even larger&nbsp;views.
+
+But these assumption are not – in fact – really true to the way our minds work.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/02/Hammersh%C3%B8i_Tall_windows-830x1024.jpg)
+
+The primary obstacle to good thinking is not a cramped desk or an uninteresting horizon. It is, first and foremost, anxiety. Often the most profound thoughts we need to grapple with&nbsp;have a potentially disturbing character. If we were to pinpoint them accurately and get clear about their significance, there could be a risk. We might discover that some of our past, rather cherished, beliefs were not as wise as we’d supposed; we might realise we were previously&nbsp;deeply wrong about something; we might have to make some significant and tricky changes to our lives.
+
+As these potential implications start to come vaguely into view, our inner censor, motivated by a desire for calm rather than growth, gets alarmed. A vigilant part of the self gets agitated; it distracts us, it makes us feel tired or gives us a strong need to go online. Skilfully, it confuses and muddles our train of thought. It blocks the progress we were starting to make towards ideas that – though important and interesting – also presented marked threats to short-term peace.
+
+It in this context that the shower emerges as so helpful to the way our minds work and earns the right to be honoured as one of the best places on earth in which to do any kind of serious reflection. Amidst the crashing water and the steam and with a few minutes of respite before the day starts, the mind is no longer on guard. We’re not supposed to be doing much inside our heads; we’re mainly occupied with trying to soap our backs and properly rinse our hair. The ideas that have been half-forming at the back of our minds, ideas about what the true purpose of our lives might be and what we should do next, keep up their steady inward pressure – but now there is a lot less to stop them reaching full consciousness. We’re not meant to be thinking and so – at last – we can think freely and courageously.
+
+. ![](http://www.tate.org.uk/art/images/work/T/T03/T03074_10.jpg)
+
+This quality of sufficient – but not overwhelming – distraction might equally well be present when we’re driving down the highway or walking in a forest; when there’s just enough for the managerial timid side of the mind to be doing to keep it from interfering with our authentic and bolder inner machinations.
+
+Our world places a very high premium on good ideas – but spends very little serious effort in investigating why we find it extraordinarily hard to hatch them.
+
+Ralph Waldo Emerson once wrote: ‘In the minds of geniuses, we find our own neglected thoughts.’ In other words, so-called geniuses don’t have thoughts different from the ones most of us have. They’re just a lot better at not allowing their inhibitions and preconceptions to get in the way of properly entertaining them.
+
+In a utopian future, we would get a lot more creative about what real thinking is and where it happens. We’d learn that the real enemy of good thinking isn’t a small desk or a modest view: &nbsp;it is – almost always – anxiety, for which there can be few better cures than that library of our deeper selves: the morning shower.
+
+[![](https://img.youtube.com/vi/xv5TwMVkd0Q/0.jpg)](https://www.youtube.com/embed/xv5TwMVkd0Q '')

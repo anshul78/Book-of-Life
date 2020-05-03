@@ -1,0 +1,35 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Emotional Skills](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/emotional-skills/): [82. What’s Wrong with Needy People](https://www.theschooloflife.com/thebookoflife/whats-wrong-with-needy-people/)
+
+* * *
+
+# What’s Wrong with Needy People
+
+The ‘needy’ person is a stock figure of caricature: they call too much, they cry when you leave to get a glass of water, they feel put out when you check your phone, they were upset when you watched a film without them.
+
+We hate needy people a lot.
+
+[![The Phone Call](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/11/4941662036_cc84224a0e_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/11/4941662036_cc84224a0e_z.jpg)
+
+But let’s look at this another way. There are, of course, a few pathologically dependent people at large, but a lot of the time, far more than is generally accepted, the person who has the problem isn’t the ‘needy’ person at all, it is us; the ones who are doing the accusing.
+
+We will feel someone is sickeningly ‘needy’ when we don’t see ourselves as appropriate targets of someone else’s need. Somewhere inside, we don’t trust that we are reliable, strong, dependable, admirable or decent; we aren’t quite grown-up – and those who need something from us therefore come across as deranged and fitting targets for mockery. At the first sign that someone is becoming reliant on us, we flinch. We suspect that someone who needs us enough to depend on us for a pleasant weekend or evening must be diseased.
+
+[![24706592581_d0d95b87b5_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/11/24706592581_d0d95b87b5_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/11/24706592581_d0d95b87b5_z.jpg)
+
+At the root of our hatred of so-called needy people is self-hatred. Ostensibly, we all want love – but when love actually starts to be reciprocated, it may prove intensely alarming if we are not convinced of our own lovability. We can start to think very badly of the person we liked only a little time before. We feel they are naive in finding us wonderful, a great deal more wonderful than we feel we are. We think them gullible, and too easily taken in by a character we ourselves don’t believe in.
+
+The solution isn’t necessarily to try to change a lover – by telling them to stop asking so much. They most probably aren’t asking too much at all. They just aren’t afflicted with a sense that it is peculiar to be loved or to love.
+
+[![5784376625_ea299537da_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/11/5784376625_ea299537da_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/11/5784376625_ea299537da_z.jpg)
+
+Put another way, they’re just strong enough to reveal that they aren’t invulnerable and judicious enough to like the look of us. Showing need is a precondition of strength rather than weakness.
+
+The solution is to revise our view of ourselves; to see ourselves as more or less plausible people for someone else to stand in need of. The fear of ‘needy’ people is only a species of self-hatred rippling outwards to tar our lover.
+
+[![6220511750_c35cb122ff_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/11/6220511750_c35cb122ff_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/11/6220511750_c35cb122ff_z.jpg)
+
+A reduction of self-hatred doesn’t depend on self-boosterism (telling ourselves how great we are). We should learn to tolerate ourselves not by believing we are wonderful, but via a secure realisation that everyone is both OK and sometimes a bit awful: that is enough to deserve love. We can be cured of our uncommonly vicious self-suspicion by a more accurate vision of what constitutes normality. Of course we are a bit a weak, a bit sly and a bit foolish, to put it gently. But so is everyone. We’re no more idiotic or wayward than the next person. We can embrace a person’s hopes for a close and deep relationship with us simply on the basis that we are, in fact, all a bit odd and broken. The need that the lover has of us isn’t delusional, it’s an accurate request that any flawed human might make of another comparably damaged example.
+
+We’ll start to find other people a lot less needy, that is, a lot less alarming when they need us, when we can accept with good grace that there is nothing unusually strange or abhorrent about someone deciding they like us.
+
+[![](https://img.youtube.com/vi/XVdVTQW-5KQ/0.jpg)](https://www.youtube.com/embed/XVdVTQW-5KQ '')

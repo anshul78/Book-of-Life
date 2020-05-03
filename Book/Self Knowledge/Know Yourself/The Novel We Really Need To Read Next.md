@@ -1,0 +1,27 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Know Yourself](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/know-yourself/): [08. The Novel We Really Need To Read Next](https://www.theschooloflife.com/thebookoflife/the-novel-we-really-need-to-read-next/)
+
+* * *
+
+# The Novel We Really Need To Read Next
+
+At any point in time, we’re continuously being encouraged to pick up some novel or other. Reviews, the recommendations of friends and the windows of bookstores edge us towards certain titles that, we’re promised, will definitively answer the deepest needs that we bring to literature.
+
+![](http://totallyhistory.com/wp-content/uploads/2013/01/Woman-Reading-by-Henri-Matisse.jpg)
+
+Imagine that we have picked up some such title. It’s late in the evening and we’re just starting out, our volume releasing the characteristic sweet smell of newly opened works. The author is going to great lengths to get us interested in the life of someone living in Edinburgh in the 1930s; it’s raining a lot and their car breaks down; they’ve got a friend in Budapest who is pregnant; there’s a robbery at a department store. There’s a reference to Dundas Street and we flick back thirty pages and realise that’s where the main character’s sister used to live. There’s a retired engineer with very bushy eyebrows who must be important in some way we don’t know yet.
+
+Immense effort and intelligence are being devoted to exploring the existence of a fictional individual. But at this point, an incidental yet rather major thought strikes us: no one, we realise, has ever looked at our life – our habits, our friends, our past, our dilemmas and problems – with such sustained curiosity or in such detail. In the novel on our lap, there seem to be plenty of pithy insights, clever summations, striking observations and astute analyses, but all for the sake of the workings of the mind of someone else, who’s not really very much like us.
+
+It’s a familiar situation we’ve been educated politely to take for granted. But now it hits us with particular force: we’re reading the wrong book. _What we should really be doing is reading a book about us_ – written with the same elegance and wisdom, but placing the raw material of _our_ life in a lucid order, selecting and joining up diverse events in our chaotic stream of consciousness and turning them into a coherent story. We’re politely interested in the stories of others, but the story we really need to hear about is our own.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/01/Fragonard_The_Reader-815x1024.jpg)
+
+What we really crave is for someone to make loving sense of _us._ We want them to write us, with all our complexity and obscurity, down in crisply phrased and clear sentences. Our reading of someone else’s novel is dutiful and well-educated no doubt, but it is as if we went to the doctor and they made a very accurate diagnosis of someone else’s earache, or if a financial advisor went to great lengths to present us with a solution to the money troubles of a stranger, from which we could at best extract the occasional fleeting hint of what might possibly be useful in our own case.
+
+In the 1690s, one of the greatest of French writers, François Fénelon, was appointed tutor to the young Duke of Burgundy. To assist with his education, Fénelon wrote a long and fascinating novel called _The Adventures of Telemachus_ in which the Duke, lightly disguised, was the central character. The problems the character in the novel faces were exactly the problems the Duke was actually facing; the strengths and weakness of the central character – carefully understood by the writer – were his. It sounded like the rarest and most cultivated luxury to have someone write a novel about you. But it is a treat we should all be granted – and perhaps secretly crave.
+
+We don’t need to give up our jobs and become writers – because this book of ourselves is one we’re writing already; we’re at work on it in the early hours, when we can’t sleep, when we daydream, make plans, go over the past – and give ourselves over to retelling, as best we can, what has really happened to us and what it all could mean. It’s simply a pity we don’t devote as much energy as we should to this emerging, critically important work.
+
+It is hugely noble that we spend so much time reading the novels of others. It is life-saving and properly generous to ourselves when we learn to order and make sense of the experiences of our own troubled days and nights. There is no risk in reading plenty of novels, but on a regular basis, we should carve the time to write and then read the nascent, unfolding novel of ourselves.
+
+[![](https://img.youtube.com/vi/nYiHToiki28/0.jpg)](https://www.youtube.com/embed/nYiHToiki28 '')

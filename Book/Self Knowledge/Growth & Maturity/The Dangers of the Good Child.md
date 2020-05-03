@@ -1,0 +1,37 @@
+[Chapter 8.Uncategorised](https://www.theschooloflife.com/thebookoflife/category/uncategorised/): [Growth & Maturity](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/growth-maturity/): [142. The Dangers of the Good Child](https://www.theschooloflife.com/thebookoflife/the-dangers-of-the-good-child/)
+
+* * *
+
+# The Dangers of the Good Child
+
+They do their homework on time; their writing is neat; they keep their bedroom tidy; they are often a little shy; they want to help their parents; they use their brakes when cycling down a hill.
+
+Because they don’t pose many immediate problems, we tend to assume all is well with good children. They aren’t the target for particular concern; that goes to the kids who are graffitiing the underpass. People imagine the good children are fine; because they do everything that’s expected of them.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/03/800px-Pierre-Auguste_Renoir_-_La_Promenade_-_Google_Art_Project.jpg)
+
+And that, of course, is precisely the problem. The secret sorrows – and future difficulties – of the good boy or girl begin with their inner need for excessive compliance. The good child isn’t good because by a quirk of nature they simply have no inclination to be anything else. They are good because they have no other option. Their goodness is a necessity rather than a choice. **&nbsp;**
+
+Many good children are good out of love of a depressed harassed parent who makes it clear they just couldn’t cope with any more complications or difficulties. Or maybe they are very good to soothe a violently angry parent who could become catastrophically frightening at any sign of less than perfect conduct. Or perhaps the parent was very busy and distracted; only by being very good could the child &nbsp;hope to gain a sliver of their interest.
+
+But this repression of more challenging emotions, though it produces short-term pleasant obedience, stores up a huge amount of difficulty in later life. Practiced educators and parents should spot signs of exaggerated politeness – and treat them as the danger they are.
+
+The good child becomes a keeper of too many secrets and an appalling communicator of unpopular but important things. They say lovely words, they are experts in satisfying the expectations of their audiences, but their real thoughts and feelings stay buried and then generate psychosomatic symptoms, twitches, sudden outbursts and sulphurous bitterness.
+
+**&nbsp;**
+
+![](http://fun-media.pl/ftp/photos/unit4/photos/4.10/5/he_is_a_good_student_he_will_study_at_university.jpg)
+
+The sickness of the good child is that they have no experience of other people being able to tolerate their badness. They have missed out a vital privilege accorded to the healthy child; that of being able to display envious, greedy, egomaniacal sides and yet be tolerated and loved nevertheless.
+
+The good person typically has particular problems around sex. As a child, they may have been praised for being pure and innocent. As they become an adult however, like all of us, they discover the ecstasies of sex, which can be beautifully perverse and excitingly disgusting. But this may be radically at odds with the picture of what they believe they are allowed to be like. They may in response disavow their desires, go cold and detached from their bodies – or perhaps give in to their longings only in a disproportionate way that is destructive to other bits of their lives and leaves them disgusted and frightened.
+
+At work, the good adult has problems too. As a child, they follow the rules; never make trouble and take care not to annoy anyone. But following the rules won’t get you very far in adult life. Almost everything that’s interesting, worth doing or important will meet with a degree of opposition. A brilliant idea will always disappoint certain people – and yet very much be worth holding on to. The good child is condemned to career mediocrity and sterile people-pleasing.
+
+![](http://www.themotherco.com/wp-content/uploads/2013/06/RudeKids_devil_900-580x384.jpg)
+
+Being properly mature involves a frank, unfrightened relationship with one’s own darkness, complexity and ambition. It involves accepting that not everything that makes us happy will please others or be honoured as especially ‘nice’ by society – but that it can be important to explore and hold on to it nevertheless.
+
+The desire to be good is one of the loveliest things in the world, but in order to have a genuinely good life, we may sometimes need to be (by the standards of the good child) fruitfully and bravely bad.
+
+[![](https://img.youtube.com/vi/5DTIzzf6ncg/0.jpg)](https://www.youtube.com/embed/5DTIzzf6ncg?ecver=2 '')
