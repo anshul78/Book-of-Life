@@ -1,0 +1,17 @@
+[Chapter 5.Calm](https://www.theschooloflife.com/thebookoflife/category/calm/): [Perspective](https://www.theschooloflife.com/thebookoflife/category/calm/perspective/): [50. On Flowers](https://www.theschooloflife.com/thebookoflife/on-flowers/)
+
+* * *
+
+# On Flowers
+
+It is extremely rare properly to delight in flowers when one is under twenty-two. There are so many larger, grander things to be concerned about than these small delicately-sculpted fragile and evanescent manifestations of nature, for example, romantic love, career fulfillment and political change.
+
+![](http://3.bp.blogspot.com/-mkAlwV0rfeQ/VYcYYvhJy_I/AAAAAAAACSY/fQGZ0dQPL-o/s1600/1.%2BVan%2BGogh_Irises_Van%2BGogh%2BMuseum_Amsterdam.jpg)
+
+However, it is rare to be left entirely indifferent by flowers after the age of fifty. By then, almost all one’s earlier, larger aspirations will have taken a hit, perhaps a very large hit. One will have encountered some of the intractable problems of intimate relationships. One will have suffered the gap between one’s professional hopes and the available realities. One will have had a chance to observe how slowly and fitfully the world ever alters in a positive direction. One will have been fully inducted to the extent of human wickedness and folly – and to one’s own eccentricity, selfishness and madness.
+
+![](https://uploads2.wikiart.org/images/vincent-van-gogh/flowering-garden-1888(1).jpg)
+
+And so, by then, flowers will have started to seem somewhat different; no longer a petty distraction from a mighty destiny, no longer an insult to ambition, but a genuine pleasure amidst a litany of troubles, an invitation to bracket anxieties and keep self-criticism at bay, a small resting place for hope in a sea of disappointment. A proper consolation – for which one is ready, a few weeks of the year, to be appropriately grateful.
+
+We learn to garden, and grow satisfied with our bounded lot, when we have learnt the perils of&nbsp;the wide pitiless fields.

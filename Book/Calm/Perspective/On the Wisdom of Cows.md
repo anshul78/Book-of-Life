@@ -1,0 +1,11 @@
+[Chapter 5.Calm](https://www.theschooloflife.com/thebookoflife/category/calm/): [Perspective](https://www.theschooloflife.com/thebookoflife/category/calm/perspective/): [61. On the Wisdom of Cows](https://www.theschooloflife.com/thebookoflife/on-the-wisdom-of-cows/)
+
+* * *
+
+# On the Wisdom of Cows
+
+[![2902422030_bb5321c452_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/12/2902422030_bb5321c452_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2014/12/2902422030_bb5321c452_z.jpg)
+
+Cows have an often neglected philosophical dimension, combining a natural stoicism with an understandable but always gentle scepticism towards humans (and their murderous ways).
+
+[![](https://img.youtube.com/vi/pGsE9pDSHGs/0.jpg)](//www.youtube.com/embed/pGsE9pDSHGs? '')
