@@ -1,0 +1,17 @@
+[Chapter 2.Work](https://www.theschooloflife.com/thebookoflife/category/work/): [Business Skills](https://www.theschooloflife.com/thebookoflife/category/work/business-skills/): [43. In Praise of Networking](https://www.theschooloflife.com/thebookoflife/in-praise-of-networking/)
+
+* * *
+
+# In Praise of Networking
+
+Networking has a bad name. It’s associated with self-enrichment, egoism and snobbery. But it is, in its essence, just a search for help. It springs from a fundamentally modest awareness of how fragile and limited each of us is, and therefore how much we stand in need of the support and strength of others.
+
+Networking is only ever as good or bad as the ends to which it is put. There are, in history, some very impressive versions of the activity. The ancient Greek story of the Argonauts tells how the heroic captain Jason travelled around the countryside networking, so as to assemble a band of associates to help him in his search for the legendary Golden Fleece. Jesus of Nazareth networked extensively in order to put together a team of disciples that could help him to spread a message about love, redemption and sacrifice.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/07/the-miraculous-draught-of-fishes-konrad-witz.jpg)
+
+To network means to filter intelligently, to recognise that one cannot – and indeed should not – try to get to know everyone. It involves aligning one’s path through the world with a mission. It implies a wise acknowledgement that we do not have unlimited time.
+
+**Ideally, our networks should be wide, diverse and utterly without snobbery – because we can see that useful information, valuable skills, perspectives, opportunities and guidance can be located in a host of very unexpected places. In espionage, this key point has been deeply understood: it might be as productive to make contact with the embassy cleaning staff as with the economic attache; the bartender could be as rich a source of information as the general. We can take this refreshingly open-minded attitude into the world at large. We may learn as much about business from a bankrupt as from a successful CEO; the taxi driver may – amidst the chatter – have one or two key things to teach us; the person with the woolly hat standing by the bus-stop may provide the starting point for a new entrepreneurial idea. With an elevated conscious mission in mind, networking ceases to be a brutal, discriminatory activity. It’s just a way of making sure we are never far from harvesting insights and assistance.**
+
+![brera madonna detail](https://beckchris.files.wordpress.com/2013/06/brera-madonna-detail.jpg?w=300&h=450)

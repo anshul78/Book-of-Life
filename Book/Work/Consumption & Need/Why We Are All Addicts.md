@@ -1,0 +1,43 @@
+[Chapter 2.Work](https://www.theschooloflife.com/thebookoflife/category/work/): [Consumption & Need](https://www.theschooloflife.com/thebookoflife/category/work/consumption-and-need/): [98. Why We Are All Addicts](https://www.theschooloflife.com/thebookoflife/why-we-are-all-addicts/)
+
+* * *
+
+# Why We Are All Addicts
+
+We operate with some stock images of the addict: a person with a heroin needle in a park, or who nurses a bottle of gin in a paper bag at nine in the morning or who sneaks off at every opportunity to light up another cylinder of marijuana.
+
+**![](https://s-media-cache-ak0.pinimg.com/originals/2f/f6/fd/2ff6fd2f11cfaad74678bd3429d71c49.jpg)**
+
+However dramatic and tragic such cases of addiction might be, they are simultaneously hugely reassuring to most of us – because they locate the addict far from ordinary experience, somewhere off-stage, in the land of semi-criminality and outright breakdown.
+
+**&nbsp;**
+
+Such examples are dangerously flattering, categorising addiction in a sentimental way that lets most of us off the hook – and at the same time, cuts us off from identification with, and therefore sympathy for, the most wretched victims of addiction.
+
+**&nbsp;**
+
+There are, in truth, far more addicts than we think. Indeed, if we look at the matter squarely: **_we are pretty much all addicts._** The official statistics on the consumption of hard drugs or alcohol don’t begin to give a fair representation of the issue.
+
+**&nbsp;**
+
+We need to define addiction in a new way: _addiction is the manic reliance on something, anything, in order to keep our dark or unsettling thoughts at bay._ What properly indicates addiction is not _what_ someone is addicted to, for we can get addicted to pretty much anything. It is the _motives_ behind their reliance on it – and, in particular, their desire to avoid encountering the contents of their own mind.
+
+Being inside our own minds is, for most of us, and very understandably, a deeply anxiety-inducing prospect. We are filled with thoughts we don’t want properly to entertain and feelings we are desperate not to feel. There is an infinite amount we are angry and sad about that it would take an uncommon degree of courage to face. We experience a host of fantasies and desires that we have a huge incentive to disavow, because of the extent to which they violate our self-image and our more normative commitments.
+
+We shouldn’t pride ourselves because we aren’t injecting something into our veins. Almost certainly, we are doing something with equal commitment. We are checking the news at four minute intervals, to keep the news from ourselves at bay. We’re doing sport, exhausting our bodies in the hope of not having to hear from our minds. We’re using work to get away from the true internal work we’re shirking. The most compelling addictions sound very righteous to the world.
+
+**&nbsp;**
+
+![](http://s3.amazonaws.com/cme_public_images/www_livestrong_com/photos.demandstudios.com/getty/article/64/75/475633667_XS.jpg)
+
+To get a measure of our levels of addiction, we need only consider when the last time might have been that we were able to sit alone in a room with our own thoughts, without distraction, free associating, daring to wander into the past and the future, allowing ourselves to feel pain, desire, regret and excitement.
+
+We may start to see how much we have in common with the traditional addict. When we come face to face with them, we’re not meeting anything especially foreign, just a part of ourselves in a less respectable form – opening up new opportunities for kindness, towards them, and us.
+
+We could start to think, too, of how we might wean ourselves off our chosen addictive pursuit. We need to lose our fear of our minds. We need a collective sense of safety around confronting loss, humiliation, sexual desire and sadness – knowing that we will have to keep running so long as we do not rehabilitate our feelings.
+
+**On the other side of addiction is, in a sense, philosophy – understood as the patient, unfrightened, compassionate examination of the contents of our own minds.**
+
+But perhaps the real, and most realistic goal, is not to expect that we can ever overcome all addiction forever: it’s simply to find our way to the least harmful and most beneficial kinds of addiction.
+
+[![](https://img.youtube.com/vi/f55QO2isoKM/0.jpg)](https://www.youtube.com/embed/f55QO2isoKM?ecver=2 '')

@@ -1,0 +1,19 @@
+[Chapter 2.Work](https://www.theschooloflife.com/thebookoflife/category/work/): [Business Skills](https://www.theschooloflife.com/thebookoflife/category/work/business-skills/): [38. How Are You Difficult to Work With? Questionnaire](https://www.theschooloflife.com/thebookoflife/how-are-you-difficult-to-work-with-questionnaire/)
+
+* * *
+
+# How Are You Difficult to Work With? Questionnaire
+
+ 
+# 
+
+* * *
+
+# How to Get On With Your Colleagues: New Book Out Now
+<figure class="wp-block-image"><a href="https://www.theschooloflife.com/shop/how-to-get-on-with-your-colleagues/" target="_blank" rel="noreferrer noopener"><img src="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/02/HtGOWYC_H1_1-1024x491.jpg" alt="" class="wp-image-24094" srcset="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/02/HtGOWYC_H1_1-1024x491.jpg 1024w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/02/HtGOWYC_H1_1-300x144.jpg 300w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/02/HtGOWYC_H1_1-768x368.jpg 768w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/02/HtGOWYC_H1_1.jpg 1586w" sizes="(max-width: 1024px) 100vw, 1024px"></a></figure>
+
+Our new book _How to Get On With Your Colleagues: A Guide to Better Collaboration_ is available now. Click the link below to visit our shop.
+
+#### [Find Out More](https://www.theschooloflife.com/shop/how-to-get-on-with-your-colleagues/)
+
+<figure class="wp-block-image"><a href="https://www.theschooloflife.com/shop/how-to-get-on-with-your-colleagues/"><img src="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/02/HtGOWYC_H1_3-1024x491.jpg" alt="" class="wp-image-24095" srcset="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/02/HtGOWYC_H1_3-1024x491.jpg 1024w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/02/HtGOWYC_H1_3-300x144.jpg 300w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/02/HtGOWYC_H1_3-768x368.jpg 768w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/02/HtGOWYC_H1_3.jpg 1586w" sizes="(max-width: 1024px) 100vw, 1024px"></a></figure>

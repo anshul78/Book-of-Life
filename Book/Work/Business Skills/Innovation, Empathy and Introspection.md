@@ -1,0 +1,205 @@
+[Chapter 2.Work](https://www.theschooloflife.com/thebookoflife/category/work/): [Business Skills](https://www.theschooloflife.com/thebookoflife/category/work/business-skills/): [51. Innovation, Empathy and Introspection](https://www.theschooloflife.com/thebookoflife/innovation-empathy-and-introspection/)
+
+* * *
+
+# Innovation, Empathy and Introspection
+
+When companies think about innovating new products and services (or just testing their existing ones), they know that the task before them is to find out what their customers are really looking for.
+
+How do you discover this?&nbsp;Generally, companies do one very plausible, but in fact very problematic thing. They go and ask the customer. However, strangely, if you really want to know what your customer wants, the last thing you should do is to go out and ask them. And for a simple reason: they won’t know.
+
+[![4071171742_e69ed989ae_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/4071171742_e69ed989ae_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/4071171742_e69ed989ae_z.jpg)
+
+Companies have traditionally followed the methods of the social sciences and&nbsp;gone in for&nbsp;large data samples and in-depth interviews. The questionnaire on the one hand and the focus group on the other have been mainstays of company research programmes for many decades. But these approaches have a crucial limitation built into them. They assume that other people already know pretty well what it is they are looking for – and the only thing one needs to do is ask them, collect the data, and move forward. However, the big and rather strange truth is that your customers don’t really know what they want. They can’t give you – ready made – the answers you seek.
+
+The phenomenon becomes more obvious when you consider the case of art. It would be very odd indeed if an artist were to use a focus group to arrive at an answer to the question of what to paint or write next. We sense that this would be asking too much of the audience. How could they know that what they really wanted was _In Search of Lost Time_ or a tender romantic comedy about two people meeting on an Austrian train (_Before Sunset_)? We wouldn’t have been able to say what the gap in our lives was until a given artist filled it in. Hence the apparent ‘creative’ magic of the artist: they know us, but better than we know ourselves.
+
+Or, to return to business, no one could have invented the Post-it note simply on the basis of a survey of what most customers walking into stationery shops were after. It’s only once we see certain&nbsp;products that we realise that, in fact, in a vague inarticulate way, we wanted them all along. We have the needs, but we can’t pin them down. A central task of creative thinking is therefore to be the detector and interpreter of the unspoken and – up to that point – hidden needs of mankind. Surveys – for all their other merits – can never do this, for the big reason that we just don’t know our needs well enough.&nbsp;
+
+So the real secret to understanding customer-needs lies elsewhere; in using the tools of&nbsp;_Introspection_ and _Empathy_.
+
+**a) Introspection**
+
+Introspection means using oneself as the central instrument of detection, focused on one’s sources of private joy and unhappiness.
+
+We need some very fine-grained data that hasn’t made it into public language, and therefore won’t be picked up by surveys; data that has the quality of artistic insights, though it won’t be used for art. Businesses of the future are built up on tremors of inner thrill and distress – tremors that haven’t made it into language, that aren’t in circulation, but that if one attends to them, can lead to amazingly true and lucrative things.
+
+This is how the in-car cup holder was – at last – invented.
+
+![](http://i.telegraph.co.uk/multimedia/archive/01922/Cup-holder_1922913c.jpg)
+
+One of the key things you need to do in a car is to have a place to put a drink. But for most of the history of car production, a&nbsp;drink for the driver was a hard thought for a car company to have or for customers to express, though, of course, people were always balancing drinks on their knees or wedging styrofoam cups into little clefts between bags (and praying they wouldn’t have to do an emergency stop). But the productive idea that there could just be a little thing connected to the dashboard that would solve this problem didn’t emerge until 1983, with the launch of the Dodge Caravan. Recognition of the need for a cup holder was inhibited. There was huge emphasis on the _driving_ experience – that is on all the things _essential_ to driving: the angle of the seat, feel of the grip of the steering wheel, the ease with which one could view the speedometer while turning a corner… all these received minute, careful attention. But the incidental concern (from the point of view of actually driving, that is) of taking a sip of orange juice at the traffic lights languished until 1983.
+
+The American writer Emerson once wrote: ‘In the minds of geniuses we find, once more, our own neglected thoughts.’ Likewise, in the minds of car-design geniuses, &nbsp;our own neglected thoughts and needs are identified – and acted upon. And hundreds of millions of journeys are&nbsp;made a little bit nicer.
+
+[![Ralph_Waldo_Emerson_ca1857_retouched](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/Ralph_Waldo_Emerson_ca1857_retouched.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/Ralph_Waldo_Emerson_ca1857_retouched.jpg)
+
+##### Ralph Waldo Emerson in 1857
+
+Now that the cereal bar exists, we can see that it fits in with many needs: it’s quite healthy, it’s convenient, it’s tasty and it’s inexpensive to produce. But, though it now seems an obvious kind of product, the cereal bar was very slow to arrive on the market. There had been many kinds of sweet bars and many kinds of cereal for a long time.
+
+![5574813879_98f3741212_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/5574813879_98f3741212_z.jpg)
+
+The root of the problem is that the cereal bar is essentially just a few bits of dry cereal. And originally cereal wasn’t intended to be eaten dry. But the fact is, eating dry cereal is rather nice. Many many people must have had this experience, without taking it seriously. They’d scoop a handful of cornflakes while someone else was pouring the milk and munch away happily. They didn’t realise that they were having an experience which – if commercialised – could found a large industry and send lorries around the country delivering repacked dry cereal to tens of thousands of retail outlets. Great ideas don’t always feel like brilliant insights. They (unfortunately) can easily feel like completely humdrum, low-status, trivial thoughts. The fear of being boring or weird continues to quash an enormous number of good ideas.&nbsp;
+
+This only changed in 1975, when an inventor called Stanley Mason (also responsible for the squeezable ketchup bottle and for the dental floss dispenser) came up with the idea of granola bar. In 2015, in the US alone, the cereal bar market was worth $5 billion.
+
+![](http://media2.onsugar.com/files/2013/04/16/1/192/1922195/9933e12f6488395a_Crunchy-Granola-Bars.jpg)
+
+##### In the minds of geniuses, we rediscover our own neglected thoughts (Emerson)
+
+The difference between the creative and the uncreative mind – Emerson was saying – isn’t that the creative person has _different_ thoughts. Both have roughly the same ones. It’s just that the creative mind takes them seriously, while the uncreative one discards them. What enables them to do this is a quality very dear to Emerson, independence, a freedom from group thinking: a capacity to be thought odd by many for a time in order to hold onto one’s own desires.
+
+Edward Hopper certainly wasn’t the first person to feel the lonely charm of the railway station or the strangely comforting anonymity of the late-night diner or the eeriness of Sunday in the suburbs. People had been primed to dislike or ignore these situations, so they didn’t give weight to such low-status moments. But Hopper became a great artist by being acutely loyal to a family of strangely important experiences that many people had, but had hitherto ignored.
+
+[![pennsylvania-coal-town.jpg!Large](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/pennsylvania-coal-town.jpgLarge.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/pennsylvania-coal-town.jpgLarge.jpg)
+
+##### Edward Hopper, _Pennsylvania Coal Town_ (1947)
+
+Picasso described a similar move to a photographer, George Brassaï, who was visiting his studio in 1943. They were looking at his Bull Head, made the year before.
+
+[![image04](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/image04.png)](http://www.thebookoflife.org/wp-content/uploads/2015/05/image04.png)
+
+##### Picasso, _Bull’s Head_&nbsp;(1942)
+
+‘Guess how I made the bull’s head?’ Picasso asked. ‘One day, in a pile of objects all jumbled up together, I found an old bicycle seat right next to a rusty set of handlebars. In a flash, they joined together in my head. The idea of the _Bull’s Head_ came to me before I had a chance to think. All I did was weld them together…&nbsp; If you were only to see the bull’s head and not the bicycle seat and handlebars that form it, the sculpture would lose some of its impact.’
+
+In bicycle repair shops, scrap-heaps and people backyards, there could have been many occasions when people playfully thought that handle-bars are a bit like horns or that a seat sort of looks like an animal’s head. But no one thought to take this seriously and make the best possible version of it – until Picasso came along and did so.
+
+Today we might typically see the artist as someone who is at odds with Capitalism, who breaks rules, who goes to wild parties and who relishes unsettling experiences.
+
+[![Emin-My-Bed](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/Emin-My-Bed.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/Emin-My-Bed.jpg)
+
+##### Tracey Emin, _My Bed_ (1998)
+
+But really, the underlying ambition of the artist is not at all like this. The mission of the true artist is to identify, and commodify, precious experiences. The process of looking carefully at what has been overlooked is common ground for good art and good business; the good business thinker is in effect an artist – and the good artist is a fledgling entrepreneur.
+
+[![image36](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/image36.png)](http://www.thebookoflife.org/wp-content/uploads/2015/05/image36.png)
+
+##### The inventor of the Post-it Note: Arthur Fry, 1980. No less a work of innovation than Picasso’s bull head.&nbsp; **At first, it must have seemed a strange whim to put adhesive only on one edge.**
+
+**b) Empathy**
+
+**What is empathy?** Normally we use _sympathy_ and _empathy_ rather interchangeably but they can be used to mark out an important difference.
+
+**Sympathy:** &nbsp;This is when you feel close to someone on the basis of a shared experience. Even if you’re not having that experience right now, you clearly remember having it and can tap into that memory to grasp what’s going on for the other person. If you really struggled with maths homework and now your child does, you sympathise with their difficulties.
+
+[![3199575758_65e1a605f5_b](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/3199575758_65e1a605f5_b.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/3199575758_65e1a605f5_b.jpg)
+
+###### © Flickr/sharyn morrow
+
+**Empathy:** &nbsp;This is a trickier phenomenon. It happens when you haven’t had a certain kind&nbsp;of experience, but you can combine bits of your&nbsp;imaginative memory to explore what it would be like. If you found maths easy and always dashed off your homework with zero fuss, but your child frets, gets stuck at every point, resists and weeps, you can’t use _sympathy_&nbsp;to get inside their experience. If they say ‘you don’t know what it’s like’, they’re actually right in this case: you don’t. But that’s not the end of the story. Because we can use our imagination to build bridges from things we do know about from the inside to this new territory. You know what it’s like to be frustrated. You understand the fear of humiliation. You know what it’s like to feel that something is maddeningly incomprehensible – last week you tried to reset the timer on the new oven. From these relevant fragments you can imaginatively piece together a feel for something you’ve never directly experienced yourself: bewildered rage directed at the apex of an isosceles triangle.
+
+So&nbsp;empathy gives a confident woman the possibility of grasping what it might be like to be a shy man in a sports club changing room or enables the CFO of a major company to feel tenderness for the concerns of an under-appreciated poet. (In practice, though, we only occasionally get round to undertaking the required empathetic&nbsp;exercises.)
+
+Empathy is the capacity to enter into the hidden desires and unspoken needs&nbsp;and pains&nbsp;of people who are not from your tribe. It allows us to take seriously what might it be like to be someone else. Empathy is also a crucial factor in the growth of many enterprises – and the lack of it is a huge (though easily ignored) obstacle to success.
+
+**So how can we get into the minds of other people?** The Chinese philosopher&nbsp;Lao Tzu says that, when we meditate, the ego can be overcome and we should be able to inhabit anything via the imagination. We can, for a time, cease to be ourselves and feel our way into being anything on the planet: wind, trees, rocks, rivers, a lonely child, a powerful king. The mind can be everywhere. Lao Tzu even puts forward a weird but fruitfully poetic idea that the whole world is really one mind, one thing, and that only fear separates us and makes us individuated. It’s a fanciful idea, and not literally true, but it’s getting at something important. It’s an emphatic assertion of a crucial&nbsp;insight&nbsp;that can be restated in simpler terms: we can use our imagination to identify with things we’re not.
+
+[![7433953100_814581e2dc_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/7433953100_814581e2dc_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/7433953100_814581e2dc_z.jpg)
+
+##### Lao Tzu: an invitation to be, for a time, the rocks, the sea, the clouds.
+
+**We need to get used to flexing our empathetic muscles.&nbsp;** The easiest way to do this is to imagine what it might be like to be a man or a woman, whichever of the two we are not. It means wondering what would it be like to wear tights, or to have an erection or to have breasts.
+
+![](http://img.thesun.co.uk/aidemitlum/archive/01566/Sean_Bean__1566553a.jpg)
+
+The fact that we don’t readily explore these possibilities alerts us to something key. Fear holds us back.&nbsp;We’re very wedded to maintaining the point of view we’ve already formed. We’ve made a host of choices about the kind of person we are, and we’re inclined to defend them. The imaginative exercise at the heart of empathy – imagining yourself as other than you are – gives rise to a range of anxieties.
+
+– We might discover that some of our choices are actually not very good or compelling; that we were wrong in thinking we had to live the way we do. But we’re already deeply invested in our life and it’s terrifying to think of unwinding those commitments. What if it would have &nbsp;been better, after all, to live as a woman or a man?
+
+– We might discover we are gayer than we think, which could be very threatening if we’ve lived in an environment that makes a big issue of this.
+
+– We might be so scared of poverty or age that we’re deeply uncomfortable with really letting our minds settle into the thought experiment of supposing we were chronically short of money or that we were already nearing the end of our lives.
+
+Our anxieties inhibit our capacity for empathy. We need help.
+
+**Novelists are the world’s masters at empathy. We can learn a lot about empathy by looking at their work.**
+
+[![image09](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/image09.png)](http://www.thebookoflife.org/wp-content/uploads/2015/05/image09.png)
+
+##### Trying out what it might be like to be a Roman Emperor
+
+In a long novel, published in 1951, entitled _Memoirs of Hadrian,_&nbsp;the French writer Marguerite Yourcenar set herself a huge task around empathy. She wanted to write not simply about the Roman emperor Hadrian, she wanted to write from his point of view. And to do that she’d have to enter imaginatively into what it was like to be him. She was a woman, living in a small flat in New York, used to taking taxis and boiling the kettle, whose direct experience of power might have been limited to hiring someone to repaint the bedroom. Hadrian was master of the known world.&nbsp;
+
+She did lots of research. She found out about Roman history, she read up on their religious assumptions, the background horizon and politics, the structure of family life, what they had for dinner, how the postal-system operated and how many slaves an emperor might have. But she wasn’t only trying to find out about Hadrian’s world. She was asking a more radical and creative question: what would it be like actually to be him?
+
+[![Bust_of_Hadrian_in_the_Musei_Capitolini_MC817](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/Bust_of_Hadrian_in_the_Musei_Capitolini_MC817.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/Bust_of_Hadrian_in_the_Musei_Capitolini_MC817.jpg)
+
+##### Marble bust of Hadrian
+
+What do you need to consider to ‘be’ in the shoes of someone else? How to overcome all the assumptions about existence that are (to you) normally ‘invisible’ – the deep unspoken picture of normality we carry around with us all the time? It’s so familiar, we tend not even to notice it’s there. But it&nbsp;simply doesn’t apply to the lives of many other people.&nbsp;
+
+So in order to get herself into Hadrian’s toga, Yourcenar posed a series of questions to herself. To find out what it would be like to be someone else she asked:
+
+– what’s my body like?
+
+– how much money do I have?
+
+– what am I scared of?
+
+– what’s my life expectancy?
+
+– how do I feel about death?
+
+– how will I be judged a success or a failure? What’s expected of me?
+
+– what turns me on?
+
+– what makes me angry?
+
+– if I wake at 3am, what thoughts run through my head?
+
+– how do i feel about my own appearance?
+
+– what do I want?
+
+– how does time look to me?
+
+To expand our capacity for customer empathy,&nbsp;&nbsp;like a novelist, we need to take ourselves imaginatively into the bodies, fears, hopes, frustrations and loves of another person. But the goal isn’t to write a novel, it’s to generate&nbsp;more effective products and services.
+
+**EXAMPLES**
+
+**1. THE INCUBATOR**
+
+In Nepal – as in other parts of the developing world – there is a high rate of infant mortality. Babies die from&nbsp;conditions that in other countries would be non-fatal because the baby could be cared for in an incubator.
+
+In 2008, a team from Stanford University set out to address the problem and increase the number of incubators available. At first, one might think this was primarily a matter of how to finance the supply of additional incubators.
+
+But a more empathic approach revealed that the problem had other – very different – dimensions. Most of the children who needed such care won’t, in fact, be in hospital. And there won’t be access to electricity. The staff using them won’t have elaborate training. To be effective, it was necessary to design a new kind of incubator that would be easily transportable, wouldn’t require power, would be simple to operate, clean and easy to maintain and not too costly.
+
+[![image33](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/image33.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/image33.jpg)
+
+###### © Embrace
+
+The team created a product which doesn’t look at all like a modern high-tech incubator. It’s a sort of bag, rather than a kind of ultra-sophisticated box.&nbsp;But it does many of the same things well. And its cost was utterly transformed from about $20,000 to around $25 per unit. The problem was solved not by a new scientific discovery (all the relevant science was already in circulation) but by a wonderful exercise of empathy.
+
+**2. THE SHORTCUT**
+
+Many small areas of urban greenery – which have been carefully provided with bitumen paths – are crisscrossed by worn-down trails over the grass where people have taken shortcuts.
+
+[![7094286453_af092c55e9_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/7094286453_af092c55e9_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/7094286453_af092c55e9_z.jpg)
+
+###### © Flickr/Alan Stanton
+
+The shortcut is a small – but revealing – instance of a practical failure of empathy. The landscape architects who plotted the official paths didn’t sufficiently think themselves into the lives of other people. The designers may themselves not mind taking a slightly longer route round the edge of a grassy area. Their professional enthusiasm leads them instinctively to avoid damaging the grass. But most people don’t feel that way at all. They aren’t thinking of the delicate new shoots, they’re just in a hurry to get wherever they’re going. If the planning process had included a dedicated session on empathy they’d have re-routed the path – or added a new one – to follow the course that, to most people, makes most sense.
+
+**3. HOTEL NOISE**
+
+You’re in a hotel room on a warm night. It’s a&nbsp;relief that the room has air conditioning and when you arrived a helpful porter explained how you set it to the ideal temperature. But in the quiet of the night you realise there’s a problem. The cooling system makes an uncomfortably loud clicking noise. You try to ignore it. It seems to get louder. You reconcile yourself as best you can to a miserable night and make a vow never to return to this place.&nbsp;
+
+The management of the hotel have failed in empathy. In this case they had an unusually concrete opportunity to put themselves in the shoes of others. Before installing this air conditioning system, some very senior person should have undertaken the empathic experiment of passing a night in its company. (In the process they might also have discovered that it takes several bewildering minutes to master the lighting switches and the the cord of the hairdryer is inconveniently short.)
+
+They didn’t build enough empathy into their decisons, so they didn’t test the experience&nbsp; of the guest strongly enough. And now their repeat business is suffering.
+
+**4. ‘SQUISHY GRIP’ ORAL B**
+
+You’d think that the handle of a kid’s toothbrush should be thinner than one designed for adults. Obviously, children’s hands are smaller, so you reduce the proportions. And that’s how it was from the first children’s brushes until very recently.
+
+[![oralB_gripper_hero_626px](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/oralB_gripper_hero_626px.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/oralB_gripper_hero_626px.jpg)
+
+But all along, the industry hadn’t paid attention to something: children typically hold the brush a different way. They make a fist, rather than mainly use their fingers (which is how adults tend to do it). For the whole-hand technique, it’s actually better to have a fatter, softer handle. By looking carefully at what children actually did with toothbrushes, Oral-B came up with the ‘squishy grip’, a big fat squashy handle. It makes it easier for children to control and so they can give their teeth a better clean.&nbsp;
+
+It took a long time to get a better understanding of children’s needs around toothbrushes for a basic reason: the people who design oral-hygiene implements aren’t themselves children. There’s a gap between the typical experiences of the creator and the unexpressed needs of the customer. It wouldn’t help for the people designing the brushes to think more and more carefully about their own needs in this area. They had to shift the basis of their thinking and start imagining what it would be like to be _unlike_ them.
+
+They were starting to explore a key resource of business creativity: empathy.

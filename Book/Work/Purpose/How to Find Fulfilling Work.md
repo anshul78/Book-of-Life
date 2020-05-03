@@ -1,0 +1,11 @@
+[Chapter 2.Work](https://www.theschooloflife.com/thebookoflife/category/work/): [Purpose](https://www.theschooloflife.com/thebookoflife/category/work/purpose/): [20. How to Find Fulfilling Work](https://www.theschooloflife.com/thebookoflife/how-to-find-fulfilling-work/)
+
+* * *
+
+# How to Find Fulfilling Work
+
+[![15343177517_48fdaf795f_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/01/15343177517_48fdaf795f_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/01/15343177517_48fdaf795f_z.jpg)
+
+The idea that work might be fulfilling rather than just painfully necessary is a strikingly recent invention. Nowadays, in the prosperous world, we don’t only expect to obtain money through labour, we also, to a greater or lesser extent, expect to find meaning and satisfaction. It’s a big ask and explains why so many of us have career crises.
+
+[![](https://img.youtube.com/vi/veriqDHLXsw/0.jpg)](//www.youtube.com/embed/veriqDHLXsw '')

@@ -1,0 +1,25 @@
+[Chapter 2.Work](https://www.theschooloflife.com/thebookoflife/category/work/): [Status & Success](https://www.theschooloflife.com/thebookoflife/category/work/status-and-success/): [128. On Doing Better Than Our Parents](https://www.theschooloflife.com/thebookoflife/on-doing-better-than-our-parents/)
+
+* * *
+
+# On Doing Better Than Our Parents
+
+One of the most important – but necessarily rather secret – indicators that we are on the right track with our work is a sense that we are doing better than our parents. Far from this suggesting meanness or cruelty on our part, it can be a legitimate sign that we have alighted on an occupation that feels meaningful and invigorating for us.
+
+But we need to focus on what ‘doing better’ really means. Traditionally, the term has been interpreted financially. A generation is understood to be doing better than the last when it can live in bigger houses and afford fancier holidays.
+
+[![4603696544_b5d7825c4e_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/4603696544_b5d7825c4e_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/4603696544_b5d7825c4e_z.jpg)
+
+Yet there is a more interesting and more subtle way of interpreting the notion of ‘doing better.’ The term can also be applied to situations where we are able to correct some of the psychological compromises, blind spots or excesses of our parents through our work. There will most likely always be something missing from the life experience of those who brought us up. Perhaps dad wasn’t having enough fun. Perhaps he was scarred by financial instability when he was little and that’s why he judged work primarily in terms of security. Perhaps mother was a bit frantic in her search for adventure – in reaction to her own excessively stultifying upbringing. She loved artists who hadn’t quite made it yet and radical film-makers who never would. She was brilliant at mimicking her conventional brother, who was the butt of a lot of family jokes.
+
+A career choice is at some level often semiconsciously guided by a desire to heal aspects of our parents’ psyches. One might be trying to demonstrate, for instance, that it is possible to care about stability _and_ have a personally meaningful career, or that one can be a person with a soul _and_ also be interested in worldly success. One may want to show that one can manage to do well in finance and at the same time be close to one’s children. Or thoughtful and interested in science. We are vitally spurred on by attempts to go beyond certain of the limitations of our progenitors.
+
+[![5341862425_ef456db2d4_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/5341862425_ef456db2d4_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/5341862425_ef456db2d4_z.jpg)
+
+Our eventual career choice can be seen as an attempt to compensate for some of the drawbacks and confusions of our parent’s lives – without breaking faith with everything that was important to them. We can be driven by a trans-generational project of healing and correction. We tend to like to think that we can work out everything in the span of our own lives. But it may really take the combined experience of two or three generations to piece together a wise and effective (and satisfying) attitude to work. No doubt some of what we haven’t achieved will be left to our own children to take up.
+
+[![3459362492_7f4b120793_o](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/3459362492_7f4b120793_o.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/3459362492_7f4b120793_o.jpg)
+
+A revealing question to ask is therefore: how might we want to exceed our parents psychologically – at the level of maturity and happiness – through our work? What would it mean to put right the errors of thinking and feeling of the previous generation? How could we help our parents (even if they are dead or not especially interested in our assistance; the unconscious doesn’t tend to factor in such details)? These questions can us help to focus on our own developmental needs. &nbsp;
+
+It is useful and instructive to want to exceed our parents – not to humiliate them but to correct certain flawed attitudes from which they have suffered. Perhaps our parents were (through no particular fault of their own) unstrategic or too provincial, naive or excessively cynical. They have lived out their particular problems, and so we don’t – hopefully – necessarily have to. We can digest their setbacks and be educated by them. In choosing a career, we should take time to ask ourselves at the outset what really it would mean for us to do ‘better’ – in the deep sense – than our parents.

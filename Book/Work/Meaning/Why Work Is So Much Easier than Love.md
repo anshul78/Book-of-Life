@@ -1,0 +1,61 @@
+[Chapter 2.Work](https://www.theschooloflife.com/thebookoflife/category/work/): [Meaning](https://www.theschooloflife.com/thebookoflife/category/work/meaning/): [06. Why Work Is So Much Easier than Love](https://www.theschooloflife.com/thebookoflife/why-work-is-so-much-easier-than-love/)
+
+* * *
+
+# Why Work Is So Much Easier than Love
+
+We’re a culture that’s highly attuned to what’s beautiful and moving about love; we know its high points and celebrate its ecstasies in films and songs. By comparison, work is the dull, tedious bit – the thing we have to do to pay the bills.
+
+And yet what’s striking is how often work, despite its lack of glamour, in fact turns out to be the easier, more enjoyable and ultimately more humane part of life.
+
+[![6629636333_e2973e7a16_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/11/6629636333_e2973e7a16_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/11/6629636333_e2973e7a16_z.jpg)
+
+There are a number of reasons:
+
+**Firstly: You have to be professional**
+
+Work demands that all who walk through the office door must behave ‘professionally’. And what behaving professionally essentially means is that situations&nbsp;where you’re deep inside tempted to explode, insult, curse and weep require you to handle yourself with Stoic calm and reserve.
+
+At work, you can’t really ‘be yourself’ and nor can others around you – which could sound a little fake and therefore inauthentic and plastic, but this lack of honesty may in fact be an extremely welcome development after we have spent a little too long in an atmosphere where everyone feels it their duty to be an utterly frank, uncensored correspondent of their every inner mood and qualm.
+
+**Secondly: You get trained**
+
+[![20678368622_f498a7972f_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/11/20678368622_f498a7972f_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/11/20678368622_f498a7972f_z.jpg)
+
+The assumption of most jobs is that people who begin them don’t have the first clue about what’s going on. You’re not expected to know the machinery or the protocols by intuition alone – therefore you’re sent on training programmes and given extensive manuals to read. It might&nbsp;be&nbsp;two years before you’re supposed to understand very much at all.
+
+There is no such luxury for lovers, who are meant to ‘get’ one another by immediate instinct and take this speedy comprehension to be a proof of the sincerity of their love. Sometimes lovers will even say they just knew they were meant to be together because they could communicate ‘without needing to speak.’ But outside of the initial weeks of love, such Romantic aspirations are a pure catastrophe, which lead lovers to a bias against ever explaining themselves and their desires with appropriate patience and thoroughness.
+
+[![17990400144_ca1f0dcf61_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/11/17990400144_ca1f0dcf61_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/11/17990400144_ca1f0dcf61_z.jpg)
+
+Fatefully for our chances of happiness, in the Romantic ideology, love is understood to be an enthusiasm, rather than what it really is: a skill that needs to be learnt.
+
+**Thirdly: Feedback is more sensitive**
+
+Everyone hates reviews at work, but what deeply kind phenomena they actually are compared with what goes on at home. Reviews are steeped in a culture of tact. One rather tough remark has to be wrapped in at least seven compliments. Work culture knows that people don’t improve and can’t take new ideas on board if they are feeling threatened and humiliated.
+
+Home life finds us able to be far less competent teachers. We’re so panicked and frightened by the thought that the other person can’t do what we want them to (even if we haven’t actually ever explained it), we take to trying to teach them by slamming doors and calling them idiots or worse. Sadly, no one has ever learnt very much under conditions of hysteria.
+
+[![2235972573_d556b591e3_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/11/2235972573_d556b591e3_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/11/2235972573_d556b591e3_z.jpg)
+
+Furthermore, we’re likely to feel that being taught anything by a lover contravenes the rules of love: we think we need to be loved just for being who we are. Though we are all of course very flawed, we imagine that love has nothing to do with education, and that the lover who tries to point something out to us is therefore always just being nasty – rather than doing what all lovers should actually do, which is try their utmost to improve those they care for through lovingly-delivered lessons.
+
+**Fourthly: You depend on a job less**
+
+We rely on work of course, but we’d survive if it came to an end. That’s not the feeling we often get around love, especially when there are a couple of kids and a mortgage in common.
+
+[![116785246_ba370d0a1d_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/11/116785246_ba370d0a1d_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/11/116785246_ba370d0a1d_z.jpg)
+
+And the more we depend on someone, the more alarmed we get by any disappointment at their hands. We aren’t nastier around love per se; we’re just a whole lot more dependent – which can end up looking like the same thing.
+
+**Fifthly: Work is just easier**
+
+Running a nuclear power station or landing large jets is hardly simple but – &nbsp;one should insist – still very much easier than trying to be happy around another human being in a sexual relationship over many decades.
+
+There is simply nothing harder in this world, so complicated are we, so high are our expectations and so very poor is our Romantic culture at helping us to raise the quality of our levels of patience, our insights, our feedback sessions and our training manuals.
+
+[![3657993839_2c2c884fa9_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/11/3657993839_2c2c884fa9_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/11/3657993839_2c2c884fa9_z.jpg)
+
+No wonder we’re often really quite happy when it’s finally Monday morning again and we can leave the house and do something properly simple with our lives once more.
+
+[![](https://img.youtube.com/vi/4bOer-y_VNE/0.jpg)](https://www.youtube.com/embed/4bOer-y_VNE '')

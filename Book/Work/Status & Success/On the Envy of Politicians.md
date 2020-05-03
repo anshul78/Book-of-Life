@@ -1,0 +1,37 @@
+[Chapter 2.Work](https://www.theschooloflife.com/thebookoflife/category/work/): [Status & Success](https://www.theschooloflife.com/thebookoflife/category/work/status-and-success/): [138. On the Envy of Politicians](https://www.theschooloflife.com/thebookoflife/disturbing-revelation-some-politicians-sometimes-not-idiots/)
+
+* * *
+
+# On the Envy of Politicians
+
+There’s general agreement amongst the public that most politicians are idiots. As we well know, they are universally egotistical, unprincipled, witless and, worse, devious and cunning. They’re quite literally good for nothings.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/10/Treaty_of_Rome_anniversary_group_photograph_2017-03-25_02-1024x681.jpg)
+
+There are always bits of evidence turning up that can be used to reinforce such ideas. MPs get rowdy during Prime Minister’s Questions; some of the them fiddled their expenses a while back; they have been known to be desperate for donations and to court unsavoury backers; they don’t know how to answer when a tenacious interviewer goes for them.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/10/6162855918_1b91264611_o-1024x683.jpg)
+
+But imagine if something far, far more awkward was in fact going on. What if most politicians are not in fact catastrophic, given how challenging it tends to be to govern a country? What if for the most part, they are quite hard working, occasionally intelligent, mildly narcissistic but quite well-intentioned people who in their own ways care quite a bit about the collective good of the country? This doesn’t mean they hit on perfect policies or are effective. But it does mean they’re not merely a bunch of charlatans.
+
+This thought is very hard to swallow. It’s strangely not a nice idea. We rebel against it. It’s oddly more manageable to think they are terrible than to think they might be more or less good enough.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/10/14038928986_51b35a8e72_o-1024x683.jpg)
+
+Foreign and Commonwealth Office/Flickr
+
+##### **Unbearable perhaps: but she’s working hard, trying her best, doing more or less OK**
+
+Why are we so drawn to doing our politicians down? Why do we want or need to believe the worst?
+
+Because secretly (and rather peculiarly), we envy them. A lot – like we envy anyone with fame, power and a more or less meaningful existence. We envy their connection to the big moving bits of society (the economy, the school system, the future of the air force etc.), their success in getting elected, their status, their opportunity to shape a nation’s destiny, their cars and special passes and their position as insiders in the key discussions and decisions. Furthermore, it’s in the very nature of democracies that we’re encouraged to think that at some level, these people are our equals and should require our gratitude: ‘that person could be me – and I put them there’. And yet it’s humiliating that they seem to be at the controls, and we’re at the back with the other passengers.
+
+Being cynical about a nation’s entire political class provides a comforting way of telling ourselves that our lives are in no way incomplete. But that’s not necessarily true.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2014/10/3543137666_2b6c17f2c2_o-1024x683.jpg)
+
+altogetherfool/Flicker
+
+##### **Yet what if he had some skills (just a few) you didn’t?**
+
+Paradoxically, it’s a sign that things are going well if we are governed by people we can envy a little (and therefore, have to declare can’t govern us at all). We need to be administered by people who have some skills we don’t quite have and who are more or less honest and sane. Yet the price we end up paying for being governed by OK types is a permanent need to believe the country is in the hands of morons.

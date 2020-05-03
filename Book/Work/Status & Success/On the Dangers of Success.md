@@ -1,0 +1,37 @@
+[Chapter 2.Work](https://www.theschooloflife.com/thebookoflife/category/work/): [Status & Success](https://www.theschooloflife.com/thebookoflife/category/work/status-and-success/): [127. On the Dangers of Success](https://www.theschooloflife.com/thebookoflife/on-the-dangers-of-success/)
+
+* * *
+
+# On the Dangers of Success
+
+We might imagine that in an uncomplicated way, our parents (and siblings, friends and wider families) will always be pleased at our successes. After all, they were delighted when we scored highly in a spelling test at the age of 6, and so there is – apparently – no reason why they wouldn’t always be happy about our triumphs, however large or varied they might be.
+
+But this is to risk&nbsp;missing out on a crucial, rather secret piece of human psychology: how unsettled our successes can make other people around us, especially our parents and therefore, how keen we might unconsciously be to spare them worry – or else we might opt to defy their feelings but at the cost of considerable anxiety and guilt on our part (a dynamic which might eventually lead to moments of career self-sabotage).
+
+[![7945910370_8678ee1d13_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/7945910370_8678ee1d13_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/7945910370_8678ee1d13_z.jpg)
+
+It is natural for parents to seek closeness with their children; they invest enormous amounts of time inducting them into their world view and educating them to be competent and adept. But the love does not come without conditions, it is almost always hemmed in by covert pacts and demands. At a certain point, parental generosity runs up against boundaries determined by an older generation’s potentially fragile self-esteem and sense of achievement. There may come a point at which children threaten to undermine their parents not through sloth and indolence, but through its opposite: through vigorous achievement which separates them from the home they came from and quietly indicts the parents for how they have led their lives.
+
+The successes of children can throw into relief the multiple and usually unspoken regrets and compromises of mothers and fathers, especially if these successes coincide with signs of retrenchment in parental careers: perhaps a father has been moved sideways and it is clear he won’t now ever get to the head office; perhaps the mother is having to go down to three days a week to look after her own ailing mother.
+
+[![6693911389_2669ec18ec_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/6693911389_2669ec18ec_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/6693911389_2669ec18ec_z.jpg)
+
+At such moments, we may feel a guilty inhibition about pursuing our ambitions at full throttle. Our fear isn’t so much that we might fail, as what the consequences might be if we managed to succeed. Rivalling a parent (or indeed a sibling) can be a thrilling covert project – but at the same time, a frightening one we might choose to retire from early.
+
+Success – though longed for – is not an uncomplicated state. It attracts admiration, but also envy. It emphasises our virtues, but – unwittingly – delivers a humiliating verdict on the status of those around us. We tend to locate the reasons for career setbacks in the external world: in the frustrations of office hierarchies and the vagaries of the economy. But sometimes the reasons are purely internal ones, nothing to do with a lack of skill on our part, rather a psychological inhibition about overtaking those who have nurtured us. We can ‘fail’ in order to keep succeeding at other things we’re attached to, like not humiliating our parents.
+
+[![326587809_450ffbeaea_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/326587809_450ffbeaea_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/326587809_450ffbeaea_z.jpg)
+
+When interrogating ourselves about the progress of our careers, we might dare to ask ourselves some strange but useful questions: Who might be upset if I succeeded? Over whom might I have a covert desire to triumph? On whom am I seeking revenge? We might also have a go at ending some sentences:
+
+If I succeeded, my father might feel..
+
+If I succeeded my mother would feel…
+
+There is of course an alternative to success, which is self-sabotage. We should recognise how unnerving satisfaction can feel. Though happiness is what we believe we seek, it often isn’t really what we know. We may have grown up with, and learnt to make our peace with far darker scenarios. The prospect of a satisfying career, when it in the end appears, can therefore seem counter-intuitive, and not a little frightening. It isn’t what we’ve come to expect, and it doesn’t feel like home. We may prefer to choose what’s comfortingly familiar, even if it’s difficult, over what is alienatingly fulfilling or good. Getting what we want can feel unbearably risky. It puts us at the mercy of fate; we open ourselves up to hope – and the subsequent possibility of loss. Self-sabotage may leave us sad, but at least safely, blessedly in control. It can be useful to keep the concept of self-sabotage in mind when interpreting our odder antics around careers. We should start to get suspicious when we catch ourselves pulling off poor performances around people we need to impress. We may be trying to stay loyal to an unhappy version of ourselves.
+
+[![6900491360_d4e68cb3bf_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/6900491360_d4e68cb3bf_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/6900491360_d4e68cb3bf_z.jpg)
+
+We should be careful too around ‘friends’. The word goes in inverted commas because of how many of these so-called friends don’t exactly follow the rules of friendship as we like to tell ourselves they exist. Groups of friends are frequently silently held together by shared fears and vulnerabilities. What the friends are all afraid of is as important as what they all admire. The success or new initiative of one friend can therefore undermine the delicate psychological economy of the group. On the surface, our friends may well say that anything we do might be fine by them, but in reality, certain choices can radically undermine their own life choices. If we are leaving medical research to go into business, how wise have they been to insist they had no interest in money? What would it say about our friends’ last decade in publishing or accountancy if we promptly decided to join a tech company or a cattle ranch?
+
+**We should be generous towards the envy of others: it comes from a weak, fragile place. Yet it means we may not always find encouragement and support in places we might expect it – not because we are in the wrong, but because our rightness unnerves others. We may be made to feel we are in error, but we should have the sang-froid and psychological distance to imagine that this could be self-serving talk and that every career move has the potential to bring us into conflict with those closest to us. The price of doing what we want may have to be to upset people we love. We may have to drop some friends, make others and recalibrate our relationships with family. Knowing that these all necessary and normal parts of succeeding can give us the courage to deal with one of the most difficult features of moving ahead with our careers.**

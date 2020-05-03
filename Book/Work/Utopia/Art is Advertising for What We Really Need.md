@@ -1,0 +1,53 @@
+Chapter .: [Utopia](https://www.theschooloflife.com/thebookoflife/category/work/utopia/): [196. Art is Advertising for What We Really Need](https://www.theschooloflife.com/thebookoflife/art-is-advertising-for-what-we-really-need/)
+
+* * *
+
+# Art is Advertising for What We Really Need
+
+At the centre of our societies is a hugely inventive force dedicated to nudging us towards a heightened appreciation of certain aspects of the world. With enormous skill, it throws into relief the very best sides of particular places and objects. It uses wordsmiths and image makers of near genius, who can create deeply inspiring and beguiling associations and position works close to our eyelines at most moments of the day. Advertising is the most compelling agent of mass appreciation we have ever known.
+
+Because advertising is so ubiquitous, it can be easy to forget that – of course – only a very few sorts of things ever get advertised. Almost nothing in the world is in a position to afford the budgets required by a campaign; advertising is a form of love overwhelmingly reserved for those wealthy potentates of modern life: nappies, cereal bars, conditioners, hand sanitisers and family sedans.
+
+This has a habit of skewing our priorities. One of our major flaws as animals, and a big contributor to our unhappiness, is that we are very bad at keeping in mind the real ingredients of fulfilment. We lose sight of the value of almost everything that is readily to hand, we’re deeply ungrateful towards anything that is free or doesn’t cost very much, we trust in the value of objects more than ideas or feelings, we are sluggish in remembering to love and to care – and are prone to racing through the years forgetting the wonder, fragility and beauty of existence.
+
+It’s fortunate, therefore, that we have art. One way to conceive of what artists do is to think that they are, in their own way, running advertising campaigns; not for anything expensive or usually even available for purchase, but for the many things that are at once of huge human importance and constantly in danger of being forgotten. In the early part of the twenty-first century, the English artist David Hockney ran a major advertising campaign for trees.
+
+[![image03](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/12/image03.png)](http://www.thebookoflife.org/wp-content/uploads/2016/12/image03.png)
+
+##### David Hockney, _Three Trees Near Thixendale,&nbsp;2007_
+
+At the start of the sixteenth century, the German painter Albrecht Dürer launched a comparable campaign to focus our minds on&nbsp;the value of grass.
+
+[![image00](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/12/image001.png)](http://www.thebookoflife.org/wp-content/uploads/2016/12/image001.png)
+
+##### Albrecht Dürer, _Great Piece of Turf_, 1503
+
+And in the 1830s, the Danish artist Christen Kobke did a lot of advertising for the sky, especially just before or after a rain shower.
+
+[![image05](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/12/image051.png)](http://www.thebookoflife.org/wp-content/uploads/2016/12/image051.png)
+
+##### Christen Kobke, _Morning Light_, 1836
+
+In the psychological field, the French painter Pierre Bonnard carried out an exceptionally successful campaign for tenderness, turning out hundreds of images of his partner, Marthe, viewed through lenses of sympathy, concern and understanding.
+
+[![image01](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/12/image01.png)](http://www.thebookoflife.org/wp-content/uploads/2016/12/image01.png)
+
+##### Pierre Bonnard, _Woman with Dog_, 1922
+
+In an associated &nbsp;move, the American painter Mary Cassatt made a pretty good case for the world-beating importance of spending bits of one’s life with a child.
+
+[![image02](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/12/image02.png)](http://www.thebookoflife.org/wp-content/uploads/2016/12/image02.png)
+
+##### Mary Cassatt, _Mother Playing with her Child_, 1899
+
+These were all acts of justice, not condescension. They were much needed correctives to the way that what we call ‘glamour’ is so often located in unhelpful places: in what is rare, remote, costly or famous.
+
+If advertising images are to blame for instilling a sickness in our souls, the images of artists are what can reconcile us with our realities and reawaken us to the genuine, but too-easily forgotten value, of particular bits of our lives. Consider Chardin’s _Woman Taking Tea._ The sitter’s dress might be a bit more elaborate than is normal today; but the painted table, teapot, chair, spoon and cup could all be picked up at a flea market. The room is studiously plain. And yet the picture is glamorous – it makes this ordinary occasion and the simple furnishings, seductive. It invites the beholder to go home and create their own live version. The glamour is not a false sheen that pretends something lovely is going on when it isn’t. Chardin recognises the worth of a modest moment and marshalls his genius to bring its qualities to our notice.
+
+[![image04](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/12/image04.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/12/image04.jpg)
+
+##### &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Jean Siméon Chardin, _Woman Taking Tea_, 1735
+
+It lies in the power of art to honour the elusive but real value of ordinary life. It may teach us to be more just towards ourselves as we endeavour to make the best of our circumstances: a job we do not always love, the imperfections of age, our frustrated ambitions and our attempts to stay loyal to irritable but loved families. Art can do the opposite of glamourise the unattainable; it can reawaken us to the genuine merit of life as we’re forced to lead it. It is advertising for the things we really need.
+
+[![](https://img.youtube.com/vi/Xw0GAInXkhA/0.jpg)](https://www.youtube.com/embed/Xw0GAInXkhA '')
