@@ -1,0 +1,249 @@
+Chapter .: [Literature](https://www.theschooloflife.com/thebookoflife/category/leisure/literature/): [131. Johann Wolfgang von Goethe](https://www.theschooloflife.com/thebookoflife/johann-wolfgang-von-goethe/)
+
+* * *
+
+# Johann Wolfgang von Goethe
+
+People have always had trouble pronouncing his name. The 19th-century British Prime Minister, Benjamin Disraeli, was once mocked in Parliament for getting it wrong. If you don’t speak German, it’s not at all obvious how you are supposed to say it. A safe bet is to start with a hard g on ‘Ger…’ and end with a ‘ter’: Ger-ter.
+
+Johann Wolfgang von Goethe (1749 – 1832) has often been seen as one of Europe’s big cultural heroes – comparable to the likes of Shakespeare, Dante and Homer. He excelled in a wide range of areas: he wrote many poems, was a huge hit as a novelist and made scientific contributions in physiology, geology, botany and optics. He was also a diplomat, fashion guru, a senior civil servant, a pornographer, the head of a university, a fine artist, an adventurous traveller, the director of a theatre company and the head of a mining company. No wonder another polymath, Andy Warhol, appropriated him for his pantheon of heroes:
+
+[![unnamed7](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/unnamed7.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/unnamed7.jpg)
+
+During his life, Goethe’s admirers were impressed by his literary works. But more than any of his books, what impressed people at the time was how he lived his life, the kind of person he was. The life was more significant than the books (which helps explain why, unlike Jane Austen or Marcel Proust, his literary works are relatively unknown).
+
+Goethe was born in the city of Frankfurt in 1749.&nbsp;His family was comfortably off – it was new money, made from inn keeping.
+
+[![529f39652f27b](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/529f39652f27b.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/529f39652f27b.jpg)
+
+##### The family house where Goethe grew up
+
+[![goethe_familie_seekatz](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/goethe_familie_seekatz.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/goethe_familie_seekatz.jpg)
+
+##### The Goethe family: 14-year-old Johann Wolfgang and his younger sister Cornelia&nbsp;look after a pet sheep
+
+Goethe’s parents took great care with his education: he was mainly educated at home; he wrote poetry for his friends, took art classes, learned Italian. He went to the theatre a lot and became friends with actresses. As a member of the upper class, he wore a sword in public from the age of twelve.
+
+[![00008944_Goethe Self Portrait](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/00008944_Goethe-Self-Portrait.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/00008944_Goethe-Self-Portrait.jpg)
+
+##### Goethe, Self-Portrait, aged about 15
+
+He studied at the University of Leipzig and later did a master’s degree in Law at the University of Strasbourg.
+
+[![image03](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/image032.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/image032.jpg)
+
+He often skipped lectures and went to a viewing platform high up on a nearby cathedral tower. He was afraid of heights. But he made himself do it because he liked to overcome obstacles – and loved the view.
+
+We can pick up some vital lessons from Goethe:
+
+**One: From Romanticism to Classicism in Love**
+
+Goethe’s first proper job, after law school, was as an assistant at a national tribunal judging cases between the many minor German states that, at that time, made up the Holy Roman Empire. While he was working, he fell in love with the fiancée of one his colleagues. He then committed a huge indiscretion and wrote up the love affair as a novel. He called it _The Sorrows of Young Werther_ – the central character, Werther, is a lightly disguised self-portrait.
+
+It tells the story of how Werther/Goethe falls in love with a young woman, Charlotte. It’s a very detailed description of all the tiny steps one takes on the road to infatuation: they dance together, at one point their feet accidentally touch under the table; they smile, they write each other flirtatious little notes.&nbsp;It makes being in love seem like the most important experience in life. Werther asks himself: “What is a life without romantic love? A magic lantern without a lamp.”
+
+This deeply charming novel was a bestseller across Europe for the next 25 years. Napoleon boasted he had read it seven times. The story has a miserable ending. Charlotte doesn’t really love Werther and finally rejects him. In despair he kills himself. The tragic dénouement shows Goethe beginning to see the limitations of the romantic view of life. Romantic love is deeply attractive but it causes immense problems too.
+
+The core problem – as Goethe sees it – is this: Romantic love hopes to ‘freeze’ a beautiful moment. It’s a summer’s evening, after dinner, Werther is walking in the woods with his beloved. He wants it to be always like this: so he feel they should get married, have a house together, have children. Though, in reality, marriage will be nothing at all like the lovely June night.&nbsp;There’ll be exhaustion, bills to pay, squabbles and a sense of confinement. By comparison with the extreme hopes of Romanticism, real love is always necessarily a terrible disappointment.
+
+That’s why Goethe gradually moved away from Romanticism towards an ideology of love he termed Classicism – marked by a degree of pessimism, an acceptance of the troubles that afflict all couples over time, and of the need to abandon some of the heady hopes of the early days for the sake of tranquillity and administrative competence. Goethe was a critic of Romantic ideology not because he was cold hearted or lacking in imagination but because he so deeply and intimately understood its attractions – and therefore its dangers.
+
+[![20070418klplylliu_133_Ies_LCO1](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/20070418klplylliu_133_Ies_LCO1.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/20070418klplylliu_133_Ies_LCO1.jpg)
+
+Goethe’s career shows us a journey away from the initial Romanticism of Werther towards a mature, classical view of life. His later play, _Iphigenia,_ fully develops the Classical alternative to Romanticism.
+
+Iphigenia is a Greek princess at the time of the Trojan wars, the daughter of the chief king of the Greeks, Agamemnon.&nbsp;She and her family are caught up in a horrific sequence of murders and feuds: a dramatic exaggeration of the traumas of ordinary family life.
+
+[![Iphigenia_at_Aulis-David](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/Iphigenia_at_Aulis-David.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/Iphigenia_at_Aulis-David.jpg)
+
+##### Iphigenia, in white – with her difficult parents: Clytemnestra and Agamemnon&nbsp;
+
+Typically, the cycle of intense passion continues itself from one generation to the next. Goethe imagines Iphigenia as the person who finally brings forgiveness and peace.
+
+[![800px-Goethe_Iphigenia_in_Tauris_1803](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/800px-Goethe_Iphigenia_in_Tauris_1803.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/800px-Goethe_Iphigenia_in_Tauris_1803.jpg)
+
+##### Iphigenia persuades her brother to forgive their parents
+
+Iphigenia sees her role in life as that of “making men mild.” She is always encouraging people to calm down and be merciful. She is committed to love, but a love marked not by wild passion, but by understanding, sympathy and a desire for harmony:
+
+_Remembering that we all must die_
+
+_Should move the hardest heart to tenderness;&nbsp;_
+
+_Are we not required to show others_
+
+_The best kindness we ourselves have known?_
+
+Goethe first audiences, brought up on Romanticism, were slow to get the message. Was Goethe turning his back on Romantic love? Where was all the passion? They described the story of Iphigenia as like “watching grey mist.”
+
+Goethe, now in middle-age, was undaunted. He’d had enough of Werther and expressed his own view emphatically – “Romanticism is sickness, Classicism is health.” But he encountered an elemental cultural problem: Romanticism feels more exciting. Goethe pinpointed one of the central problems of culture: how to make things that are good for us compete successfully for attention with the thrilling passionate stuff?
+
+**Two: The Dignity of Administration**
+
+In April, 1775, not long after his big success with Werther, Goethe took a job as a civil servant.
+
+Carl August, the Duke of Weimar, appointed him as his chief adviser and senior administrator to help run his country.
+
+[![Carl_August_sitzend](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/Carl_August_sitzend.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/Carl_August_sitzend.jpg)
+
+##### Carl August, Goethe’s employer – for most of his life
+
+Goethe continued in this employment for most of the rest of his life; his main jobs were as minister for roads – which was vital to trying to improve trade. He was the overseer of the state owned silver-mining operation. He undertook diplomatic missions and made major decisions around education and urban planning. He spent a lot of time in the twice-weekly cabinet meetings (which involved a lot of writing and reading of briefing papers).&nbsp;
+
+It can sound like a strange move for a very successful creative figure: as if the winner of the Booker prize became a civil servant at the Department of Environment, Food and Rural Affairs. We just assume that art and literature are at odds with an enthusiasm for government administration.
+
+[![image11](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/image11.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/image11.jpg)
+
+##### Goethe’s colleagues
+
+But Goethe didn’t see it that way. Over the years, he spent a lot of his time drawing up reports and sitting in meetings about the pros and cons of purchasing specialist drainage equipment, the best material for resurfacing a highway and how to deal with with their overbearing neighbour, Prussia.
+
+He felt that he needed responsibility, power and experience to become a more mature and wiser person – and a better poet and philosopher. But it did something else as well: it enabled him to put ideas in practice.
+
+[![image26](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/image26.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/image26.jpg)
+
+##### Goethe expanded from being a solitary writer of plays to being head of Germany’s leading cultural institution at that time – the Weimar State theatre
+
+Later, he held the position of arts minister. He was able to establish the best theatre in Germany – and put on the first performances of many of the plays of the era. In modern terms, it was like setting up as a major film producer. The encounter with power, responsibility, budgets and money – with the mechanisms by which the world is run – enabled Goethe to purse a crucial developmental path. He moved from being a solitary creative thinker working essentially on his own to someone able to put his ideas into action. Instead of writing about how good it would be to have a national theatre, he was able to establish one; instead of just saying that cities should have green spaces, he was able to rev the governmental machinery into action and actually create a model urban park.
+
+[![park](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/park.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/park.jpg)
+
+##### Goethe made the move from writing about the importance of nature to setting up a large park near the city centre
+
+**Three: Travel as Therapy**
+
+In September 1786, after ten years in the Weimar civil service, when his fortieth birthday was coming into view, Goethe was gripped by the fear that he was wasting his life. He was weary of the cold winters, the endless meetings, the work load that made it hard to find time for writing. He headed for Italy – first to Vicenza and Venice where he was especially impressed by the buildings of Andrea Palladio.
+
+[![Villa_Rotonda_front](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/Villa_Rotonda_front.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/Villa_Rotonda_front.jpg)
+
+##### Goethe wanted his life to become _like_ Palladio’s buildings: serene, ordered, sensuous and dignified
+
+Then he went to Rome, which was his main base. He spent nearly two years in Italy. He had a very classical idea of&nbsp;the point of travel. The outer journey was intended to support an inner journey towards maturity. He felt that there was a part of himself that could only be discovered in Italy – “I am longing for grapes and figs.”
+
+[![ash_ashm_wa1847_1_large](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/ash_ashm_wa1847_1_large.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/ash_ashm_wa1847_1_large.jpg)
+
+##### Piazza del Popolo – 18th-century&nbsp;Rome: Goethe’s flat was just a few steps from here – a few doors down the middle street between the two domes, on the left hand side
+
+But like many visitors to Rome, when he got there he felt disappointed.
+
+[![tumblr_nmvjwm2Omj1qd9m9xo1_500](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/tumblr_nmvjwm2Omj1qd9m9xo1_500.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/tumblr_nmvjwm2Omj1qd9m9xo1_500.jpg)
+
+In a collection of poems he wrote about his experience&nbsp;– _The Roman Elegies_ – he describes how the great city seemed to be filled with lifeless ruins that were famous but didn’t actually mean anything to him: “speak to me, you stones!” he pleads. It’s a feeling many later visitors have had.
+
+He realised that what he needed was not a more elaborate guide book, but the right person to have an affair with – someone who would share their love of Rome with him and show him the real meaning of the place. In a poem, he describes the woman he meets – he calls her Faustina. They spend lazy afternoons in bed; she’s not a great intellectual, she tells him about her life, about the buildings she passes on her way to the market – the Pantheon, a Baroque Church designed by Bernini – which she hadn’t realised were famous; they were just the buildings that happened to be around, that she happens to like. In his bedroom next to Faustina, Goethe realises that he’s entering into the spirit of Classical culture: a simple, comfortable relationship to sex and beauty; and the idea that the classical poets were people like him.
+
+[![image20](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/image20.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/image20.jpg)
+
+For Goethe, the point of travel isn’t relaxation or just taking a break from routine. He’s got a bigger goal in mind: the aim of travel is to go to a place where we can find the missing ingredient of our own maturity.
+
+[![image16](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/image16.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/image16.jpg)
+
+##### The goal: maturity 
+
+Goethe didn’t stay in Italy. After nearly two years, he had developed enough to go back to Weimar and get on with his work political and creative work.
+
+**Four: Living Life to the Full: The Faustian Hero**
+
+One of the most striking things about Goethe is how much he did, how broad his horizons were, and how wide his interests were. He explored this particularly through his most famous work, _Faust_. Goethe worked on _Faust_ all his life. The earliest sketches go back to his teens. And he only decided he’d done with it when he was in his early eighties. _Faust_ comes in two parts and together the performance takes about thirteen hours. Goethe himself never saw the whole thing – and few people have since.
+
+Faust is a medieval academic and scholar. He’s very learned but he doesn’t do very much: he is unfulfilled in love, he hasn’t made any money, and he has no power.&nbsp;His knowledge is sterile. His life feels pointless and he wishes he could die.
+
+But then he is visited by a devil, called Mephistopheles – who offers him boundless energy, good looks and the ability to do whatever he wants. The question is: what will Faust want to&nbsp; do? The first danger for Faust is to stay an academic who resists worldly impact.
+
+[![john keats-966847](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/john-keats-966847.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/john-keats-966847.jpg)
+
+##### ‘Hemmed in by heaps of books, 
+
+##### Piled to the highest vault and higher:
+
+##### Worm eaten, decked with dust’
+
+With the Devil’s help he could be the ultimate bookworm: he could get his hands on the oldest, rarest manuscripts. But he gets weary of words and longs for action.
+
+[![faust_traum](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/faust_traum.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/faust_traum.jpg)
+
+The second danger is that he will use his new powers to gratify every sensual appetite. He will become a pure hedonist. Faust goes some way down this path: he goes to a bar and gets everyone&nbsp;very drunk, he goes to a huge orgy – but then he realises that what he really seeks is beauty and love and this leads him on from sex and alcohol.
+
+The third danger is that Faust will become a confident but shallow political leader. But in the second part of the play,&nbsp;Faust pursues a grand purpose: eventually he organises the development of a new country – along the lines of the Dutch Republic – which at that time was the most Enlightened and successful society in the world.
+
+[![koninck-extensive-landscape-road-river-NG6398-fm](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/koninck-extensive-landscape-road-river-NG6398-fm.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/koninck-extensive-landscape-road-river-NG6398-fm.jpg)
+
+##### The final wisdom: space for millions, 
+
+##### free to work on fertile fields, where men and herds
+
+##### can settle and gain comfort from the new-made earth:
+
+##### a paradise, where hard working people win their freedom every day
+
+_Faust_ is a morality tale for all of us: he shows us both the pitfalls of life and how we might avoid them. Faust knows a great deal – but he resists being an academic; he loves sex, but he doesn’t give way to debauchery. He likes power but he doesn’t use it for megalomania: he puts it to work in the service of noble ends.
+
+Faust’s career path is not unlike Goethe’s. Faust is essentially tracing for us a theory of how to live a full life. He is very interested in ideas, but not a scholar. He visits Italy, but doesn’t stay there. He goes back to work. He tries out administration and learns how to wield power, but once he has mastered this side of himself he moves on. The Faustian idea is that in order to develop fully, we have to flirt with things that are quite dangerous, but hold on to a sense of higher purpose.
+
+[![Goethe's_Interview_with_Napoleon_at_Erfurt_(The_Works_of_J._W._von_Goethe,_Volume_14)](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/Goethes_Interview_with_Napoleon_at_Erfurt_The_Works_of_J._W._von_Goethe_Volume_14.png)](http://www.thebookoflife.org/wp-content/uploads/2015/05/Goethes_Interview_with_Napoleon_at_Erfurt_The_Works_of_J._W._von_Goethe_Volume_14.png)
+
+##### In 1807 the Emperor Napoleon tried to persuade Goethe to come and work for him – Goethe refused, but was glad to have the offer
+
+**Five: Science for Artsy People**
+
+Goethe was the last European to do a certain kind of remarkable thing –&nbsp; to write great novels and plays and also play a significant role in science. His interests ranged through geology, meteorology, physiology and chemistry. But his most important work was in botany – in 1790 he produced his study,&nbsp;_Metamorphosis of Plants,_ and on optics and colour, where his research was summed up in the _Theory of Colours_ which was published in 1810.
+
+Thereafter, this combination of very significant work in the arts and in the sciences disappears from European civilisation completely. Goethe gives us some guidance as to why this has happened. Goethe is a hero for people of a more literary and artistic sensibility who are attracted from a distance to the broad subject matter of science – but who find the details of science less appealing.
+
+Goethe likes science that you can do yourself, by looking carefully at the world around you.
+
+[![Goethes_Garten_am_Frauenplan](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/Goethes_Garten_am_Frauenplan.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/Goethes_Garten_am_Frauenplan.jpg)
+
+##### Goethe did a lot of his research on plants in his own back garden in Weimar
+
+He did a lot of his research on optics with candles and coloured pieces of paper in his study. He liked the training this gave in asking oneself: what do I actually see? This could combat our tendency to see only what we expect. And also, it usefully turned our attention outwards, as a relief from preoccupation with ourselves.
+
+[![GoetheFarbkreis](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/GoetheFarbkreis.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/GoetheFarbkreis.jpg)
+
+Goethe was very interested in the psychological aspect of our relationship to the sort of things that science investigates: plants, light, stones.&nbsp;Rather than exclude the issues of personal meaning, Goethe sees these as central to the proper and full investigation of nature.
+
+[![about 1530-2](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/Lorenzo_Lotto_046.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/Lorenzo_Lotto_046.jpg)
+
+##### Why do the colours of her dress work well together
+
+He wants to understand why green and russet silk make a great design combination – as an aid to couturiers and artists.
+
+He was struck that different kinds of rock have a different character. And he chose granite – the hardest stone – for a monument to good fortune, which he put in his garden.
+
+[![goethe-good-luck-stone](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/goethe-good-luck-stone.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/goethe-good-luck-stone.jpg)
+
+##### Why is granite good for a monument to luck?
+
+[![GOETHE_Cervus](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/GOETHE_Cervus.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/GOETHE_Cervus.jpg)
+
+##### What does an elephant jawbone (Goethe found it in a quarry near Weimar) mean to me?&nbsp;
+
+And he was very moved by the continuity between human life and the life of plants and animals. The point of studying an elephant’s jaw was to understand the traces of our evolution. Goethe thought of human nature as being a gradual refinement of animal nature.
+
+Goethe was very worried by the direction that science was taking – which he particularly associated with the work of Isaac Newton. As Goethe saw it, the academic, profession scientist wasn’t interested in the personal meaning of the things they investigated.
+
+[![newton-prism-experiment-2](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/newton-prism-experiment-2.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/newton-prism-experiment-2.jpg)
+
+##### Goethe thought Newton had ‘tortured’ light – breaking it up to extract its hidden secrets
+
+Goethe’s point isn’t that Newton is technically wrong. It’s that he dislikes the direction of effort.
+
+**CONCLUSION**
+
+As he aged, Goethe kept on working.&nbsp;
+
+[![GW485H540](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/GW485H540.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/GW485H540.jpg)
+
+##### He often dictated his ideas
+
+And he kept on seeking love – and sex.&nbsp;
+
+[![Ulrike_von_Levetzow](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/05/Ulrike_von_Levetzow.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/05/Ulrike_von_Levetzow.jpg)
+
+##### In his 70s, Goethe fell in love with Ulrike – his passion was unrequited
+
+Goethe died at his house in Weimar in 1832. He was 83.
+
+We have so much to learn from him. We don’t often hear people declaring a wish to be a little more like ‘Goethe’. But if we did, the world would be a more vibrant and humane place.
+
+[![](https://img.youtube.com/vi/zNEpojtXotE/0.jpg)](https://www.youtube.com/embed/zNEpojtXotE '')

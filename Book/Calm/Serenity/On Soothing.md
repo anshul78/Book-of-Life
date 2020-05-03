@@ -1,0 +1,29 @@
+[Chapter 5.Calm](https://www.theschooloflife.com/thebookoflife/category/calm/): [Serenity](https://www.theschooloflife.com/thebookoflife/category/calm/serenity/): [27. On Soothing](https://www.theschooloflife.com/thebookoflife/on-soothing/)
+
+* * *
+
+# On Soothing
+
+It’s the middle of the night, let’s imagine, and we’ve been on the earth for about three months. A lot is still very unclear. We are profoundly helpless, barely able to move our own head and utterly at the mercy of others. The sources of our suffering and joy lie far outside our understanding. Hugely powerful needs pass through us at regular intervals and we have no way of making sense of them to ourselves – let alone of communicating them reliably to others.
+
+A minute ago, we were asleep in a dark enveloping warmth. Now we’re awake, bereft, isolated and very uncomfortable. There seems to be a pain somewhere in our stomach, but the agony is more general; we are lonely and profoundly sad. The room is dark and there’s a mysterious set of shadows on the wall that appear and vanish at random.
+
+In a rising panic, we start to scream out in the darkness. Nothing happens. We pause to recover our breath – and then scream even louder. Our lungs strain with the effort. Still nothing and the darkness and loneliness grow ever more threatening. Now true desperation sets in; this feels like the end of everything good and true – and we scream as if to ward off death.
+
+At last, just when it seems we could not go on any further, the door opens. A warm orange light is turned on. It is a familiar face. They smile at us, say the name they often use around us, pick us up and put us against their shoulder. We can hear a familiar heart beating next to ours and a warm hand caressing the top of our head. They gently move us to and fro, and sing a tender, sweet song. Our sobs start to abate, we pull a weak smile; it feels like the vicious demons and merciless goblins have been sent packing – and that life could be bearable after all.
+
+![Image result for mother and child painting](https://uploads4.wikiart.org/images/mary-cassatt/mother-and-child-1900.jpg)
+
+Soothing is one of the kindest gestures that humans ever perform for one another. It must lie close to the core of love – and is what can make the difference between a desire to die and the capacity to endure.
+
+Awkwardly, it tends to be very hard to soothe ourselves unless we have first – usually in childhood – been properly soothed by someone else. A capacity for self-soothing is the legacy of a history of nurture. If we have been picked up enough times early on, and sufficiently reassured in the midst of panic that we will make it, then one part of the mind learns the art and can practice it on the other – and eventually, on people outside us too.
+
+At moments of crisis, we find ourselves able to access a voice that calms the waves of fear and the blows of self-hatred: _we can sort this out;_ _we’ll have a conversation with them; people understand; screw them if they don’t; what matters is you; you are good and valuable._ We have available an unflustered, resolute response as much to the most awful events as to routine panics. We have a faith that we can endure, that something will show up and that we don’t deserve the worst.
+
+Reflecting on the art of soothing may bring into focus just how much we are missing. We are not mysteriously deficient, we were brought up by adults who were themselves not soothed. We need to grow attentive and deeply sympathetic to the missing pieces of our psyche. It is because we didn’t benefit from soothing that life is so much harder than it should be; that nowadays rejection is so bitter, social media is so frightening, disapproval feels so fatal, ambiguity is so unbearable, sleep feels so unearnt, holidays are so worrying, the caresses of others feel so alien – and so many of our days and nights are rocked by what feel like near-death experiences.
+
+![Image result for mother and child painting](https://d2qs8jo5daq3wi.cloudfront.net/photos/194509/full/datta_thombareJH20-MOTHER ___CHILD_ACRYLIC_ON___ CANVAS_36''X36''_72_000..JPG?1508133867)
+
+There are – one must believe – substitutes and opportunities for catching up. We can have recourse to music, diaries, beds, baths but, most importantly, other people. However, seeking out the sort of people who can soothe us may be the hardest step. We may mistake a capacity to soothe for weakness or naivety. We may take the soother for a fool. We may need soothing so much, we find ourselves unable to ask for it nicely, shouting counter-productively instead – or else we withdraw into defensive independence, because help feels like it hasn’t come soon enough. Those in the greatest need of soothing often have no idea of what is missing, no sensible way of articulating their need – and a dogged suspicion of kindness were it to be offered to them.
+
+We should strive not to make things constantly scarier in our own minds than they are in reality. We should offer soothing continuously to others – and insist to the more sceptical and parched parts of our own minds that they too deserve one day to be the beneficiaries of kindness and reassurance.

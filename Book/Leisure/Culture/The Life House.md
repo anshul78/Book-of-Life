@@ -1,0 +1,49 @@
+[Chapter 6.Leisure](https://www.theschooloflife.com/thebookoflife/category/leisure/): [Culture](https://www.theschooloflife.com/thebookoflife/category/leisure/culture/): [30. The Life House](https://www.theschooloflife.com/thebookoflife/the-life-house/)
+
+* * *
+
+# The Life House
+
+The School of Life is a global organisation committed to emotional education. Our headquarters are in some of the world’s major urban centres: London, Paris, Amsterdam, Melbourne, Seoul, Istanbul… &nbsp;But we have always been interested in helping&nbsp;our audiences find some of the peace of mind once offered by isolated rural monasteries.
+
+**It was with this in mind that we bought a piece of land in a deserted valley in central Wales and, with the help of the British architect John Pawson, built a** &nbsp;secular ‘monastery’ we call THE LIFE HOUSE.
+
+**[![IMG-20160409-00139](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/IMG-20160409-00139.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/IMG-20160409-00139.jpg)**
+
+![John Pawson Life House 19](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/John-Pawson-Life-House-19.jpeg)
+
+Visitors are invited to spend week-long formal retreats &nbsp;at the Life House – taking part&nbsp;in a variety of indoor and outdoor therapeutic exercises. One of the central experiences of The Life House is a Contemplation Chamber buried in the hillside, a bare room in which to empty the mind and become responsive to long suppressed thoughts and associations.
+
+[![John Pawson Life House 18](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/John-Pawson-Life-House-18.jpeg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/John-Pawson-Life-House-18.jpeg)
+
+On the ground, on a massive piece of granite, is inscribed a quotation from Pascal: ‘All of man’s unhappiness is caused by his inability to stay quietly in a room by himself.’
+
+![](http://a2.images.divisare.com/image/upload/c_fit,w_1440/f_auto,q_80/v1461331282/ehnthh0punglzma1k9ap.jpg)
+
+Three bedrooms follow, each dedicated to one of the central ways in which humans have traditionally searched for calm.
+
+[![1643-original](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/1643-original.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/1643-original.jpg)
+
+There is a Music Bedroom, with state of the art equipment and a curated selection of music to bring calm and perspective to the soul.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/the-life-house_base_2.jpg)
+
+Next comes the Library Bedroom, with an array of books that promote introspection, reconciliation and a sense of serenity.
+
+![](http://www.designboom.com/wp-content/uploads/2016/04/john-pawson-life-house-living-architecture-UK-designboom-06.jpg)
+
+![IMG-20160409-00141](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/IMG-20160409-00141.jpg)
+
+Lastly there is the Bathing Bedroom, with a sunken tub that gives out onto the Welsh valley beyond.
+
+[![1645-original](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/1645-original.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/1645-original.jpg)
+
+We believe that architecture has a fundamental role to play in mental health and well-being. The Life House is an embodiment of our commitment to the education of the spirit.
+
+If you are interested in a retreat, please [click here for more information](https://www.theschooloflife.com/london/classroom/the-life-house-reading-retreat/).
+
+[![IMG-20160410-00185](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/IMG-20160410-00185.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/IMG-20160410-00185.jpg)
+
+[![IMG-20160409-00159](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/IMG-20160409-00159.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/05/IMG-20160409-00159.jpg)
+
+![IMG-20160409-00179](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/05/IMG-20160409-00179.jpg)

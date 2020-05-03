@@ -1,0 +1,45 @@
+[Chapter 6.Leisure](https://www.theschooloflife.com/thebookoflife/category/leisure/): [Culture](https://www.theschooloflife.com/thebookoflife/category/leisure/culture/): [29. Easter for Atheists](https://www.theschooloflife.com/thebookoflife/easter-for-atheists/)
+
+* * *
+
+# Easter for Atheists
+
+Perhaps the most boring question one can ever direct at a religion is to ask whether or not it is ‘true’. Of course (this publication believes), none of its supernatural claims can ever be ‘true’ – but that may not be a reason to dismiss the religion in its entirety, just as one wouldn’t disregard _Anna Karenina_ on the grounds that the tale had been somewhat invented. Religions are intermittently too interesting, wise and consoling to be abandoned to ‘believers’ alone.
+
+For Christians, these are the darkest of days. Easter commemorates an incident of catastrophic failure. The story is dismal in the extreme: he was gentle, generous, sincere and wise. He was close to his mother and a friend to the poor and the lonely. He believed in love and forgiveness. He understood suffering and wanted to make a better world. And yet it all ended in humiliation, betrayal and unbearable pain. One of his best friends denounced him. He was tried on trumped up charges. His community abandoned him. The crowds jeered.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/04/Honthorst-Jesus-1024x706.jpg)
+
+_Life couldn’t go any more wrong than this_
+
+Jesus of Nazareth was nailed up on a cross and left to die. He suffered the fate of a criminal and an outcast. (For a long time), no one really gave a damn.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/04/Zubaran-Crucifixion-574x1024.jpg)
+
+Who knows if it really all happened like this. But that’s not really the point. The truth of the story isn’t the decisive factor. He was clearly not ‘the son of God’, but the story nevertheless retains a critical power to educate the modern world about one or two important things.
+
+Jesus is a symbolic character, a representative human being. No one is like him all the time. But most of us are a little bit like him some of the time. The story of his suffering is a strategically exaggerated version of the griefs involved in human experience more generally. Terrible things happen. Cancer is diagnosed. A divorce shatters a family. A firm goes bankrupt. An ordinary mistake triggers a calamity. A parent dies before a child gets around to sorting out what they might have meant to them.
+
+Holding up the story of the Crucifixion for regular contemplation makes the most painful scenarios feel more familiar and more normal; severe trials and periods of misery are written into the contract of life.
+
+Yet in a lot of today’s individualistic narratives, defeat can only be explained by a person’s own weakness or stupidity. Those who fail are callously described as ‘losers’. We are taken to deserve our fates. Against such a punitive backdrop, the story of the Crucifixion emerges as offering a more endurable and forgiving map of life.
+
+It was the genius of Christianity to insist on making its central figure an ‘ordinary’ person, not an idealised all-powerful deity, but a character exposed to every available indignity – and at the same time, to insist on his status: both the king of kings and an ordinary loser. This was a truly revolutionary move with a deeply consoling message at its heart.
+
+What is the mark of a good life? Who should be considered a success? Easter offers a surprising and helpful answer: success is not about obvious worldly triumph, it’s about developing an ability to use one’s own suffering as a route to compassion for others.
+
+There’s a second side to the Easter story. The Crucifixion is presented as horrific, but the catastrophe becomes an occasion to promote forgiveness rather than revenge.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/04/Bosch-Christ-2.jpg)
+
+_Forgive them, they don’t know what they are doing_
+
+The Roman guards and the cruel crowds are, in the image above, doing something terrible. But Jesus is not desperate to hurt them back. He isn’t being weak. It’s because he’s got an unusual idea about why things go wrong in people’s hearts.
+
+Among the last words Jesus was meant to have said before he died was the plea: ‘Forgive them, they don’t know what they are doing.’ Herein lies the fascinating suggestion that cruelty is a symptom of a lack of love and understanding, but it is not the ultimate truth about anyone. People who enjoy bringing pain to others are themselves traumatised, rather than inhuman. They are not fully in command of themselves. The jeering man in the crowd is himself the victim of past horrors, deserving – if we can find it in our hearts to understand – pity rather than rage.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/04/Procession.jpg)
+
+A good society understands that we cannot work out how to live unaided. We need role models, guides to show us how we might handle pain and respond to insult and betrayal – and it places figures before us for our consolation and edification. The Christian narrative of Easter is an exemplary pedagogic tale. We perhaps shouldn’t worry quite so much whether or not the story is exactly ‘true’. What may matter more is whether or not it is helpful.
+
+    

@@ -1,0 +1,43 @@
+[Chapter 4.Sociability](https://www.theschooloflife.com/thebookoflife/category/sociability/): [Friendship](https://www.theschooloflife.com/thebookoflife/category/sociability/friendship/): [64. How to Say 'I Love You' to a Friend](https://www.theschooloflife.com/thebookoflife/how-to-say-i-love-you-to-a-friend/)
+
+* * *
+
+# How to Say ‘I Love You’ to a Friend
+
+It’s one of the minor tragedies of social life that we make such rigid and unimaginative distinctions when defining the differences between ‘friends’ and ‘lovers’. When it comes to lovers, one is meant to adore passionately and sexually. With friends, one is meant to love quite a lot but, in reality, actually not too much – and, of course, without any sexual intent. And all this is complicated by the powerful Romantic assumption that when we speak of love, we must invariably have physical love in mind.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/04/Love-Friends-1024x789.jpg)
+
+This is the puzzling and hesitancy-inducing background against which we at points experience an intense longing to tell a very good friend that we love them. It might be at the end of dinner, as they’re recounting a story about their work – and we’re suddenly overwhelmed by a sense of how interesting, decent and amusing they are. Or we might be on a trip, flying high above Greenland, and we randomly start to think of them, how much we miss them and what an interesting time we’d have if we could be talking to them right now.
+
+But unfortunately, the structure of friendship does not generally allow a message of love to be imparted; the declaration risks being read as a prelude to an unwanted physical advance (perhaps they are married or of another orientation). Or it might just feel a little overwhelming and intense, as though – once such a declaration had been made – there would be no alternative but to move in with them and cling to them tightly.
+
+To counteract such fears, we should begin with a basic realisation: hearing from someone that you already hold in high esteem and obviously feel very fond of that they _love_ you is one of the most pleasant occurrences possible in an otherwise alien and disappointing world. Intense it may be: dreadful it can’t be.
+
+Let’s imagine how a declaration could go:
+
+_I know this might sound very silly – and a bit embarrassing too…_
+
+It never hurts to let out a few indications that we won’t, whatever happens, be asking them to tuck us in tonight (or only if they really want to).
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/04/42568436704_a1a46a7d11_k-1024x768.jpg)
+
+_…but I was just thinking of how much you mean to me._
+
+One of the basic mysteries of friendship is that we can’t easily tell how much our friend might think of us when we’re not around. But if we judge the matter by how much we happen to think of _them_, and if we consider that they do regularly cross our thoughts in small ways and large, then the same is probably happening in the other direction too. This is a highly touching and sweet realisation, and one that should give us confidence to carry on.
+
+_I often find myself thinking of you – in relation to this or that. Your advice, your perspectives, your sense of humour, all these matter so much to me._
+
+Another mystery we labour under, and which can be usefully aired, is where we happen to be placed in our friends’ hierarchy of affection: are we in their top twenty best friends, or their top ten? Have we made the top eight? The top five? Outside of closed circles, like schools and universities, we simply don’t know the full range of anyone’s friendship groups and therefore where we might fit in. Touchingly, we’re also often in the position of fearing that we’re far lower down the pecking order than we in fact are; few of us have a secure sense of our worth.
+
+_I have a lot of friends, but I really don’t have many like you. You’re one of three friends I care about most in the entire world._
+
+Why wait until a fatal diagnosis to express such intimate treasures?
+
+_I know we don’t see each other too often, it’s ridiculous how much life gets in the way – but that’s no reflection of the space you occupy in my heart._
+
+None of this is a romantic declaration. It’s something far more significant. The Ancient Greeks, wiser than us in so many fields, had two words for love: _eros_ to describe sexual attraction; _philia_ to capture the feeling of a person being an immensely close soul-mate. We may not ‘love’ our friend in the standard way, but we love them far more richly and sensitively than that – as our long-lost other half.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/04/1273786891_b5a5ed8347_b-1024x768.jpg)
+
+_I know we’ll be seeing each other soon. I was thinking of asking another friend to join us, but then I thought it might be so much nicer if it was just the two of us._

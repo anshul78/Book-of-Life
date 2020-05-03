@@ -1,0 +1,155 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Emotional Skills](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/emotional-skills/): [89. Charity](https://www.theschooloflife.com/thebookoflife/charity/)
+
+* * *
+
+# Charity
+
+It is one of the seven virtues of Christianity. It used to have a central place in Roman ethics and Judaism as well. Today, we remain deeply impressed by the idea of charity, but often from a distance, without probing the concept too deeply, with little attempt to practise it systematically. It’s something we might have recourse to when we’re moved by a documentary on the TV or have some loose change left over after the holidays.
+
+At its most basic, charity means: giving someone something they need but can’t get for themselves. And normally that’s understood to mean something material. We overwhelmingly associate charity with giving money.
+
+[![8124223076_60089d5724_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/07/8124223076_60089d5724_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/07/8124223076_60089d5724_z.jpg)
+
+The heroes of Christianity are exemplars of such charity. Outside the city, Saint Francis comes across a poor man. His garments are thin and ragged. Winter is coming on and coats are expensive. The saint is moved to charity.
+
+But, at its core, charity goes far beyond finance. It is about stepping in when we see that a person needs help with something that they can’t do for themselves – and that their helplessness is not a sign of wickedness or sin, but is fundamentally a part of the human condition. We freely give because we appreciate how often we too need to help, how we wouldn’t have made it if other people had not – at key points, in different contexts – cut us some slack.
+
+[![4650945716_1c79c1761b_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/07/4650945716_1c79c1761b_z1.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/07/4650945716_1c79c1761b_z1.jpg)
+
+It is in our relations with colleagues, friends and family members that charity becomes particularly necessary. Here we don’t generally require the charity of money, cloaks and free meals. What we are short of is **_charity of interpretation_** : that is, a charitable perspective on the weaknesses, eccentricities, anxieties and follies that we are unable to explain or win sympathy for, and that we typically merely act out, with immaturity and hurt.
+
+A charitable soul does extra work of interpretation. They come forward with explanations of their friends: they understand enough about their past to have a picture of where their impatience or over-ambition, rashness or meekness came from. They hold in mind what happened with their parents and with the move to another country and with the brother who died too young. They lend a picture of who the person in the ‘begging’ position is (it isn’t just a lack of money that turns us into ‘beggars’, it can be any kind of vulnerability that places us, metaphorically, on our knees), a picture that is sufficiently generous and complex as to make them more than just the ‘fool’ or ‘weirdo’, the ‘failure’ or ‘loser’ that &nbsp;they might otherwise so easily have been dismissed as.
+
+[![26563701341_61d5e65ea3_h](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/07/26563701341_61d5e65ea3_h.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/07/26563701341_61d5e65ea3_h.jpg)
+
+The genuinely charitable person gives generously from a sense that they too stand in need of charity. Not right now, not over this, but in some other area. They know that self-righteousness is merely the result of a faulty memory, an inability to hold in mind – at moments when one is truly totally in the right – how often one has been deeply and definitively in the wrong.
+
+Charity remembers how there might still be goodness amidst a lot of evil. Charity keeps in mind that if someone is tired and stressed, they are liable to behave appallingly. Charity is aware that when someone shouts an insult they are not usually revealing the secret truth about their feelings. They are trying to wound the other because they feel they have been hurt – usually by someone else, whom they don’t have the authority to injure back.
+
+[![2774722701_bacf2816d0_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/07/2774722701_bacf2816d0_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/07/2774722701_bacf2816d0_z.jpg)
+
+Charity is interested in mitigating circumstances; in bits of the truth that can cast a less catastrophic light on follies.
+
+In financial matters, charity tends always to flow in one direction. The philanthropist may be very generous, but usually they stay rich; they are habitually the giver rather than the recipient. But in life as a whole, and especially in relationships, charity is unlikely ever to end up being one-sided: who is weak and who is powerful changes rapidly and frequently. You are likely to be, as it were, a ‘patron’ in one area and a ‘beggar’ in another. So we must be kind not only because we are touched by the suffering of others but because we properly understand that we too will soon be in urgent need of an equally vital dose of charity in another part of life.
+
+To help us with our charitable interpretations, it can help to consider a theory known as The Weakness of Strength. The failings of friends, colleagues and partners can be deeply galling. We got close to them because of their skills and merits – but after a while it can be the disappointing sides of their personalities that dominate our view of them.
+
+[![2893104485_3ec4c2ea9e_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/07/2893104485_3ec4c2ea9e_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/07/2893104485_3ec4c2ea9e_z.jpg)
+
+We look upon their faults and wonder again and again why they are the way they are. Why so slow? Why so unreliable? How can they be so bad at explaining things or telling an anecdote! Why can’t they face bad news straight on? Even worse, we feel they could change – if only they really wanted to, if only they weren’t so mean…
+
+The Weakness of Strength Theory dictates that we should always strive to see people’s weaknesses as the inevitable downside of certain merits that drew us to them, and from which we will benefit at other points (even if none of these benefits are apparent right now). What we’re seeing are not their faults, pure and simple, but rather the shadow side of things that are genuinely good about them. We’re picking up on weaknesses that derive from strengths. If we were to write down a list of strengths and then a list of weaknesses, we’d find that almost everything on the positive side could be connected to something on the negative side.
+
+[![HenryJamesPhotograph](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/07/HenryJamesPhotograph.png)](http://www.thebookoflife.org/wp-content/uploads/2016/07/HenryJamesPhotograph.png)
+
+##### Henry James in 1890
+
+In the 1870s, when he was living in Paris, the American novelist Henry James became a good friend of the celebrated Russian novelist Ivan Turgenev, who was also living in the city at that time. Henry James was particularly taken by the unhurried, tranquil style of the Russian writer’s storytelling. He obviously took a long time over every sentence, weighing different options, changing, polishing, until – at last – everything was perfect. It was an ambitious, inspiring approach to writing.
+
+But in personal and social life, these same virtues could make Turgenev a maddening companion. He’d accept an invitation to lunch; then – the day before – send a note explaining that he would not be able to attend; then another saying how much he looked forward to the occasion. Then he would turn up – two hours late. Arranging anything with him was a nightmare. Yet his social waywardness was really just the same thing that made him so attractive as a writer. It was the same unwillingness to hurry; the same desire to keep the options open until the last moment. This produced marvellous books – **_and_** dinner party chaos. In reflecting on Turgenev’s character, Henry James reflected that his Russian friend was exhibiting the ‘weakness of his strength.’
+
+[![TurgevevI-foto](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/07/TurgevevI-foto.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/07/TurgevevI-foto.jpg)
+
+##### Turgenev
+
+The theory goes like this: every strength that an individual has necessarily brings with it a weakness of which it is an inherent part. It is impossible to have strengths without weaknesses.&nbsp;_Every virtue has an associated weakness._ Not all the virtues can belong together in a single person.
+
+This is a theory that can help calm us down at moments of particular crisis, because it changes the way we see the defects, failings and weakness of others. Our minds tend to hive off the strengths and see these as essential, while deeming the weaknesses as a freakish add-on, but in truth, the weaknesses are part and parcel of the strengths.
+
+[![4704369007_c48ea67869_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/07/4704369007_c48ea67869_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/07/4704369007_c48ea67869_z.jpg)
+
+The theory usefully undermines the properly unhelpful idea that – if only we looked &nbsp;a bit harder – we would find someone who was always perfect to be around. If strengths are invariably connected to failings, there won’t be anyone who is remotely flawless. We may well find people with different strengths, but they will also have a new litany of weaknesses. It’s always calming to take a moment to remind ourselves that perfect people simply don’t exist.
+
+\*\*\*
+
+Our societies are very interested in winners but don’t really know what to do about losers – of which there are always, by definition, far more.
+
+For a long time, around success and failure, the rhetoric tends to be very upbeat. We hear about resilience, bouncing back, never surrendering and giving it another go. But there’s only so long this kind of talk can go on. At some point, the conclusion becomes inevitable: things won’t work out. The political career isn’t going to have a come-back. There’ll be no way of getting finance for the film. The novel won’t be accepted by the thirty-second publisher. The criminal charges are forever going to taint one’s reputation. One’s stuffed up big time.
+
+[![Samuel_Beckett,_Pic,_1 (1)](http://i2.wp.com/www.thebookoflife.org/wp-content/uploads/2015/03/Samuel_Beckett_Pic_1-1.jpg?resize=635%2C556)](http://i1.wp.com/www.thebookoflife.org/wp-content/uploads/2015/03/Samuel_Beckett_Pic_1-1.jpg)
+
+Where does responsibility for success and failure lie? Nowadays, squarely with the individual concerned. That’s why failure isn’t just hard (as it has always been), it is a catastrophe. There is no metaphysical consolation, no possibility of appealing to an idea of ‘bad luck,’ no one to blame but oneself. No wonder suicide rates climb exponentially once societies become modern and start to hold people profoundly responsible for their biographies. Meritocracies turn failure from a misfortune to an unbudgeable existential verdict on the state of one’s soul.
+
+But not all societies and eras have seen success and failure in such a stark light. In Ancient Greece, another rather remarkable possibility – quite ignored by our own era – was envisaged: you could be good and yet fail. To keep this idea at the front of the collective imagination, the Ancient Greeks developed a particular art form: tragic drama. They put on huge festivals, at which all the citizens were expected to attend, to act out stories of appalling, often grisly, failure: people were seen to break a minor law, or make a hasty decision or sleep with the wrong person and the result was ignominy and death. Yet what happened was shown to be to a large extent in the hands of what the Greeks called ‘fate’ or ‘the Gods’. It was the Greeks’ poetic way of saying that things often work out in random ways, according to dynamics that simply don’t reflect the merits of the individuals concerned.
+
+[![379675955_bfc2e1b0b9_b](http://i0.wp.com/www.thebookoflife.org/wp-content/uploads/2015/03/379675955_bfc2e1b0b9_b.jpg?resize=635%2C427)](http://i0.wp.com/www.thebookoflife.org/wp-content/uploads/2015/03/379675955_bfc2e1b0b9_b.jpg)
+
+In _The Poetics_, the philosopher Aristotle defined the key ingredients of tragedy. The hero of the tragedy should be a decent person: ‘better than average’, often high-born but prone to making small mistakes, as we all do. At the start, it may not be obvious that it is an error they are making. But by an unfortunate chain of events, for which they are not wholly to blame, this small mistake leads to a catastrophe.
+
+Tragedy is the sympathetic, morally-complex account of how good people can end up in disastrous situations. It is the very opposite of today’s tabloid newspaper or social mediasphere, where the mob rushes to make judgements on those who have slipped up. Aristotle thought it extremely important that people see tragic works on a regular basis to counter their otherwise strong inclinations to judge and moralise. A good tragedy should, thought Aristotle, inspire both pity and fear: pity for the tragic hero based on an understanding of how easy it is to make the slip that leads to disaster; and fear for oneself as one realises how open our lives are to careering out of control. All of us could quite quickly come apart if ever events chose to test us.
+
+[![12340949704_d7cce0d87e_o](http://i0.wp.com/www.thebookoflife.org/wp-content/uploads/2015/03/12340949704_d7cce0d87e_o.jpg?resize=635%2C611)](http://i2.wp.com/www.thebookoflife.org/wp-content/uploads/2015/03/12340949704_d7cce0d87e_o.jpg)
+
+Tragedy is meant to be a corrective to easy judgement, it exists to counter our natural instincts to admire only the successful, to spurn all those who fail, &nbsp;and to dismiss unfortunates as losers.
+
+We’re currently very uncomfortable around the idea of a good person not succeeding. We’d rather say that they weren’t good at all than embrace a far more disturbing and less well-publicised thought: that – in fact – the world is very unfair. But without the idea of tragedy, we make existence for everyone far crueller and far more judgemental than it really need be. It’s time to look back in time to recover an extremely important idea.
+
+\*\*\*
+
+**&nbsp;**
+
+It can be so hard to forgive because – so often – we simply are in the right and the scale of the folly, thoughtlessness and meanness of others seems utterly beyond our own measure. But there are two inviolable ideas which should nevertheless, in the face of the grossest behaviour, be kept in mind to increase our chances of cutting others a little slack.
+
+**&nbsp;**
+
+Firstly: we must remember how the other person got there, to this place of idiocy and cruelty. Every irritating fault in another person has a long history behind it. They have become like this because of flaws in their development, which they did not choose for themselves. They were shaped by troubles which we cannot see but which we can know exist. The arrogant person was trapped (at some key point in their personal evolution) in an environment where being modest and reasonable seemed to guarantee they’d be trampled on. The hyper-critical individual has lived too much, as their personality was growing, around people who couldn’t take a gentle hint – so they came to rely on blunt assertions. The frustratingly timid, mousy person was (at some stage) terrified; the show-off learned their irritating manner around people who were hard to please. Behind every failing – behind everything that’s wrong and infuriating about those we meet – is a decisive trauma encountered before someone could cope with it properly. They are maddening but they got to be this way without meaning to. To forgive is to understand the origins of evil and and cruelty.
+
+**&nbsp;**
+
+Secondly, and very strangely, there are difficult things about you too. Of course, not in this area. Not in any area remotely connected to the sort of lapses that destroy your faith in humanity. But in some areas, quiet areas that you forget about as soon as you’ve travelled through them, you too are a deeply imperfect and questionable individual. Gently, you have – in your own way – betrayed. Nicely, you have been a coward. Modestly, you have forgotten your privileges. Unthinkingly, you have added salt to the wounds of others. We don’t need to know anything about you to know this as a certainty. We must forgive because – not right now, not over this, but one day, over something – we need to be forgiven.
+
+**&nbsp;**
+
+We would – in the past – regularly have looked up to the heavens for this forgiveness. We do that less and less. But that doesn’t attenuate the need for some moments when we limber up to utter that most implausible word ‘sorry’ – or indeed stretch our ethical imagination in order to pronounce those even more arduous and unnatural worlds, ‘I forgive you.’
+
+\*\*\*
+
+Traditionally Christianity identified ‘seven deadly sins’: failings of character that were to be particularly condemned by the Church and avoided by all righteous people. They were
+
+– Pride (being snobbish and boastful)
+
+– Envy
+
+– Wrath (getting very angry)
+
+– Gluttony (eating too much)
+
+– Lust (wanting to sleep around)
+
+– Sloth (being lazy)
+
+and finally
+
+– Greed.
+
+Christianity took these to be severe faults of the soul that marked out a person as fit to be vigorously criticised and scolded. God himself would, on the Day of Judgement, be remorseless with these sinners and send them to spend eternity in the darker, more tortured bits of Purgatory.
+
+![](https://s-media-cache-ak0.pinimg.com/736x/b2/48/75/b24875e60fac0b184f118bf9f262dd4e.jpg)
+
+We may not use precisely such traditional, theological words today, and we may not imagine the Creator of the Universe as someone who organises chastisement for people beyond their grave. But, in the spirit in which we interpret failings of character and respond to people’s less fortunate sides in the online and real worlds, we tend to retain a similarly damning and ungenerous set of attitudes.
+
+We may feel that, through our harshness, we are helping humanity to improve, but if this is really our goal, then it pays to move beyond mere condemnation in an attempt to understand what truly drives people in their more regrettable moments.
+
+We stand to stumble on a surprising truth: behaviour we call sinful or bad is never simply that. It represents an unfortunate first response to difficulty and distress that could, if it were properly understood, guided and forgiven, be redirected towards nobler ends. We aren’t evil, so much as in a lot of pain in a series of areas.
+
+**![](http://www.wga.hu/art/g/giotto/padova/7vicevir/virtu_1.jpg)**
+
+Let’s consider each of the seven sins in turn:
+
+**Pride** – It can appear as if we’ve ended up boasting and grandstanding because we’re so pleased with ourselves. Far from it. Boasting is only ever a response to a feeling of invisibility. We so badly need to thrust forward an idea of our own importance because (behind the scenes) our very right to exist seems so much in question. We see it as almost inevitable that others will think ill of us – unless we urgently and dramatically assert our greatness.&nbsp;That is why, of all people, the proud don’t need to be told they are terrible. This is precisely what they secretly think they are already. They need encouragement to feel a more genuine pride in their own merits – so as to be spared the manic impulse constantly to call them to the attention of others.
+
+**Envy** – Envy is a graceless way of confronting an idea that is, in other contexts, fundamental to decent ambition as well as modesty of character: the notion that we are incomplete, imperfect and in need of improvement. Envy grows from the legitimate insight that others have something to teach us – mixed together with a degree of inaccuracy and panic about what this might actually be. Envy should, ideally, be our teacher. We should note when it strikes us, sift through its confused signals and use them to work out our direction and purpose. The solution isn’t to be made to feel guilty for our envious attacks. It is to be helped to understand what is truly missing from our lives.
+
+**Wrath** – The mean angry things we say when we’re upset are almost never truly meant. They are the result of panic and anxiety. We call someone a stupid fool because we are, that moment, terrified. We shout because we feel we’re fighting for our lives. Therefore, instead of being repeatedly&nbsp;told how appalling it is to be angry (we of course know this quite well already), what we need is someone to demonstrate a proper understanding of our underlying fears. ‘You must be scared’ is invariably&nbsp;the best response to an angry outburst. We need someone to be able to reassure us for our fragility, not berate us for our roars.
+
+**Gluttony** – We eat too many chicken wings and toasted sandwiches not because we’re greedy, but because we are emotionally starving. We want love far more than we want calories; we’re just at a loss as to how to find it. So the solution isn’t to be told to eat less (as diet gurus and Christian theologians suggest); it is to be helped to discover new sources of kindness, security and emotional connection. Our appetite isn’t essentially bad – it simply hasn’t found its ideal target. Our excess weight is a symbol of a background emotional undernourishment.
+
+**Lust** – We want to keep jumping into bed with people, and on the train or street, imagine how strangers around us might look undressed, not out of degeneracy,&nbsp;but because we are lonely. Sex is the exemplar of connection and acceptance. The so-called ‘bad’ and erotic things we crave feel so exciting because we read them as&nbsp;proofs of someone else’s open-ended affection, which is in such short supply in ordinary life. Ideally we’d not be less lustful, we’d be clearer about what we genuinely need from sex: which is acceptance of our messy, complex and all-too-human selves.
+
+**Sloth** – Laziness is really fear. We can’t bear to get down to our work, because if we were to apply ourselves, we risk&nbsp;terrifying humiliation. We might not succeed as well as we’d like, we might find a task too hard, we may realise we’re not yet equipped to undertake it or be mocked by the world. These aren’t failings so much as hugely understandable anxieties. Behind our inaction is anticipated disaster; a catastrophizing mind. We will begin at last when the fear of doing nothing at all trumps the crippling fear of doing something badly.
+
+**Greed –** The powerful urge to take more than our fair share is really a reaction to a feeling of deprivation; we’ve felt so neglected and vulnerable, we now need the whole cake. Our fear is so entrenched, we’re trying to keep it at bay by grabbing as much as we can, as quickly as possible. To others, we may make look already advantaged and privileged; inside we just feel desperate.
+
+**![](https://streetsofsalem.files.wordpress.com/2013/03/envy-bosch-detail.jpg)**
+
+In short, our ‘sins’ are not signs of&nbsp;being bad people. They are the shape our unmet needs take when we haven’t found (or been effectively helped to find) a better way of addressing them. We don’t need to be berated or threatened with hell. We need an open affection that welcomes us as we are, a forgiveness that doesn’t involve criticism and a tenderness that delicately, without humiliation, locates our true vulnerabilities and encourages our authentic appetite for reform.

@@ -1,0 +1,25 @@
+[Chapter 4.Sociability](https://www.theschooloflife.com/thebookoflife/category/sociability/): [Social Virtues](https://www.theschooloflife.com/thebookoflife/category/sociability/social-virtues/): [06. How To Make People Feel Good about Themselves](https://www.theschooloflife.com/thebookoflife/how-to-make-people-feel-good-about-themselves/)
+
+* * *
+
+# How To Make People Feel Good about Themselves
+
+We tend to operate with the view that the best way to please people is not to bother them too much. We keep many of our dilemmas and confusions away from those we like, for fear of irritating or inconveniencing them and so spoiling the relationship. We may well have a voice echoing in our minds from childhood: ‘Don’t bother your mother, can’t you see she’s exhausted from her trip? Don’t bother your father, he works hard for us and he’s busy right now…’ There are powerful reasons why we equate making others happy with burdening them as little as possible.
+
+But our analysis is missing a key detail of human psychology: we like to be bothered. Not at all time and over all things, nor at the expense of our own critical needs, but fundamentally, we have a powerful urge to feel helpful. We need to be needed. All of us suffer from a fear of superfluity, which the requirements of others has a critical capacity to appease. However nice presents may be for our friends, the real gift we can offer them is an insight into our problems.
+
+We can pick this theme up in the realm of work. The dominant societal story is that we work strictly for ourselves: for our status and our financial benefit. But in reality, more puzzlingly but far more beautifully, what really makes our work feel exciting and meaningful is the power it gives us to help other people. Work is at its most gratifying when it affords us a feeling that we have, over the course of the day, managed to appease the suffering or increase the pleasure of another person. There are so many stories of being exhausted by the requests of others; too few of the delight we experience when we turn around someone else’s distress, boredom or craving. We can’t ultimately feel our valuable sides until we are called upon to exercise them: we don’t have a sense of our strength until someone needs us to lift something; we can’t feel intelligent until someone asks us to solve an issue; we can’t feel wise until we’ve been brought in to adjudicate a dispute. We rely on the needs of others to remind us of what we’re capable.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/10/9546216061_5e249302d9_z.jpg)
+
+©Flickr/Didriks
+
+What holds true in professional life applies as much to personal experience. The best way to charm and break the ice with a new person we like the look of in a public place isn’t to try to say something witty or soothing. We should strive to bring them a question. We should ask them whether we’re in the right queue; whether they know when the post office opens – or if they have any idea how long a chicken this size might need in an oven.
+
+With closer friends too, we should dare to reveal our bemusements. We should ask them if they could possibly spare a moment, then solicit their views on what we might do about our angry teenage child, how we should cope with a sexless relationship or what they’d advise us about a colleague who is prone to panic. Our questions won’t be a burden, they will show that we are ready to make ourselves vulnerable in their eyes – and therefore that we trust and think them wise.
+
+This isn’t just a cynical strategy for ingratiating ourselves; it isn’t Machiavellian or sly. We genuinely all need help. We aren’t pretending to have problems and making a few up to flatter. We are suffering inside, but simply generally don’t dare to reveal the truth for fear of driving people away. And yet we are staying guarded out of an ideal of self-sufficiency that isn’t either true to our needs or constructive for the well being and esteem of others.
+
+We should risk doing what we at heart have always longed to do: to reveal some of the fear, sadness and angst we genuinely feel to those we care about. We will be helped in our pain, we will remind others of their capacities – and, if we are fortunate, we’ll set a precedent that means that others will one day bring a few of their problems to us in turn.
+
+[![](https://img.youtube.com/vi/p8pzhYC7prA/0.jpg)](https://www.youtube.com/embed/p8pzhYC7prA '')

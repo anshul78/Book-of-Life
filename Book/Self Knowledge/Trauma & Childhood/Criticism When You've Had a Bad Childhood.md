@@ -1,0 +1,29 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Trauma & Childhood](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/trauma-childhood/): [175. Criticism When You've Had a Bad Childhood](https://www.theschooloflife.com/thebookoflife/criticism-when-youve-had-a-bad-childhood/)
+
+* * *
+
+# Criticism When You’ve Had a Bad Childhood
+
+Criticism is never easy. To learn that others judge us to be foolish, perverse, ugly or unpleasant is one of the most challenging aspects of any life. However, the impact of criticism is hugely variable – and depends ultimately on a rather unexpected detail: what sort of childhood we have had. The clue to whether criticism will be experienced as merely unpleasant or wholly catastrophic lies in what happened to us many decades ago in the hands of our earliest caregivers.
+
+![](http://www.tate.org.uk/sites/default/files/styles/width-480/public/electricprisms1913_0.jpg)
+
+What is meant by a ‘bad childhood’ is here a matter, rather simply, of love. An infant arrives in the world with a very limited capacity to endure their own being. It is the tolerance, enthusiasm and forgiveness of another person that gradually acclimatises us to existence. Our caregivers’ characteristic way of looking at us becomes the way we consider ourselves. It is by being loved by another that we acquire the art of looking sympathetically on our cracked and troublesome beings. It is simply not in our remit to believe in ourselves on our own.
+
+We are utterly reliant on an inner sense of having been valued inordinately by another person at the start as a protection against the subsequent neglect of the world. We don’t need to be loved by many, one will do, and twelve years might be enough, sixteen ideally, but without it the eternal admiration of millions won’t ever be able to convince us of our goodness. And with such a love, the scorn of millions won’t ever need to be fatal.
+
+Bad childhoods have an unfortunate tendency to drive us to seek out situations in which there is a theoretical possibility of receiving outsized approval – which also means, along the way, a high risk of encountering outsized disapproval. The emotionally deprived return, almost manically to the question, never really settled of: ‘Do I deserve to exist?’ And this is why they typically put unusual effort into attempts to be famous and visibly successful. But of course the world at large will never give the emotionally nervous the unqualified confirmation they seek; there will always be dissenters and critics, people too bashed about by their own past to be able to be kind to others, and it is to these voices that those with bad childhoods will be attuned, however enthusiastic the crowd might be. We can observe, along the way, that the chief marker of being a good parent is that one’s child simply has zero interest in being liked by large numbers of strangers.
+
+We do not all hear the same thing when we are criticised. Some of us, the lucky ones, hear just the surface message from the here and now: that our work fell short of expectations, that we must try harder with our assignments, that our book, film or song wasn’t excellent. This can be bearable. But the more wounded among us hear far more. Criticism takes them straight back to the primordial injury. An attack now becomes entwined with the attacks of the past and grows enormous and unmanageable in its intensity. The boss or unfriendly colleague becomes the parent who let us down. Everything is pulled into question. Not only was the work subpar, we are a wretch, an undeserved being, a piece of excrement, the worst person in the world, for that is how it felt, back then, in the fragile, defenceless infant mind.
+
+![](https://courtauld.ac.uk/wp-content/uploads/port/ol/P-1984-AH-286-png-11107.jpg)
+
+Knowing more about our tricky childhoods provides us with a vital line of defence against the effects of criticism. It means that we can be on our guard, when we are attacked, against raising the stakes unnecessarily. We can learn to separate out the verdict of today from the emotional verdict we are carrying around with us and always seeking to confirm with the use of current events.
+
+We can learn that, however sad the attacks we are facing, they are as nothing next to the real tragedy and the effective cause of our sadness: that things went wrong back then. And so we can direct our attention to where it really belongs; away from today’s critics and towards the unconvinced parent of yesteryear. We can forgive ourselves for being, in this area, through no fault of our own, fatefully sensitive – and, in essence, mentally unwell.
+
+We cannot stop the attacks of the world, but we can – through an exploration of our histories – change what they mean to us.
+
+We can also, importantly, get a second chance: we can go back and correct the original verdict of the world. We can take measures to expose ourselves to the gaze of friends or, more ideally, of a talented therapist who can hold up a more benign mirror and teach us a lesson that should have been gifted us from the start; that like every human, whatever our flaws, we deserve to be here.
+
+[![](https://img.youtube.com/vi/BTzW1ol5vkc/0.jpg)](https://www.youtube.com/embed/BTzW1ol5vkc '')

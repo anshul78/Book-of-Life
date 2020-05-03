@@ -1,0 +1,61 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Fear & Insecurity](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/fear-insecurity/): [152. The Problems of Being Very Beautiful](https://www.theschooloflife.com/thebookoflife/the-problems-of-being-very-beautiful/)
+
+* * *
+
+# The Problems of Being Very Beautiful
+
+Some of the pain of feeling unattractive stems from the stories we tell ourselves about those we deem beautiful. They, the blessed ones, surely do not suffer. They, the gods and goddesses of the body, must have been spared the troubles we wrestle with. In the palaces of the beautiful, invitations must not stop arriving, the attention must be constant, the options manifold, the partners on offer superlative, and the praise never-ending. However otherwise sceptical we may be, we can find it hard to conceive that anyone could be at once very beautiful and very unhappy.
+
+This accounts for the importance of a distinctive thought-experiment, in which we apply ourselves with uncommon intensity to picturing some of the complexities that might attend the possession of a compelling face and body. The exercise may not change our looks, but it may make us a lot more content about the ones we have.
+
+The list of pains confronting the beautiful might run like this:
+
+**The Risk of Having no Character&nbsp;**
+
+The danger of a very beautiful person having nothing to say is so high, because ever since they were fifteen, they have seldom had to begin a conversation. Others always had to crack the jokes and develop the ideas – just for the pleasure of seeing them smile. A silence with a beautiful person is invariably the less attractive one’s fault – and responsibility.
+
+It can be hard to develop a personality when others are permanently keen to project a ready-made one onto one’s features. The beautiful are fated to be told who they are far more than they are encouraged to unearth interesting identities for themselves. Regular evenings alone can do wonders for one’s capacity to determine where one might want to go in life and what one might really be seeking – but these moments are hard to come by when the crowd below the balcony never disperses.&nbsp;
+
+The beautiful are seldom single for longer than a few months; it’s just too difficult to keep turning people down. They don’t face rejection in any serious way either. Who would ever leave them? Yet it’s often through difficult romantic experiences that we grow to maturity. Rebuffs force us to develop compensating resources; we become stronger, more resilient; we learn compassion. It’s not the beautiful’s fault, but they can end up a little unimaginative and, in extremis, a touch spoilt
+
+<figure class="aligncenter"><img src="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/02/5aca95dbfc0c4939433c79d4371eb80a.jpg" alt="" class="wp-image-24084" srcset="https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/02/5aca95dbfc0c4939433c79d4371eb80a.jpg 600w, https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2020/02/5aca95dbfc0c4939433c79d4371eb80a-230x300.jpg 230w" sizes="(max-width: 600px) 100vw, 600px"></figure>
+
+**Lack of Trust&nbsp;**
+
+In bed, the beautiful will often wonder: ‘is it me or is it my body they want?’&nbsp;
+
+They want – of course – to be loved for the whole of who they are. But their exterior is so affecting, it is always at risk of overshadowing everything else; it cannot be ignored.
+
+They might want to be appreciated for their take on the French novel, their loyalty to their troubled sister, their views on the future of the left… But even when people say the right things, the fears that none of that matters won’t go away; they make too much sense.
+
+**Intimidation of the Plain**
+
+The very beautiful stand to discover that very interesting people who don’t look so nice are terrified of approaching them. It can be puzzling to find that one has this effect. The beautiful person may really want to get to know the quiet fascinating type in the corner but this plain being can’t imagine that they’d be of interest to a god or goddess and therefore emit a hostile defensive atmosphere that wards off any possibility of a friendly remark. In a different life, the plain and the pretty might often be friends, even lovers. Just not in this one.&nbsp;
+
+Even if it’s not quite what the beautiful want, the people it may in the end be easiest to pair up with are other beautiful types – and the ensuing relationships are often quite silent.
+
+**The Presumption of Stupidity**
+
+People don’t wait to find out. Their imaginations simply refuse to picture the very beautiful carefully unpicking a page of Plato or analysing the state of the Swedish economy. They like the idea of the beautiful being resolutely dim.&nbsp;
+
+Surely humans can’t be that attractive and understand nuclear physics. That would mean too much good fortune landing in one place. However many degrees one may have, when one is astonishing looking, the presumption of idiocy never quite departs.
+
+**Aggression**
+
+Fortune – people feel – has smiled on these beauties enough already. They surely don’t need anything further, like kindness or understanding.&nbsp;
+
+That’s why the beautiful may be on the receiving end of some remarkable cruelty. Their pains and sorrows are of no interest, their so-called ‘insecurities’ attract scorn, they are like the tears of an oligarch. Certain people may even feel they need actively to show these beauties that they are nothing special – though they never claimed to be.
+
+The beautiful become targets upon which disappointed others vent their frustrations with the unfairness of life in general. They seem fair game; it’s assumed that they are already far too blessed with riches to get hurt.&nbsp;
+
+**The Increased Sorrows of Aging**
+
+Their body is ideal. _For now_. But that’s why getting older terrifies the very beautiful in particular. Yesterday they found another wrinkle. Their left knee has started creaking when they climb the stairs. They will have so much more to lose when they finally become invisible. From being so high, the regret will be so much deeper.
+
+\*
+
+By building up our vision of the inner lives of the beautiful, we’re rehumanising a strangely maligned minority. And the more imaginatively we comprehend them, the less enviable (but also the more approachable) they may become.&nbsp;
+
+The very beautiful only seem to be set apart from us; in truth, a millimeter below their dazzling surface, they are as lonely, thoughtful, needy, generous – and banal – as the rest of us, only with a few added complexities. We do not – in the end – have quite so much to envy.
+
+[![](https://img.youtube.com/vi/VfImCA22DmA/0.jpg)](https://www.youtube.com/embed/VfImCA22DmA '')

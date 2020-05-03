@@ -1,0 +1,27 @@
+[Chapter 6.Leisure](https://www.theschooloflife.com/thebookoflife/category/leisure/): [Small Pleasures](https://www.theschooloflife.com/thebookoflife/category/leisure/small-pleasures/): [191. The Fish Shop](https://www.theschooloflife.com/thebookoflife/the-fish-shop/)
+
+* * *
+
+# The Fish Shop
+
+The fishmonger’s window display is alluring, yet one doesn’t normally go in. But when one does, one wonders why one doesn’t visit more often.
+
+Waiting to be served one is struck by the beauty and strangeness of the fish and sea creatures on offer on the beds of ice: the oyster that somehow generates its own home, rocky on the outside, suggestively smooth and polished within. For a moment one contemplates the destiny of the sole, one of whose eyes has to migrate round its head on the path to maturity and the monkfish whose huge, toothy mouth and puny body are repellent to look at but whose flesh is delicious when roasted and drizzled with olive oil.
+
+[![5114045656_9f1b3b32f4_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/5114045656_9f1b3b32f4_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/04/5114045656_9f1b3b32f4_z.jpg)
+
+They seem so alien. But – in a universe composed almost entirely of gas and rock circulating in the endless nothingness of space – &nbsp;we are their cousins, with whom we briefly cohabit the surface zones of Earth. In the recent history of the cosmos we shared common ancestors, whose progeny became diversely the octopus, the sea bream or evolved gradually into solicitors, psychotherapists and graphic designers.
+
+Imagine spending this thing called life embodied in a lobster, encountering the world through its tiny peppercorn eyes, which offer a field of vision much wider but less focused than ours. There would have been the momentous day one dug a burrow beneath a basalt rock in the soft mud of the sea floor in Fidden bay, off the Isle of Mull. Then there would have been the drama of shedding our exoskeleton. We would have had to master the laborious process of reproduction, when the male has to pierce the female’s stomach to deposit his spermatophores. Finally there was the catastrophic curiosity that two days ago tempted us into a lobster pot.
+
+[![8303686406_e1aa9887c7_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/8303686406_e1aa9887c7_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/04/8303686406_e1aa9887c7_z.jpg)
+
+The fish shop isn’t simply a place to pick up calamari rings or some cod steaks, it is also a place of re-enchantment. We suffer a fatally easy tendency to become jaded. Things that are familiar lose their power to entice the imagination. Then, looking into the eye of a mullet, or contemplating the internal architecture of a skate fin, one is reconnected with the elegant and bizarre inventiveness of nature. We’ve been too hasty, we’ve overlooked almost everything. The world is full of fascination, there is so much to be explored. And we have been led to this renewed appetite by the head of a fish.
+
+Each item has been gathered from the chambers of the sea, distant rivers, or prised from submerged rocks. The speckled trout were reared in a former gravel pit in Lincolnshire. The mackerel was caught by a trawler on the Dogger Bank and landed at Peterhead. The sea bass was hauled onto the cobbled pier at Crail and speeded in a refrigerated van down the M90 and the A1(M) with a brief halt in the HGV parking lot at Wetherby Service Station. &nbsp;
+
+[![IMG_6199](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/04/5401644963_d190846266_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/04/5401644963_d190846266_z.jpg)
+
+And here they all are cleansed, gutted, chilled, artfully arranged. Nature has been civilised and made attractive by ice, metal, glass, tiles, slabs of marble and by constant cold water and the sharpest knives. The fish shop hints at an ideal that we would like perhaps to pursue more broadly: the sense that trouble has been rinsed away, and the desirable good bit will be delivered into your life neatly wrapped in delicately glazed white paper.
+
+Visiting the fishmonger leads one to sketch little plans of moral reform: in another, slightly better, life, one would go there all the time. We’d become adept at preparing certain dishes. Being here, one makes fleeting, initial contact with a latent self who poaches salmon, tosses a lobster salad, drizzles olive oil and whose friends come round for Bouillabaisse. There is a potential future version of oneself – who starts to come to life in the fishmonger – who lives on light, nutritious fishy meals and whose brain is bathed in their sympathetic briney fluids. Life as a whole will remain radically imperfect, one knows, but if one took slightly more care around eating, even if lots of bits of one’s life were bad, if one could come in here and get some sole wrapped up by the man in the blue apron and go home, and take the art of living &nbsp;more seriously, then one would be closer to being the person one should always have been. The fish-shop pleasure originates in very small points of departure – the smell of the salt and water, the frigid air wafting from the beds of ice, the silvery skin of an Atlantic Salmon – and grows into a large idea: respect for civilisations that have more time for things that are simultaneously delightful and wholesome.

@@ -1,0 +1,59 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Mood](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/mood/): [30. On Being Out of Touch with One's Feelings](https://www.theschooloflife.com/thebookoflife/on-being-out-of-touch-with-ones-feelings/)
+
+* * *
+
+# On Being Out of Touch with One’s Feelings
+
+An enormous amount of trouble in the world – especially at work and in relationships – is caused by a peculiar phenomenon of our minds: a tendency to be, as we put it, _out of touch with our feelings_.
+
+When we first meet this idea, it sounds strange, and even a bit insulting. How could _we_ not know what _we_ are feeling?
+
+[![14978289003_32108b23b4_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/06/14978289003_32108b23b4_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/06/14978289003_32108b23b4_z.jpg)
+
+###### © Arani Banerjee/Flickr
+
+Of course, we look from the outside like unified beings: we carry one name and sit in a compact physical container. The distances between different parts of us aren’t so great. How then could we be so multiple as to have secrets from ourselves? But in reality, there are (at least) two distinct parts to mental life: a _feeling self_ and an _observer self._ Sometimes, the two are utterly aligned. Someone asks us what we feel like eating and the communication between the two selves is clear and immediate, we don’t even notice a lag; we simply answer salmon and avocado.
+
+At other points, it’s far trickier. We’re sitting on the sofa at home after a long day at work, and are under the impression that we feel quite calm. But suddenly an apparently minor remark from our partner arouses us to deep irritation. We stand up and start shouting about the unfairness of a host of issues we hadn’t, until just then, been aware we even felt strongly about – and soon we’ve got a crisis on our hands.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/06/7890955842_6680e891b9_z.jpg)
+
+###### © Petras Gagilas/Flickr
+
+Why is it so hard for the observing self to report accurately on feelings? Firstly, because we are afflicted by so many background ideas about the unacceptability of particular feelings. In order to know ourselves well, we rely on the level of self-awareness, courage and honesty circulating in the surrounding culture. We are hemmed in by what society is prepared to countenance as normal. Across childhood, we have instilled in us, so subtly we don’t even notice, strong notions about what are and are not permissible things to experience. Traditionally, this might have meant that boys were not allowed to acknowledge that they felt like crying or that girls weren’t allowed to entertain certain kinds of ambitions for fear of being un-lady-like. We might not have such obviously naive prohibitions today but other equally powerful ones have taken their place. We may have picked up covert but forceful indications that no decent person (no-one loved by their&nbsp;parents at least) could be enthusiastic about making money or unable to cope at work, tempted by an affair or still upset over a break up three years ago. Furthermore, despite the apparently sexually liberated spirit of the times, the lion’s share of our sexual impulses remains impossible to avow. There is still a great deal we are not meant to feel in order to fit that most desirable of categories: a ‘good boy’ or ‘girl’.
+
+When difficult feelings do threaten to emerge, the observing self typically takes fright and looks away. Rather than produce an honest account of feelings, it may go numb or try to file a report that is more acceptable than it is true: ‘I’m feeling very tired’, rather than ‘I’m feeling you’ve let me down’; ‘I’m depressed’, rather than ‘I’m furious’; ‘That’s absolutely disgusting’ rather than ‘I’m strangely turned on’.
+
+[![5785438136_842f672a4d_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/06/5785438136_842f672a4d_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/06/5785438136_842f672a4d_z.jpg)
+
+###### ©&nbsp;Chris JL/Flickr
+
+Our problems are compounded by the way that many powerful feelings – especially of upset, envy and frustration – can get kicked into action by apparently very trivial and seemingly non-sensical things in the outside world. It can be hard to admit to ourselves that something huge and impactful may have been unleashed in our inner lives when there appears to be no prestigious external cause to point to. For example, we might be thrown into paroxysms of envy we find no room to confess to when a friend mentions that a mutual acquaintance has been promoted. Or our partner may look away three and a half seconds before we’ve ended an explanation about how a tricky meeting at work went and we experience seething indignation and wounded pride that we haven’t got our lover’s full attention.
+
+We&nbsp;say nothing because to own up to many feelings of upset involves acknowledging a humiliating degree of fragility. Yet feelings that haven’t been reported don’t and can’t go away. They linger and spread their energy randomly to neighbouring issues. Envy comes out as spite. Anger over inattention comes out as a remark that the partner is looking rather fat at the moment – though of course by the time hurt has manifested itself as aggression, any chances of being comforted are over.
+
+[![4776937034_7a464ed173_b](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/06/4776937034_7a464ed173_b.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/06/4776937034_7a464ed173_b.jpg)
+
+###### © Flickr/Simon
+
+Feelings we haven’t got a handle on wreak havoc. They force themselves forward in troubling, furious and depressed ways. They buckle and strain the system. We develop pernicious ticks; a facial twitch, impotence, an incapacity to work, alcoholism, a porn compulsion. Most so called addictions are at heart symptoms of insistent difficult feelings that we haven’t found a way to address.
+
+How then might we come to be better observers and correspondents of our feelings? Reading may have rather a large role to play. In order to know how to spot the feelings that are flying across the hemisphere of consciousness, we rely on having a good inner manual rich with entries about possible phenomena. A major task of literature is to help us fill this inner manual. A great novelist can walk us through a range of elusive tricky sensations in his or her fictional characters, thereby making it easier to acknowledge these in ourselves. The writer is, ideally, someone uncommonly patient about the curious, less discussed, apparently weirder things that float around in the human head. An important work of literature is like a new entry in mankind’s dictionary of feelings. A great book can give us the eerie, beautiful sensation of knowing us better than we have hitherto known ourselves.
+
+[![6290259914_04a2048ac3_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/06/6290259914_04a2048ac3_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/06/6290259914_04a2048ac3_z.jpg)
+
+###### © Will Fisher/Flickr
+
+Another move is to ensure that we have allocated a lot of time to self-observation. It can look rather self-indulgent to ask for a few hours in the evening in which there is nothing more apparently demanding to do than to sit and stare out of the window or around the bedroom, with a pad and pen on one’s lap. These so-called idle moments are when the observing self can finally catch up with feelings that might have been too shy, ashamed, or harassed to emerge in the rest of the day. They are like church bells we can make out only in the evening, when the city traffic has died down. Failing to do this can – among other problems – ruin our chances of sleep. Insomnia is the feeling self’s revenge for all the thoughts that haven’t been properly catalogued in the day.
+
+It can help too to surround ourselves with people who will help us in our search to identify and catalogue our feelings correctly. They are the ones we call the good listeners. Part of coming to know how we feel is having an audience that can be receptive to the truth about us. In the company of open-minded people, we circulate more freely in our own minds. We remember thoughts that the censoriousness or boredom of other companions had blocked. We become more receptive to ourselves.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/06/15155797687_b58bc85e7e_z.jpg)
+
+###### © x1klima/Flickr
+
+Understanding the danger of a gap opening up between what we feel and what we’re aware of brings another major benefit. We start to see others as beset by the very same problem that we’ve begun to recognise we have to deal with. Quite often they’ll be saying things which are not in fact in line with their true feelings – mean things when they are feeling vulnerable perhaps, or arrogant things when they are feeling small – and we’ll identify that it is charitable to forgive them for not always managing to be reliable correspondents of their inner lives. It’s not really sinister to think this way of others, it’s a kindly move that gives us the energy to lend a second, more compassionate look at behaviour that might initially have appeared simply horribly off-putting.
+
+Feelings are frequently far from wonderful and often should not be followed. But we should accept that if we ignore, deny or overlook them entirely, the price will always be higher and worse: they will exercise a powerful malign subterranean influence across the whole of our lives. One of the too-often overlooked, but key arts of living is to learn to devote ourselves to correctly labelling and repatriating our own and others’ orphaned feelings.
+
+[![](https://img.youtube.com/vi/vRk7VFLH-aE/0.jpg)](https://www.youtube.com/embed/vRk7VFLH-aE '')

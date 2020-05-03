@@ -1,0 +1,22 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Emotional Skills](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/emotional-skills/): [76. Unprocessed Emotion](https://www.theschooloflife.com/thebookoflife/unprocessed-emotion/)
+
+* * *
+
+# Unprocessed Emotion
+
+It is a quirk of our minds that not every emotion we carry is fully acknowledged, understood or even truly _felt._
+
+There are feelings that exist in an ‘unprocessed’ form within us. A great many worries may, for example, remain disavowed and uninterpreted and manifest themselves as powerful directionless anxiety. Under their sway, we may feel a compulsive need to remain busy, fear spending any time on our own or cling to activities that ensure we don’t meet what scares us head on (these might include internet pornography, tracking the news or exercising compulsively). A similar kind of disavowal can go on around hurt. Someone may have abused our trust, made us doubt their kindness or violated our self-esteem but we are driven to flee a frank recognition of an appalling degree of exposure and vulnerability. The hurt is somewhere inside, but on the surface, we adopt a brittle good cheer (jolliness being sadness that doesn’t know itself), we numb ourselves chemically or else adopt a carefully non-specific tone of cynicism, which masks the specific wound that has been inflicted on us.
+
+We pay dearly for our failure to ‘process’ our feelings. Our minds grow unoriginal from a background apprehension as to their contents. We grow depressed about everything because we cannot be sad about something. We can no longer sleep, insomnia being the revenge of all the many thoughts we have omitted to process in the day.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/05/Paul_Klee_-_The_Beginnings_of_a_Smile_-_Google_Art_Project-714x1024.jpg)
+
+We need compassion for ourselves. We avoid processing emotions because what we feel is so contrary to our self-image, so threatening to our society’s ideas of normality and so at odds with who we would like to be. An atmosphere conducive to processing would be one in which the difficulties of being human were warmly recognised and charitably accepted. We fail to know ourselves not out of laziness or casual neglect; it simply hurts a lot.
+
+Processing emotions requires good friends, deft therapists and ritual moments like Philosophical Meditation, in which our normal defences can safely be put aside and unfamiliar material ring fenced for investigation.
+
+The outcome of processing our emotions is always an alleviation in our overall mood. But first we must pay for our self-awareness with a period of mourning in which we gradually acknowledge that, in some area or other, life is simply a lot sadder than we would want it to be.
+
+[![](https://img.youtube.com/vi/b197XOd9S7U/0.jpg)](https://www.youtube.com/embed/b197XOd9S7U '')
+.&nbsp;

@@ -1,0 +1,57 @@
+[Chapter 5.Calm](https://www.theschooloflife.com/thebookoflife/category/calm/): [Anxiety](https://www.theschooloflife.com/thebookoflife/category/calm/anxiety/): [19. The Normality of Anxiety Attacks](https://www.theschooloflife.com/thebookoflife/the-normality-of-anxiety-attacks/)
+
+* * *
+
+# The Normality of Anxiety Attacks
+
+You’re on a plane on the tarmac and it’s time to shut the doors. Suddenly, the insanity strikes you. You’ll be in a highly explosive sealed aluminium tube, breathing recycled kerosene-infused air, for the next six-and-a-half hours, with no way of getting off or out. The pilot may be exhausted or inwardly distressed. Air traffic control at any of the 40 waymarks along the journey may get momentarily distracted. You’ll be streaming 5 miles above the surface of the planet. No one else seems remotely sensitive to what any of this implies – they’re chatting and reading magazines – but for you, it’s the beginning of a kind of hell. You are on the verge of giving way to what we currently know as a panic attack.
+
+Or you’re walking up the narrow stairs to a party in a top floor apartment. It’s the birthday of a friend of a friend and you can hear the sound of voices and bass through the door. This is customarily described as fun – but you’re overwhelmingly conscious that you’ll hardly know anyone, that you’ll have to explain who you are and what you do to complete, busy and not necessarily overly sympathetic strangers and that if you want to be alone and unobserved for a while, the bathroom is liable to have a line of seven drunken people outside it. Once again, the descent into panic begins.
+
+[![2959530148_03374e4721_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/09/2959530148_03374e4721_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/09/2959530148_03374e4721_z.jpg)
+
+Or you wake up at three-thirty in the morning, the house is quiet. Outside an owl is hooting. The papers from work are by your bed. You’ll be at the conference in just a few hours. And promptly, the strangeness of it all, of being alive, of being you, of leading your sort of life, of no longer being the child you once were, of having one day to die, hits you. Your heart starts racing, your palms begin to sweat; you give way to panic.
+
+Panic attacks are commonly interpreted, by society at large but also by their confused, guilty or shamed sufferers, as an illness close to madness: the result of a mysterious chemically-based flaw in the brain that severs us from reality and normalcy. The suggested treatment is therefore medical, involving forceful attempts to dampen and anaesthetise parts of the misfiring mind.
+
+[![31534763_3a1d6cc4d3_o](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/09/31534763_3a1d6cc4d3_o.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/09/31534763_3a1d6cc4d3_o.jpg)
+
+Yet, such an interpretation – however kind in its intentions – depends on a prior, and not necessarily unassailable or wise assumption: that the normal response to the conditions of existence should and must be measured calm. However, when we look imaginatively at what is actually going on in our minds as anxiety mounts, we have to conclude that we are at such points acutely sensitive to what are a host of genuinely worrying things. Our anxiety may be unhelpful and socially problematic. But it is not, for that matter, necessarily unfounded or delusional – a thought that can spare us, if not panic itself, at least the secondary debilitating concern that we have lost our minds.
+
+The root cause of an anxiety attack is something both troublesome and intensely accurate and beautiful-in-origin: sensitivity. Our thoughts may be very disturbing but they are not unreasonable or devilish. In our hellish moments, we’re picking up on some fundamental aspects of the human condition that we otherwise brutishly keep at bay in a world that insists on cheerful blitheness as the default mode. Flying truly is a properly implausible activity filled with genuine dangers which it takes a resolutely leaden mind not to notice. The average party does require us to present a radically simplified, inauthentic self to a succession of indifferent strangers. It is deeply odd that human beings (who once roamed the savannas) should congregate in deafening cuboid chambers, sucking small quantities of fermented fruit juice from transparent containers, while inside their brains unknown and possibly dark thoughts may circulate. It might not take much for these shadowy characters to gang up and assault us.
+
+[![5021017016_f065865b22_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/09/5021017016_f065865b22_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/09/5021017016_f065865b22_z.jpg)
+
+The very same sensitivity that lies behind our attacks is also and rightly at the heart of some of the most prestigious moments of culture. The same sense of the oddity of being alive – the weirdness of people, the uncertain brevity of life, the overwhelming vastness of the world of which we occupy such a minute portion, the bizarre condition of being a self-conscious creature, an animal that can turn its mental gaze inwards and track each moment and hold the years in comparison – has repeatedly been shared by the world’s most acclaimed artists, philosophers and poets.
+
+In her great novel _Middlemarch_, the 19th-century English writer George Eliot, a deeply self-aware but also painfully self-conscious and anxious figure, reflected on what it would be like if we were truly sensitive, open to the world and felt the implications of everything (she was describing herself):
+
+“If we had a keen vision and feeling of all ordinary human life, it would be like hearing the grass grow and the squirrel’s heart beat, and we should die of that roar which lies on the other side of silence. As it is, the quickest of us walk about well wadded with stupidity.”
+
+It is, as Eliot recognises, both a privilege and a profound nightmare to be correctly attuned to reality, to hear that grass growing and that squirrel’s heart beating – and, also, by implication, to sense the judgement in the social encounter, the threat of the plane engine, the latent violence in the stranger’s stare, the enclosed nature of the meeting room. We might well, as she sometimes did, long for a little more ‘well-wadded stupidity’ to block it all out.
+
+Nevertheless, Eliot’s lines offer us a way to reinterpret our anxiety with greater dignity and benevolence. It is not a sign of degeneracy. It is not the result of not seeing reality, but of not being able to put it out of one’s mind. It is – though difficult – a kind of masterpiece of insight, like a vision of a saint, where rare things not often heard or seen come into consciousness. It emerges from a dose of clarity that is (currently) too powerful for us to cope with – but isn’t for that matter wrong. We panic because we rightly feel how thin the veneer of civilisation is, how mysterious other people are, how improbable it is that we exist at all, how everything that seems to matter now will eventually be annihilated, how random many of the turnings of our lives are, how prey we are to accident; how ultimately surprising it is that our thoughts and feeling as tethered to vulnerable, tender packets of flesh and bone. Anxiety is simply insight that we haven’t yet found a productive use for, that hasn’t yet made its way into art or philosophy. It’s a mad world that insists that the anxious are the ones who have lost their minds.
+
+[![9875453826_5d80df2a28_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/09/9875453826_5d80df2a28_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/09/9875453826_5d80df2a28_z.jpg)
+
+Of course we sometimes panic. The greater question is why we ever believed we might not – and came to associate normality with robustness. Our panic attacks aren’t drawing us further from reality, they are an insistent tug back to it. We are in such a hurry to see anxiety as sick, we fail to notice its phosphorescent health. There might be fewer such attacks if a degree of alarm were more generally factored in as a legitimate, constant response to the oddity of flying, going to parties or more widely, of being alive.
+
+[![5553414548_acf14599e5_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/09/5553414548_acf14599e5_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/09/5553414548_acf14599e5_z.jpg)
+
+We should never exacerbate our suffering by trying to push our disquiet aggressively away. Our lack of calm isn’t deplorable or a sign of weakness. It is simply the justifiable expression of our mysterious participation in a disordered, uncertain world.
+
+EXERCISE:
+
+_– What are some of the ‘odder’ things that bring on your anxiety?_
+
+_– In what way might this anxiety be entirely legitimate, looked at generously?_
+
+_– How do others respond when you try to share your anxiety?_
+
+_– Are there times when you are yourself unaware of how anxious you are?_
+
+_– How would you explain your anxiety to others calmly?_
+
+_– How, in your more unfortunate moments, do you give voice to your anxiety – in ways that don’t directly reveal that you are, in fact, anxious?_
+
+[![](https://img.youtube.com/vi/XFTXKqRujxk/0.jpg)](https://www.youtube.com/embed/XFTXKqRujxk '')

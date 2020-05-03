@@ -1,0 +1,29 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Psychotherapy](https://www.theschooloflife.com/thebookoflife/category/leisure/psychotherapy/): [109. Freud on Sublimation](https://www.theschooloflife.com/thebookoflife/freud-on-sublimation/)
+
+* * *
+
+# Freud on Sublimation
+
+Some of what we want deep down, in our primitive unconscious, threatens to be pretty dark. We may want to do no work, to steal, to injure others, to give way to despair or to have sex in very taboo and damaging ways. Yet most of us do very little of this. In fact, we often pour our energies into worthwhile projects and go out of our way to try to be good and helpful to those around us.
+
+That we’re able to do this fascinated the founder of psychoanalysis, Sigmund Freud – who gave a special word to this ability to put our primitive, egoistic, destructive energies to good use. He called the process _sublimation_ (in German _Sublimierung_). It was an idea that came to Freud while he was reading a well-known and charming travel book,&nbsp;_The Harz Journey_, by the 19th-century poet Heinrich Heine. In it Heine mentioned meeting a legendary German surgeon called Johann Friedrich Dieffenbach (1792-1847) who had been extremely selfish and sadistic as a boy, loving to cut off the tails off stray dogs for sheer twisted pleasure, but then as an adult, had matured into a profoundly selfless and brilliant surgeon, who had made some pioneering discoveries in the fields of reconstructive and plastic surgery.
+
+[![Johann_Friedrich_Dieffenbach](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/01/Johann_Friedrich_Dieffenbach.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/01/Johann_Friedrich_Dieffenbach.jpg)
+
+Freud felt that this evolution – from a person who had sadistically used a knife to wound to one who had nobly used it to mend – could not have been a mere coincidence; and proposed that what was at play belonged to a widespread pattern of behaviour whereby an early harmful or shocking drive gives rise to precisely its opposite, with the strength of the negative determining the power of the positive. Freud felt that this desire for compensation lay at the heart of many of the greatest achievements in the arts, politics and science. So a great police detective might – at an unconscious level – be defending themselves certain of their own illegal wishes and a politician committed to the plight of the poor might be sublimating an early experience of raging greed.
+
+In an essay on Leonardo da Vinci (_Eine Kindheitserinnerung des Leonardo da Vinci,_ 1910), Freud presented the claim that da Vinci had been an extremely sexually active child, who had then sublimated his sexuality into scientific research and art. As Freud put it, a forbidden desire for sexual pleasure (in this case, for his mother and then other boys) had turned in da Vinci into a hugely honourable and powerful ‘general urge to know’.
+
+**[![671px-Leonardo_da_Vinci_-_Virgin_and_Child_with_St_Anne_C2RMF_retouched](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/01/671px-Leonardo_da_Vinci_-_Virgin_and_Child_with_St_Anne_C2RMF_retouched.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/01/671px-Leonardo_da_Vinci_-_Virgin_and_Child_with_St_Anne_C2RMF_retouched.jpg)**
+
+The theory of sublimation is so hopeful because there is so much about what we all want that proves impossible. While there would be infinite reasons for anger and sterile nihilism, Freud notes our capacity to seek compensation and alternative fulfilments. Repeatedly in his work, he stressed a fact which (though it sounds absurdly obvious) we nevertheless usually fail to give enough weight to: that all of us started out as babies. In that state, we wanted only immediate pleasure and satisfaction. Our ‘drives’ in their initial forms were to things that couldn’t work out for us and that had to be painfully surrendered. We believed that if we didn’t get all we wanted at once, it would be a catastrophe and we would die (this kind of thinking explains the shrieking and wailing of infants in a tantrum). We thought the world revolved just around us – and couldn’t be generous to others. And yet we turned into healthy adults by managing to substitute our original narcissistic aims for more ethical and fruitful alternatives.
+
+Freud added soberly that we’re never quite done with sublimation. We continue to be frustrated in what we really want, most often around sex. Continually we encounter people we would love to sleep with but mustn’t, and yet rather than this energy going nowhere, we have an ability to use our deep frustration to power other things: creative endeavours, scientific breakthroughs, care for the vulnerable.
+
+[![7336851040_c88675f5f3_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2016/01/7336851040_c88675f5f3_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2016/01/7336851040_c88675f5f3_z.jpg)
+
+In Freud’s eyes, pervasive disappointment is inevitable; our longings systematically outrun reality. But sublimation remains the one hugely helpful option for us. Under its guidance, envy can turn into effort, wounded egoism into a capacity for gratitude and appreciation, sexual rejection into a film or novel. As Freud saw it, psychoanalysis is the field designed to help us discover how we can use our disappointments more productively, how we can grow up to be not embittered or shut down, but – paradoxically – energised by some of our greatest underlying griefs.
+
+A good life isn’t one where we get exactly what we want. It’s one where we find fulfilling second bests and where we have the inner freedom to redirect our disappointments with maximal imagination; a life where we have learnt – as Freud tried to show us – to _sublimate_ well.
+
+[![](https://img.youtube.com/vi/K96AeGqKVbs/0.jpg)](https://www.youtube.com/embed/K96AeGqKVbs '')

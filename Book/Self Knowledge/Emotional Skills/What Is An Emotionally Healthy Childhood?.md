@@ -1,0 +1,57 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Emotional Skills](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/emotional-skills/): [75. What Is An Emotionally Healthy Childhood?](https://www.theschooloflife.com/thebookoflife/what-is-an-emotionally-healthy-childhood/)
+
+* * *
+
+# What Is An Emotionally Healthy Childhood?
+
+We can sometimes be so modest about our power to know what might be good for others or ourselves, we forget it might be possible to hazard a few generalisations about what constitutes an emotionally healthy childhood. It can’t be pure idiosyncracy or good luck; there are distinct themes and goals to identify. With a map of optimal development in mind, we could more clearly appreciate where dislocation begins, what we have to be grateful for and what there is to regret. At a collective level, we would have more of a sense of what we need to achieve to generate a more emotionally-privileged – and therefore slightly saner – world.
+
+![](https://uploads3.wikiart.org/images/mary-cassatt/lydia-reading-on-a-divan-1881.jpg)
+
+In the course of an emotionally healthy childhood, we could expect some of the following to occur:
+
+– Someone will put themselves profoundly at our service. If as adults we have even a measure of mental health, it is almost certainly because, when we were helpless tiny infants, there was a person (to whom we essentially owe our lives) who pushed their needs to one side for a time in order to focus wholly on our own. They interpreted what we could not quite say, they guessed what might be ailing us, they settled and consoled us. They kept the chaos and noise at bay and cut the world up into manageable pieces for us.
+
+They did not, all the while, ask that we thank them, understand them or show them sympathy. They didn’t demand that we enquire how their days went or how they were sleeping at night (they weren’t much). They treated us like royalty, so that we would later on be able to submit to the rigours and humiliations of an ordinary life. This temporarily one-sided relationship guaranteed our eventual ability to form a two-sided kind.
+
+We may think of egoists as people who have grown sick from too much love. But the opposite is rather the case; an egoist is someone who has not yet had their fill. Self-centeredness has to have a clean run in the early years, if it isn’t to haunt and ruin the later ones. The so-called narcissist is simply a benighted soul who has not had a chance to be inordinately and unreasonably admired at the start.
+
+![](https://mydailyartdisplay.files.wordpress.com/2014/03/emmie-and-her-child-by-mary-cassatt-1889.jpg)
+
+– In an emotionally-healthy childhood, someone is on hand to put the best possible spin on our behaviour. We’re given the benefit of the doubt. We are assessed by what we might one day be, not by exactly what we are right now. Someone is kind.
+
+A harsh judge might, for example, say that we were ‘attention-seeking’. Our caregiver imagines that what we most stand in need of is a hug and some encouraging words. We might have acted rather meanly. Our caregiver adds that we must, in the background, have been feeling threatened. It looked as if we were negligent; the caregiver remembers that tiredness could have had a lot to do with it.
+
+Our carer constantly searches beneath the surface for a more sympathetic set of explanations. They help us to be on our own side, to like ourselves – and therefore eventually not to be too defensive about our own flaws, whose existence we grow strong enough to accept.
+
+– In a good childhood, the relationship with our caregiver is steady, consistent and long-term. We trust that they will be there tomorrow and the day after. They aren’t volatile or fragile. They are almost boringly predictable and happy to be taken for granted. As a result, we develop a trust in relationships that spreads throughout our life. We are able to believe that what has gone well once can go well again and let such an expectation govern our choice of adult partners. We aren’t mesmerised by people who are off-hand and unreliable; we don’t relish being punished. We can pick out candidates who are kind and nurturing – and don’t judge them as weak or deficient for being so.
+
+And if trouble strikes with our kindly partners, we don’t panic anxiously or avoidantly turn away. We can confidently set about trying to repair a love we know we deserve.
+
+![](http://www.galleryintell.com/wp-content/uploads/2014/10/Mary-Cassatt_Little-Girl-in-a-Blue-Armchair_cropped-e1412599562719.jpg)
+
+– In an emotionally healthy upbringing, we aren’t always required to be wholly good boys or girls. We are allowed to get furious and sometimes a bit revolting, at points to say ‘absolutely not’ and ‘because I feel like it’. The adults know their own flaws and do not expect a child to be fundamentally better than they are. We do not have to comply at every turn to be tolerated. We can let others see our shadow sides.
+
+This period of freedom prepares us one day to submit to the demands of society without having to rebel in self-defeating ways (rebels being, at heart, people who had to obey too much too early). We can knuckle down and tow the line when it’s in our long-term interest to do so. At the same time, we’re not overly cowed or indiscriminately obedient either. We find a sound middle point between slavish compliance on the one hand and self-destructive defiance on the other.
+
+– In the emotionally healthy home, our carer isn’t jealous of or competitive with us. They can allow themselves to be overtaken and superseded. They have had their moment in the limelight – or else are having it elsewhere beyond the family. They can be proud rather than rivalrous of the achievements of the (usually same-sex) child. It doesn’t all need to be about them.
+
+The good carer isn’t overly ambitious on the child’s behalf. They want them to do well, but for their own sake, in their own way. There is no particular script the offspring has to follow to be loved; the child isn’t required to support the carer’s frayed self-belief or burnish their image in the eyes of the world.
+
+– In the emotionally healthy upbringing, the child learns that things which break can be fixed. Plans can go awry, but new ones can be made. You can fall over and dust yourself off. The carer models for the child how to calm down, plough on and remain hopeful. A voice of resilience, originally external, becomes the way the child learns to speak to themselves. There are alternatives to panic; the ship will endure the storm and make it back to harbour.
+
+It is safe enough to go outside and explore. There aren’t dangers at every turn. We can make little forays at first, then come back for reassurance – only to return for another, longer journey of exploration. We can take risks.
+
+![](http://s.hswstatic.com/gif/paintings-by-mary-cassatt-4.jpg)
+
+– Importantly, plenty goes wrong in the emotionally healthy childhood. No one has staked their reputation on rendering the whole thing perfect. The carer does not see it as their role to remove every frustration. They intuit that a lot of good comes from having the right, manageable kind of friction – through which the child develops their own resources and individuality. In contact with bearable disappointment, the child is prompted to create their own internal world, in which they can dream, hatch fresh plans, self-soothe and build up their own resources.
+
+– The good carer isn’t, the child can see, either entirely good or wholly bad and so isn’t worthy of either idealisation or denigration. The child accepts the faults and virtues of the carer with melancholy maturity and gratitude – and thereby, by extension, becomes ready to accept that everyone they like will be a mixture of positive and negative. They won’t as adults fall deeply in love and then grow furious at the first moment of let-down. They have a realistic sense of what can be expected of life alongside another good enough human.
+
+Soberingly, despite all our advances in technology and material resources, we are not much more advanced in the art of delivering emotionally healthy childhoods than previous generations. The number of breakdowns, inauthentic lives and broken souls shows no marked signs of decline.
+
+We are failing to offer one another tolerable childhoods not because we are evil or indifferent but because we still have so far to go before we know how to do that most apparently simple yet infinitely complicated of things: love.
+
+.
+[![](https://img.youtube.com/vi/hnWJpAMpEvo/0.jpg)](https://www.youtube.com/embed/hnWJpAMpEvo '')
+.

@@ -1,0 +1,33 @@
+[Chapter 5.Calm](https://www.theschooloflife.com/thebookoflife/category/calm/): [Serenity](https://www.theschooloflife.com/thebookoflife/category/calm/serenity/): [32. Hypervigilance](https://www.theschooloflife.com/thebookoflife/hypervigilance/)
+
+* * *
+
+# Hypervigilance
+
+We would not have been able to survive so long if we were not able, at points, to get very worried indeed; if we didn’t possess a native genius for flooding our minds, at astonishing speed, with a cocktail of the most intense and panicky hormones our bodies can secrete.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/05/friendship_1963_1-1.jpg)
+
+And yet our capacity to keep surviving – or at least, and as importantly, to draw some enjoyment from what remains of life – depends on something quite contrary and even more challenging: an ability at points to unpanic ourselves, to wind down the alarm and clear the bloodstream of catastrophic foreboding: a mastery of the delicate art of unworrying.
+
+Many of us belong within a damnable category known as _hypervigilant_ – that is, we are not merely ordinarily careful and on the look out for our safety, as we should be, but outright panicked and alarmed pretty much all the time. We, in the unhappy hypervigilant camp, wake up terrified, spend the day in low-level dread and exist in near certainty that something appalling will fell us. At points, it’s so tiring, it’s normal that we may long for it all to be over – though that too is a dreadful prospect.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/05/aspiration-1960.jpg)
+
+The reasons why are like this are always somewhat the same. At some point, long before we could cope, we were frightened very badly indeed, so badly, we have never really recovered a faith in the solidity of anything. Something so challenging unfolded, it has jammed our minds in a state of alarm, even when the outward conditions have changed and when there is, in the objective sense (as kindly friends like to tell us), nothing in particular to be terrified of.
+
+Perhaps someone was very angry in the vicinity. Perhaps we were humiliated and made to feel unwanted and sinful. Maybe an older sibling tortured us. Perhaps we got sent away to an institution where we were appallingly isolated.
+
+In response, our level of panic hormones spiked – and never came down. Now our hypervigilance scrambles the part of the mind that regulates basic functions like sleep, digestion and touch – and so, a telling symptom is that it will almost certainly be difficult for us to rest, to manage our bowels or to be wholly at ease being touched by a fellow human, however much we long to be.
+
+There is no easy cure, but it is the start of something to have at least a name to put to the chaos. A degree of compassion can start up too. We can start to notice how much of life has been held together by fear. We have a concept that links why it’s so hard to go to parties, trust a lover, relax on holiday, go to the bathroom or sleep much past 4am.
+
+![Image result for agnes martin](https://uploads7.wikiart.org/images/agnes-martin/rain-study-1960.jpg)
+
+We might dare to tell a few others about our hypervigilance, handing them the word like a gift, a clue to our particular brokenness. Every time we find a kindly other to whom we can safely entrust news of our state, and who can smile tenderly in response, the panic goes down and the world becomes ever so slightly more bearable.
+
+But sometimes, when we are alone and the pressures mount once more, we may simply have to stand back and observe the hypervigilance do its thing: smash our plans and hopes, and unleash panic in a way that will knock us out for the day or the month. We should forgive ourselves. This is a disease like any other.
+
+What can be hardest, but most important, to believe is that being an adult means having options. We can push back against bullies, move away when it gets too much and tell others what we need from them. We don’t need to be hypervigilant because we have the option of true vigilance: if there were to be real dangers, we would now have the inner resources to greet and fight them in good time. We can worry when we need to, not just because we exist. In the meantime, we should allow ourselves – with this strange, slightly ugly word in hand – to feel sorry for our desperate impulses and strive, where we can, at 4.35am perhaps, to turn over and get a little more rest.
+
+[![](https://img.youtube.com/vi/oXfY-fTZn1s/0.jpg)](https://www.youtube.com/embed/oXfY-fTZn1s '')

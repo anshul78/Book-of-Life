@@ -1,0 +1,27 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Emotional Skills](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/emotional-skills/): [67. How to Catch Your Own Thoughts](https://www.theschooloflife.com/thebookoflife/how-to-catch-your-own-thoughts/)
+
+* * *
+
+# How to Catch Your Own Thoughts
+
+One of the truly frustrating features of our minds is that the more interesting or pertinent our thoughts happen to be, the more they have a tendency to escape our grasp. It seems as though there is a devilish correlation between how important and necessary a thought is to us and how likely it is to elude our command. The truly precious thoughts have something almost airborne about them so inclined are they to flit away from us at the slightest approach of our conscious selves.
+
+It is telling that many of the world’s finest thinkers have equated ideas with winged creatures. The ancient Greek philosopher Plato compared the mind to a large cage in which a number of birds – or ideas – will be circulating. He added that we can only catch these birds when they are sitting on a perch, but that they spend much of their time agitatedly racing from one end of the cage to the other, leaving only a blur of feathers to behold. Great ideas may pass through our minds and yet it is quite another matter – as Plato knew – to persuade them to land in them.
+
+For the Russian novelist Vladimir Nabokov, ideas are like butterflies – and the talented thinker, like a skilful lepidopterist (which Nabokov also happened to be), must learn to lie patiently in wait until they can be coaxed into flying into the net of awareness.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/10/nabNet.jpg)
+
+##### Nabokov: in wait for a thought
+
+For her part, Virginia Woolf expressed intense jealousy at Marcel Proust’s astonishing ability to catch so many butterfly thoughts and put into words the subtler concepts and tentative feelings that most of us register only in the outer airy zones of consciousness but cannot reach up to and turn into solid words: ‘Oh if I could write like that!’ she complained, ‘How has someone solidified what has always escaped—and made it too into this beautiful and perfectly enduring substance? The thing about Proust is his combination of the utmost sensibility with the utmost tenacity. He searches out these butterfly shades to the last grain. He is as tough as catgut & as evanescent as a butterfly’s bloom.’
+
+The core reason why we cannot hold onto our bigger, more essential ideas is because – even though they are frequently crucial to our development – they also tend to induce intense anxiety. Just as a particular thought-bird or butterfly is about to settle on its perch or fly into our net, an alarm goes off in our minds; we panic, and the creature veers off at the last moment. We abandon our new train of thought and return to the comfort of more tamed, domesticated and familiar concepts.
+
+![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2018/10/George_Charles_Beresford_-_Virginia_Woolf_in_1902_-_Restoration-1.jpg)
+
+We shouldn’t be surprised that thinking is so often interrupted by anxiety. New ideas threaten the mental status quo and are often sharply at odds with our current commitments and habits. An original thought might, for example, alienate us from what people around us think of as normal. Or it might herald a realisation that we’ve been pursuing the wrong approach to an important issue in our lives, perhaps for a long time. One part of us may want the butterfly thought to elude us in order that we won’t have to face up to regret or loss. If we took a given new idea seriously, we might have to abandon a relationship, leave a job, ditch a friend, apologise to someone, rethink our sexuality or break a habit.
+
+To encourage ourselves to know our minds, sitting on our own in silence with a blunt demand that we should ‘think harder’ may not be the best approach. In order to give new, threatening-but-important thoughts the best possible chance of developing, we may have to make use of certain mental tricks. The mind sometimes doesn’t think too well if thinking is all it is allowed to do; so it should be a given a routine task to distract it and help it lower its guard. For instance, a long journey alone in a train or on a plane may render our mind more willing to entertain certain intimately challenging ideas. We can find reassurance that we are at a distance from the normal context of our lives; if we make a decision we won’t have to act on it immediately. Something similar might happen if we go alone to a cafe – or take a walk in the countryside: here the rhythm of our steps is semi-automatic, we half notice what’s going on around us – but it’s not important or urgent; the more paranoid, rigid surface of the mind can be gently occupied so that our deeper and more awkward thoughts can slip in unnoticed.
+
+We should accept that our brains are strange, delicate instruments that evade our direct commands and are perplexingly talented at warding off the very ideas that might save us or help us flourish.

@@ -1,0 +1,55 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Trauma & Childhood](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/trauma-childhood/): [167. Sharing Our Early Wounds](https://www.theschooloflife.com/thebookoflife/sharing-our-early-wounds/)
+
+* * *
+
+# Sharing Our Early Wounds
+
+**Part One: What Happened?**
+
+Necessarily, there were things that went wrong in childhood: our parents were imperfect; there were difficult situations we were exposed to; there were problems we had to face that we couldn’t properly cope with at a young age. We’ve tried as best we can to adapt, but often these early wounds continue to exert a dark pressure into adult life. It can feel awkward to mention them because it can sound like we’re just making excuses – but actually we’re circling important facts about why we are the way we are. It can make a huge difference to our understanding of ourselves – and of our partner – to see where a problem is coming from.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/01/25244285485_5fd97d70fc_k-1024x783.jpg)
+
+© Flickr.simpleinsomnia
+
+The first stage is to lay out what was difficult for us. We’re trying to remember, in a detailed way, occasions on which we got very distressed or emotionally hurt. We’re not trying to see them through our current adult eyes, but to reconnect with how we felt about them at the time. Of course the list will be extremely personal – but here are some examples of the kind of things that might emerge:
+
+– There were horrifying moments when my father was harshly critical of what he called ‘being childish’: he’d say I was too old to have a teddy bear or too old to need to be tucked in bed by my mother; I felt there was this stern, cold, mean way of being that he was forcing on me and that is was going to make me very unhappy.
+
+– I got very upset – around maybe five – when my mother was going out to a party in the evening; she’d put on a special dress and I had this feeling she was abandoning me; there was this other world that was hostile to being cosy with me and she was saying, I don’t want you, I want excitement.
+
+– When I was growing up my mother didn’t have much confidence, she used to get quite intimidated, she never felt she was good enough (particularly around my father’s wider family). I felt such agonies on her behalf, when I could see she felt hurt or put down.
+
+– As a child my parents conveyed the impression that sex was something very bad and disgusting.
+
+– I remember standing alone in the playground at school, I didn’t know how to join in, I was so frightened of everyone, I tried to pretend I didn’t mind and that I wanted to be on my own.
+
+Each make your own list – as extensive and as detailed as possible – of occasions in your own early life when you feel you were wounded emotionally. At this stage, we’re simply acknowledging a difficult fact: we came into the relationship each carrying a difficult history of intimate emotional wounds, for which we deserve compassion and complex understanding.
+
+**Part Two: How Our Wounds Show Up Today**
+
+Our early wounds set up patterns of behaviour that persist far into our adult lives. Without our necessarily realising it, they impacted on our development: they slanted and distorted our character in various unfortunate styles.
+
+ ![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2019/01/18568181564_94eeb86843_z.jpg)
+
+© Flickr.Don Harper
+
+There are a few big ways early hurts tend to show up later on:
+
+_We are hypersensitive_: Our early experiences leave us acutely alert to certain things we perceived as threats, which to others might appear unalarming or unimportant. A mispronounced word, a hint of someone showing off, or a lid left of a butter dish might be enough to set us deeply on edge – not because we are monstrous but because, owing to our emotional history, such apparently minor matters have been powerfully connected to very real dangers.
+
+_We overcompensate_: We were let down in a key area and so maybe we got to extremes to make up for what we didn’t get enough of. For instance, if there was too much chaos we might become deeply invested in order and security; if we were bossed around too much, we might feel a huge need to assert our independence; if we always had to be very careful about money, we might get powerfully drawn to expensive luxuries.
+
+_We lack confidence_: We developed the idea that there were quite stringent conditions attached to being found worthy of love: being overtly successful, being very ‘good’ or never complaining or maybe we feel that we can be acceptable only so long as we don’t compete or so long as we fit in with the expectations of society or carefully disguise our interest in sex.
+
+Take it in turns to complete the following sentences:
+
+_One thing I think I might be hypersensitive about is ….._
+
+_And I think this stems from …._
+
+_I think I probably over compensate in this area because of &nbsp;…._
+
+_An area I lack confidence is …._
+
+_And I think this comes from .._.

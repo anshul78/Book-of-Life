@@ -1,0 +1,35 @@
+[Chapter 3.Self-Knowledge](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/): [Emotional Skills](https://www.theschooloflife.com/thebookoflife/category/self-knowledge/emotional-skills/): [80. Why It Should Be Glamorous to Change Your Mind](https://www.theschooloflife.com/thebookoflife/how-it-should-be-glamorous-to-change-your-mind/)
+
+* * *
+
+# Why It Should Be Glamorous to Change Your Mind
+
+Nowadays, there is a lot of prestige around sticking to your guns. If we change our views, we risk looking weak, indecisive and lacking in character. We’re collectively slightly in love with the idea of a person who stands firm and digs in their intellectual heels.
+
+But really it is very unlikely – given how complex the world is and how imperfect our fragile minds are – that all of our current convictions could really be right. We couldn’t say in advance which ones might turn out to be flawed. But we’d have to admit as a principle ahead of time that a portion of them logically simply have to be a bit awry.
+
+This suggests that we should learn to be hugely open to, and tolerant towards, the option of changing our minds. And not just in the abstract. It would of course always be nicer if it were the others, the deluded crazy ones, who had to do the changing. But in reality, it may also have to be us who sometimes have to give away some ground.
+
+In an ideal, wiser culture than our own, the price of changing our minds would not be very high. It wouldn’t be embarrassing or shameful. Indeed, it would rightly – and with great justice – be understood as an attractive, alluring quality and a definitive sign of intelligence. &nbsp;It would – in short – be glamorous. People would be admired not simply because they had lovely faces or bodies or stellar careers – &nbsp;but because they possessed a precious mental characteristic: the capacity to alter (and admit they had altered) their views, in the light of well marshalled evidence or a deftly presented line of reasoning. There might be an annual prize, covered on TV, with a reward close to a million dollars, for _The Most Stubbornly Convinced Person who, eventually, Opted to Change their Mind_.
+
+The really powerful benefit of changing our minds is that we end up able to see an issue from two sides, the one we used to know and the new one we have come to adopt. When we stop believing in something, we don’t usually think it was stupid or wicked to have felt its appeal. After all, we believed it, and remain decent enough people. So we can’t write-off those on the other side as idiots. They may be, in fact, in error in their convictions but they can’t be angrily classed as terrible people.
+
+Changing our minds delivers a calming, politically highly-consequential revelation: those on the other side of a debate might actually be nice. So disputes can’t be cast as stand-offs between bad people and good people (as we so often want to imagine). We can still disagree; we don’t need to hate.
+
+The world would be so much calmer and more tolerant if we were regularly and publicly shown examples of changes of mind:
+
+– Religious believers who used to be atheists – but remembered from the inside that secularism was never immoral or decadent.
+
+[![640px-Caravaggio_-_The_Incredulity_of_Saint_Thomas](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2017/02/640px-Caravaggio_-_The_Incredulity_of_Saint_Thomas.jpg)](http://www.thebookoflife.org/wp-content/uploads/2017/02/640px-Caravaggio_-_The_Incredulity_of_Saint_Thomas.jpg)
+
+– Religiously minded people who became atheists, but retained a warm sense of the appeal and beauty of faith.
+
+– Socialists who became conservatives but &nbsp;remembered why it once felt so important for the state to control industry.
+
+– Anti-capitalists who reviled competitive business, but still felt close to&nbsp;their former banker colleagues.
+
+– Pro-capitalists who recalled with real fondness the years they spent in the woods as eco-warriors.
+
+To be a good teacher means to be someone who retains a clear, compassionate sense of what it was like to be in a different place to where they are now. The best maths teacher is aware that they once struggled with a quadratic equation – and so don’t shout at someone with a contrary idea.
+
+We cannot properly convince anyone so long as we depict our opponents as straw figures. We will be unnecessarily weak advocates of our own ideas when we forget what it was like not to hold them. But once we grow into people who change their minds, and remember without shame why we were once on the other side of an argument, we’ll acquire the greatest gift for trying to communicate our ideas to the world: we’ll know what it was like to disagree with ourselves.

@@ -1,0 +1,224 @@
+[Chapter 6.Leisure](https://www.theschooloflife.com/thebookoflife/category/leisure/): [Culture](https://www.theschooloflife.com/thebookoflife/category/leisure/culture/): [33. The School of Life: What We Believe](https://www.theschooloflife.com/thebookoflife/tsol-what-we-believe/)
+
+* * *
+
+# The School of Life: What We Believe
+
+![](https://www.we-heart.com/upload-images/theschooloflifemelbourne2.jpg)
+
+The School of Life is a global organisation with a simple mission in mind: to increase the amount of Emotional Intelligence in circulation. We are seeking more emotionally intelligent kinds of:
+
+– Relationships
+
+– Work
+
+– Leisure
+
+– Culture
+
+To further our goals, we undertake a number of activities; we run&nbsp;conferences,&nbsp;shops and classrooms worldwide, consult to businesses, write and publish books, make films, sell products and operate digitally. Behind our activities lies a common way of looking at the world: a set of beliefs about the central challenges facing us and how our lives might be improved. Our thinking breaks down as follows:
+
+1. _ **Relationships** _
+
+We agree with the view (first put forward by Freud) that a fulfilled life is essentially made up of two ingredients: Love and Work. But we’re also aware that disappointment, frustration and a sense of failure are very often the norm in these arenas; which both saddens us and spurs our efforts.
+
+In our thinking about love, we’re much indebted to psychotherapy, which at its base tells us that our childhoods mark us deeply and frequently leave us a legacy of trouble around relating to others. We can have difficulties trusting or being close, achieving the right distance or staying resilient. We are prone to ‘transfer’ a lot of emotions from our past on to present day scenarios where they don’t quite belong, and may thereby respond unfairly to partners without quite understanding what is driving us. We may (in the invaluable vocabulary of the English psychoanalyst John Bowlby) be either ‘avoidant’ or ‘anxious’ in how we behave with others.
+
+![](http://ywcacassclay.areavoices.com/files/2012/10/161_MotherBabySMALL.jpg)
+
+The only hope of escape from these patterns is to become a little more aware of them. In our search to understand love, we are great believers in the benefits of self-knowledge and sustained introspection.
+
+Our current relationship difficulties also stem from a cultural source – which we call ‘Romanticism’. We’ve collectively given ourselves a deeply problematic Romantic picture of what good relationships should be like: we dream of profound intimacy, satisfying sex, an absence of secrets and only a modicum of conflict. This faith in love is touching, but it carries with it a tragic flaw: certain expectations can turn out to be an enemy of workable mature relationships.
+
+[![Chatterton](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/09/Chatterton.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/09/Chatterton.jpg)
+
+We are instead drawn to what we’ve called a Classical approach. The Classical view is in certain ways cautious about love. Classical people pay special attention to what can go wrong around others. Before condemning a relationship, they consider the standard of partners across society and may regard a current arrangement as bearable, under the circumstances. This view of people is fundamentally, but usefully, dark. Everyone is ultimately deeply troubled and hard to live with. The only people whom one can think of as normal are those one doesn’t yet know very well.
+
+A Classical philosophy holds that because we are not naturally well equipped for the demands of relationships, we need a lot of assistance and education. We need a culture that helps us to understand ourselves and to form realistic expectations. We require regular reminders to be more patient, forgiving, understanding and appreciative.
+
+[![Man writes 'I LOVE U' in the sand for his sweetheart, 1920-60.](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/09/writingsand.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/09/writingsand.jpg)
+
+The starting point has to be a frank recognition of our natural frailties: we have to accept that we have terrible tendencies to misinterpret people and situations and regularly fail at the challenges of getting close to others. We believe that love is a skill that has to be learnt, not an impulse that can just be followed.
+
+_In our quest to help relationships go better, we write books, make films, run classes and offer psychotherapy in person and online._
+
+2. _ **Sexuality&nbsp;** _
+
+We’re also aware of the scale of the hopes and challenges around sex. Though we often believe ourselves to be living in a liberated age, it remains acutely difficult not to feel shame around many of our sexual impulses. It is especially tricky to communicate what we want to those we are drawn to.
+
+In addition, technology has made pornography a constant feature of modern love – and a challenge to our desire to integrate our sexuality with other things we might care about, like tenderness, intelligence and dignity.
+
+[![PM-040314-pornB-1](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/09/PM-040314-pornB-1.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/09/PM-040314-pornB-1.jpg)
+
+We believe in removing some of the shame around sex, revealing that many desires belong to complex quests for intimacy.&nbsp;
+
+_In our work on sexuality, we write books, make films, run classes and offer psychotherapy._
+
+3. **_Work_**
+
+One of the distinctive ideas of modern times is that we don’t expect work to be simply a drudgery that we have to undertake to survive. We have high expectations of this huge part of our lives. Ideally, we want work to be ‘meaningful’, which involves the belief that we are in some way either reducing the pain, or increasing the happiness of other humans.
+
+There seem to be three things that imbue work with meaning. Firstly, a meaningful job taps into the deepest, most sincere and talented parts of us. So different people will necessarily find different sorts of work meaningful, according to what is inside their deepest self.
+
+[![16371178501_34359cb448_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/09/16371178501_34359cb448_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/09/16371178501_34359cb448_z.jpg)
+
+Secondly, a meaningful job is one which to some extent helps others: which fixes a problem that humans have: a job which in ways large and small, serves humanity. Meaningful work provides a service to others. And thirdly, a job feels meaningful when the person doing it can viscerally sense, day to day, the impact of their work upon an audience. In other words, not only is the job theoretically meaningful, it actually feels meaningful as one does it in the course of an average day.
+
+Three big reasons stand out for why meaningful work has become difficult to secure: firstly, because it’s perilously hard for us to locate our true interests in the time we have before sheer survival becomes an imperative. Our interests don’t manifest themselves spontaneously, they require us to patiently analyse ourselves and try out a range of options, to see what feels as if it might have the best ‘fit’ for us. But unfortunately, schools and universities, as well as society at large, doesn’t place much emphasis on this stage of education; on helping people to understand their authentic working identities. There’s far more stress on simply getting ready for any job, than a job that would be particularly well suited to us. Which is a pity not just for individuals, but for the economy as a whole because people always work better, harder and more fruitfully when their deep selves are engaged.
+
+[![FOX 2013 Summer TCA Tour - Los Angeles](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/09/PM-210214-unemploymentF.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/09/PM-210214-unemploymentF.jpg)
+
+Secondly, many jobs are relatively meaningless because it’s very possible, in the current economy, to generate profits from selling people things that don’t fundamentally contribute to well-being, but prey on our lack of self-command.&nbsp;
+
+Thirdly, a job may have real meaning, may genuinely be helping others, but it may not feel like this day to day because many organisations are so large, so slow moving, so split up over so many continents that the purpose of everyone’s work day to day gets lost amidst meetings, memos, conference calls and administration.
+
+[![5380585665_72842b37ca_z](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/09/5380585665_72842b37ca_z.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/09/5380585665_72842b37ca_z.jpg)
+
+This diagnosis helps to point the way to what we might begin to do to make work more meaningful for people: firstly, pay a lot more attention to helping people find their vocation, their real working authentic self; through career counselling and psychotherapy, extended work placements and changes to school and university curricula so as to allow students to start to analyse their identities and aptitudes from a much younger age.
+
+Secondly, the more we, as customers, can support businesses engaged in meaningful work, the more meaningful jobs there will be. Consumers have an enormous power over what kind of lives we can have as producers. By raising the quality of our demand, we raise the number of jobs there are which can answer to mankind’s deeper needs.
+
+Thirdly, in businesses which do carry out meaningful work, but on too large a scale over too long a period for it to feel meaningful day to day, we can get&nbsp;better at telling stories of what an organisation is up to, offering a tangible sense of every individual’s contribution to the whole.
+
+Ensuring that work is meaningful is no luxury: it determines the greatest issue of all in modern economics and politics: how hard and well people will work – and therefore how successful and wealthy our societies can be.
+
+_We run a Business unit that works with companies to create more meaningful products and services; we also run a learning and development department which resolves many interpersonal issues in workplaces and we offer psychotherapy and career counselling which helps people discover their vocation and unpick conflicts around careers. More at:&nbsp;_[www.theschooloflife.com/london/business](http://www.theschooloflife.com/london/business/#&panel1-2)
+
+4. **_Education&nbsp;_**
+
+Our ability to learn is one of the most basic things about the human condition. The range of things that we can learn to do better, via instruction, is very wide. However, the powerful influence of Romantic thinkers, who were convinced that important psychological things could not be taught, means the current education system leaves us stranded with all sorts of issues which are not passed down across generations, because they are believed to lie in the realm of intuition.
+
+We take the more Classical view that all important human achievements – especially around emotions – can be taught: how to control rage; how to have a conversation, how to be a loving parent, how to be calmer or more creative…&nbsp;
+
+[![Businessmen At Conference Table](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/09/561977001.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/09/561977001.jpg)
+
+We’re aware of how easily people are turned off by anything that appears too preachy and by the fatal tendency for what is worthy to come across as dull. Our commitment to education makes us very interested in the seductions and charms of consumer brands: we recognise the need to get and hold people’s attention in a highly individualistic world filled with distractions and demands.
+
+Because education is so central, we are ambitious about all the things that can educate us. Education isn’t just what goes on in schools: the arts and the media have hugely educative roles – but our culture has tended to shy away from acknowledging them.
+
+![](https://pierjacobsen.files.wordpress.com/2011/12/daily-mail.png)
+
+It should not only be children who go to school. Adults in general should see themselves as in need of education. One should never be done with school. One should stay an active alumni, learning throughout life. In the adult section of schools, there should be courses on how to converse with strangers or how to deal with the fear of getting old; how to calm down and how to forgive. There should be career advice for the middle-aged. Schools should be where a community gets educated, not just a place for children. So children should feel that they are participating in the early stages of a life-long process. Some classes should have seven-year-olds learning alongside fifty-year-olds (the two cohorts having been found to have equivalent maturities in a given area). In the Utopia the phrase ‘I’ve finished school’ would sound extremely strange.
+
+_The School of Life runs physical branches around the world where you can drop in for classes on almost any topic in the arena of emotional well-being. We also diffuse our lessons through films and books.&nbsp;_
+
+[www.theschooloflife.com/london/shop/classroom/core-curriculum/](http://www.theschooloflife.com/london/shop/classroom/core-curriculum/)
+
+5. **_Religion_**
+
+We’ve got a particular take on religion. We are clearly in a post-religious age but that doesn’t make us indifferent or hostile to religious thinkers. In fact the opposite is true: we are very keen on learning from religious thinkers. The technical errors of religions (for example, the claim that the soul can be reincarnated, that Christ rose from the dead or that the creator of the cosmos made specific promises about land rights at the eastern end of the Mediterranean) historically got entwined with some highly important, enduring large scale social and psychological ambitions. Religions have been machines for addressing psychological needs, which we still have.
+
+[![216342260_d4b816f8c1_o](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/09/216342260_d4b816f8c1_o.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/09/216342260_d4b816f8c1_o.jpg)
+
+Religions at their best tried to:
+
+- keep ideas about forgiveness at the front of our minds
+- encouraged compassion
+- insisted that certain forms of worldly success were misleading primary ways of assessing the worth of people
+- got us to recognise our own capacities to hurt others and to feel sorry for doing so
+- nudged us to be tender and understanding towards the secret sufferings of others
+- gave us helpful rituals to keep important ideas before us throughout the year
+
+_We see the School of Life as picking up many of the tasks of religion and creating secular replacements for particular religious ideals and practices. In agreement with the great thinkers of the 19th century, we believe that culture should replace scripture._
+
+**6. _Culture_**
+
+At the moment, culture (literature, art, film, photography, theatre) isn’t properly focused on taking up the crucial topics that religion formerly led the way on. People who want to express admiration for culture often say it’s valuable ‘for its own sake’. We can’t agree: it is valuable because it is capable of addressing our needs for education, guidance, consolation, perspective, encouragement and correction.
+
+We are drawn to the idea that culture is therapeutic. The idea of a ‘therapeutic’ culture isn’t that it should help us primarily with very urgent and severe mental health issues. It’s the idea that it can assist us to get better at managing the normal troubles of everyday life; like the tendency to get unhelpfully irritated with people we like, to lose perspective over minor matters, to lose sympathy with people who deserve our compassion and to take too harsh a view of our own mistakes.
+
+[![NETHERLANDS-ART-RIJKS-MUSEUM-VERMEER-RFEATURE](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/09/painting.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/09/painting.jpg)
+
+Seeing the various branches of culture having a therapeutic function isn’t new – it’s an idea started by Aristotle and endorsed by, among many others, Hegel and Nietzsche. We can here highlight some of the key therapeutic powers of conspicuous areas of cultural life:
+
+_Comedy_ helps us around inescapable failures and follies. The normal instinct is to be very annoyed with ourselves and others when we mess up. Unfortunately, this instinct often doesn’t serve us very well. Comedy, at its best, makes the therapeutic move of showing the fool as loveable. We don’t laugh at the fool out of derision, but out of unexpected sympathy. &nbsp;
+
+[![jan-6-david-brent-dance](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/09/jan-6-david-brent-dance.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/09/jan-6-david-brent-dance.jpg)
+
+_History_&nbsp;teaches us to deal more effectively with the problems that face us today. It introduces us to ideas that were in circulation in the past but which are needed now. History is a corrective to the myopia of the news industry.
+
+_Painting and the visual arts_ help us by being (in Hegel’s terminology) ‘the sensuous embodiment of ideas’. Often even very good ideas need to be experienced in a sensory way before they become meaningful to us. This power is revealed when a skilled piece of photography on the news makes us suddenly feel personally very touched by a geographically distant event which had previously left us cold. The role of the visual arts is to build up the images that we ought to have playing often in our minds at the difficult moments of our lives.
+
+[![Cardinal Marc Ouellet presides over the](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/09/138490462.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/09/138490462.jpg)
+
+_Music_&nbsp;the role of music is to support beneficial emotions and states of mind. Many states that are very important to us (calm, patience, modesty without being crushed, hopefulness, forgiveness) also tend to be fleeting and elusive. We need them, but on our own, we struggle to hold onto them. Music is a therapeutic cultural mechanism for deliberately and strategically making certain states of mind more reliably available.
+
+_Literature_&nbsp;has an astonishing ability to take us inside the experience of other people. So we can, even if only briefly, experience the world through the eyes of those who once seemed foreign and threatening, a move we find so hard in our daily lives. Novels lend us more lives than we have properly been granted.
+
+[![PRIDE AND PREJUDICE - 1995](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/09/rexfeatures_551159ae.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/09/rexfeatures_551159ae.jpg)
+
+_Architecture&nbsp;_creates environments that have characteristics comparable to human ones. We need buildings and cities that encourage our own better natures – by presenting in a lasting and very large-scale way the characteristics we ourselves have at our best. Ideally, buildings give long-term and public encouragement to the social virtues of harmony, modesty and dignity. &nbsp;
+
+_Fashion_ is a form of communication: it promotes identity. What we wear tells other people (and ourselves) something about who we are. Fashion tends to strike serious people as vain and silly because the messages that clothes happen to send are often not very helpful or admirable. But they sometimes are and could be much more.
+
+![](http://www.fashiongonerogue.com/wp-content/uploads/2013/04/MargetHowellSS1.jpg)
+
+We believe that the world has, up to now, not properly made use of the huge therapeutic potential of culture. We pay reverence to culture: but we have not yet learnt how to use it systematically.
+
+_The School of Life has curated a number of museum shows which put our theories on public display. We run websites at_ [_www.artastherapy.com_](http://www.artastherapy.com)_,_ [_www.booksastherapy.com_](http://www.booksastherapy.com) _and_ [_www.foodastherapy.org_](http://www.foodastherapy.org)
+
+_We have built a secular monastery in mid-Wales with the architect John Pawson:&nbsp;[www.thebookoflife.org/the-life-house](http://www.thebookoflife.org/the-life-house/)_
+
+**7**. **_The Media_**
+
+The media is hugely important to our chances of fulfilment – because it gives a society a picture of itself, shapes the agenda of politics and claims to know what information is most vital to us.
+
+However, very often, the media presents a challenge to our attempt to lead good lives; it prevents us from seeing the real issues and holding on to them, it is obsessed either by unhelpful ideologies or by a commitment to a bland neutrality of ideology; it is a breeding ground for feelings of undigested envy and material dissatisfaction; it fails to explain the economy to us; it informs us about disasters in other lands without granting us the tools for empathy; it constantly frightens and alarms us, heightening our sense of fragility; it leads us to distrust strangers and to have a very bleak view of collective life.
+
+Part of learning how to stay sane is to have a robust approach for how to deal with the stream of incoming information from the media.
+
+_The School of Life ran a news organisation at_ _[www.philosophersmail.com](http://www.philosophersmail.com), set up [www.newsastherapy.com](http://newsastherapy.com "News as therapy")__&nbsp;and now runs a popular Youtube channel ([www.youtube.com/theschooloflifetv](http://youtube.com/theschooloflifetv)). It is deeply interested in mass communication._
+
+_ **8** _. **_Consumerism&nbsp;_**
+
+There’s a fairly widespread anxiety around consumption. Thoughtful people often complain that ‘we’ve become too consumerist’ or they say they’re sick of ‘materialism’.
+
+We think that it’s not consumption or materialism – buying things and getting excited by possessions – that’s really the problem here.&nbsp;The trouble is that we’ve not collectively made a clear distinction between _good_ and _bad_ versions of these things. We agree there’s plenty of bad consumption around. But the way to deal with it is to beef up our capacity for good consumption. The same goes for materialism. It turns out there are very good kinds of materialistic behaviours.
+
+Material objects can play positive psychological (or spiritual) roles in our lives. Our highest ideals can get ‘materialised’ in physical objects, so that by buying and using these things we’ll be getting closer to our better selves.
+
+![](http://cdn.nest.co.uk/product-media/N0C/1200/900/Wastberg-Chipperfield-w102-Table-Lamp.jpg)
+
+There’s a crucial constructive psychological role for possessions. And good consumerism occurs when people get really focused on finding the objects that can play this role for them. Hunting for the ideal book, pencil or card needn’t be the enemy of the wise and mature life.
+
+_The School of Life operates a retail unit at_ [_www.theschooloflife.com/shop_](http://www.theschooloflife.com/shop)
+
+_ **9** _. _ **Capitalism&nbsp;** _
+
+Economies look as if they are basically about huge material facts – oil fields, communications satellites, huge retail complexes, vast entertainment districts. But behind these impressive factors, we believe, that the economy is to an extraordinary extent a psychological phenomenon driven by our collective appetites and our imaginations and longings. It is what people are willing to pay for that generates profit and organises the whole system of investment.
+
+The education of the customer is, therefore, one of the key economic moves for today.&nbsp;
+
+[![aod-jaguar-1](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/09/aod-jaguar-1.jpg)](http://www.thebookoflife.org/wp-content/uploads/2015/09/aod-jaguar-1.jpg)
+
+Up to now, capitalism has unsurprisingly tended to focus on the supply of our more basic needs. We’re interested in a kind of capitalism that operates further up Abraham Maslow’s famous Pyramid of Needs: that’s as efficient at meeting our needs for understanding as for sweet things to eat; that’s as great at helping us find OK partners as it is, at present, great at uniting us with the ideal sandwich.
+
+[![640px-Maslows_Hierarchy_of_Needs.svg_](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/09/640px-Maslows_Hierarchy_of_Needs.svg_.png)](http://www.thebookoflife.org/wp-content/uploads/2015/09/640px-Maslows_Hierarchy_of_Needs.svg_.png)
+
+So, we don’t think the question should be: _Capitalism – yes or no?_ The core issue is about improving capitalism to make sure it is fulfilling our highest needs.
+
+_The School of Life tries to tug businesses to make a more emotionally intelligent sort of capitalism via its business unit:_ _[www.theschooloflife.com/business](http://www.theschooloflife.com/business)_
+
+\*\*\*
+
+The School of Life exists to demonstrate that the proper role of ideas is to lead to the transformation of our societies in positive, emotionally intelligent directions.
+
+[![](https://img.youtube.com/vi/sc2sbdx02VY/0.jpg)](https://www.youtube.com/embed/sc2sbdx02VY '')
+
+.
+
+* * *
+
+## 
+
+## Brought to you by The School of Life
+
+The Book of Life is brought to you by &nbsp;[The School of Life](http://www.theschooloflife.com/?utm_source=TBOL%20article%20content%20banner%20-%20TSOL%20main%20site&utm_campaign=TBOL%20article%20content%20banner%20-%20TSOL%20main%20site&utm_content=TBOL%20article%20content%20banner%20-%20TSOL%20main%20site "The School of Life") – a global organisation dedicated to developing emotional intelligence. &nbsp;We apply psychology, philosophy and culture to everyday life.&nbsp;You can find our classes, films, books, games and much more online and in our branches around the world. Below is a feature from our [shop](http://www.theschooloflife.com/london/world/?utm_source=TBOL%20article%20content%20banner%20-%20shop&utm_campaign=TBOL%20article%20content%20banner%20-%20shop&utm_content=TBOL%20article%20content%20banner%20-%20shop#&panel1-1 "The School of Life Shop") which we think you might find&nbsp;of interest:
+
+[![](https://www.theschooloflife.com/thebookoflife/wp-content/uploads/2015/09/Layer-85-RESIZED-e1508861131456.jpg)](https://www.theschooloflife.com/shop/catalog/product/view/id/5932/s/the-school-of-life-school-pin-badge/category/3/?utm_source=TBOL%20-%20The%20School%20of%20Life%20Pin%20Badge&utm_campaign=TBOL%20-%20The%20School%20of%20Life%20Pin%20Badge&utm_content=TBOL%20-%20The%20School%20of%20Life%20Pin%20Badge)
+
+**The School of Life Pin Badge**
+
+_An enamel pin badge for followers of The School of Life._
+
+A badge of identification for those who like to declare their allegiance to life-long learning about emotions and ideas. A ‘student’ at The School of Life understands that learning doesn’t stop with graduation. They are forever restlessly searching for ideas that can console, enlighten and enrich their lives.&nbsp; **&nbsp;[Shop now \>\>](https://www.theschooloflife.com/shop/catalog/product/view/id/5932/s/the-school-of-life-school-pin-badge/category/3/?utm_source=TBOL%20-%20The%20School%20of%20Life%20Pin%20Badge&utm_campaign=TBOL%20-%20The%20School%20of%20Life%20Pin%20Badge&utm_content=TBOL%20-%20The%20School%20of%20Life%20Pin%20Badge)**
