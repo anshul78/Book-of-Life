@@ -2,6 +2,7 @@ require 'metainspector'
 require 'nokogiri'
 require 'reverse_markdown'
 require './rm_converters'
+require 'shellwords'
 
 
 # Removes share buttons and "back to top" div
@@ -119,7 +120,7 @@ def start(index_key)
     end
 
     # delete duplicate files
-    `fdupes --reverse --delete --noprompt #{folder_sub_path}`
+    `fdupes --reverse --delete --noprompt #{folder_sub_path.shellescape}`
 
   end
 end
