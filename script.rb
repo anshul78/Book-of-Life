@@ -9,9 +9,12 @@ require 'shellwords'
 def remove_unneccesary_divs(page)
   @doc = Nokogiri::HTML::DocumentFragment.parse(page.to_s)
   @doc.css("div.addtoany_share_save_container").remove()
+  @doc.css("div.product-share").remove()
   @doc.css("a.backtotop").remove()
   @doc.css("script").remove()
   @doc.css("comment()").remove()
+  @doc.css("style").remove()
+  @doc.css("div.views-wrapper").remove()
   return Nokogiri::HTML(@doc.to_html)
 end
 
