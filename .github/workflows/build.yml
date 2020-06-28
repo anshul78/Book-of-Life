@@ -26,6 +26,7 @@ jobs:
       run: |
         bundle
         sudo apt-get install fdupes
+        git fetch --unshallow origin
         ruby script.rb "relationships"
 
     - name: Commit and Push files
@@ -59,6 +60,7 @@ jobs:
       run: |
         bundle
         sudo apt-get install fdupes
+        git fetch --unshallow origin
         ruby script.rb "work"
 
     - name: Commit and Push files
@@ -92,6 +94,7 @@ jobs:
       run: |
         bundle
         sudo apt-get install fdupes
+        git fetch --unshallow origin
         ruby script.rb "self_knowledge"
 
     - name: Commit and Push files
@@ -125,6 +128,7 @@ jobs:
       run: |
         bundle
         sudo apt-get install fdupes
+        git fetch --unshallow origin
         ruby script.rb "sociability"
 
     - name: Commit and Push files
@@ -158,6 +162,7 @@ jobs:
       run: |
         bundle
         sudo apt-get install fdupes
+        git fetch --unshallow origin
         ruby script.rb "calm"
 
     - name: Commit and Push files
@@ -191,6 +196,7 @@ jobs:
       run: |
         bundle
         sudo apt-get install fdupes
+        git fetch --unshallow origin
         ruby script.rb "leisure"
 
     - name: Commit and Push files
