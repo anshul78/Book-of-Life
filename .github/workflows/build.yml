@@ -16,12 +16,6 @@ jobs:
       with:
           ruby-version: '2.7'
 
-    - name: Update Git to latest version
-      run: |
-        sudo add-apt-repository -y ppa:git-core/ppa
-        sudo apt-get update
-        sudo apt-get install git -y
-
     - name: Create local changes
       run: |
         bundle
@@ -31,15 +25,13 @@ jobs:
 
     - name: Commit and Push files
       run: |
-        if [[ -n $(git status -s) ]]; then
-          git config --local core.ignorecase true
-          git config --local user.name "GitHub Action"
-          git config --local user.email "github-action@users.noreply.github.com"
-          git add .
-          git commit -am "Update 'Relationships'"
-          git pull
-          git push --force-with-lease
-        fi
+        git config --local core.ignorecase true
+        git config --local user.name "GitHub Action"
+        git config --local user.email "github-action@users.noreply.github.com"
+        git add .
+        echo `git commit -am "Update 'Relationships'"`
+        git pull
+        git push --force-with-lease
 
   work:
     # needs: relationships
@@ -50,12 +42,6 @@ jobs:
       with:
           ruby-version: '2.7'
 
-    - name: Update Git to latest version
-      run: |
-        sudo add-apt-repository -y ppa:git-core/ppa
-        sudo apt-get update
-        sudo apt-get install git -y
-
     - name: Create local changes
       run: |
         bundle
@@ -65,15 +51,13 @@ jobs:
 
     - name: Commit and Push files
       run: |
-        if [[ -n $(git status -s) ]]; then
-          git config --local core.ignorecase true
-          git config --local user.name "GitHub Action"
-          git config --local user.email "github-action@users.noreply.github.com"
-          git add .
-          git commit -am "Update 'Work'"
-          git pull
-          git push --force-with-lease
-        fi
+        git config --local core.ignorecase true
+        git config --local user.name "GitHub Action"
+        git config --local user.email "github-action@users.noreply.github.com"
+        git add .
+        echo `git commit -am "Update 'Work'"`
+        git pull
+        git push --force-with-lease
 
   self_knowledge:
     # needs: [relationships, work]
@@ -84,12 +68,6 @@ jobs:
       with:
           ruby-version: '2.7'
 
-    - name: Update Git to latest version
-      run: |
-        sudo add-apt-repository -y ppa:git-core/ppa
-        sudo apt-get update
-        sudo apt-get install git -y
-
     - name: Create local changes
       run: |
         bundle
@@ -99,15 +77,13 @@ jobs:
 
     - name: Commit and Push files
       run: |
-        if [[ -n $(git status -s) ]]; then
-          git config --local core.ignorecase true
-          git config --local user.name "GitHub Action"
-          git config --local user.email "github-action@users.noreply.github.com"
-          git add .
-          git commit -am "Update 'Self Knowledge'"
-          git pull
-          git push --force-with-lease
-        fi
+        git config --local core.ignorecase true
+        git config --local user.name "GitHub Action"
+        git config --local user.email "github-action@users.noreply.github.com"
+        git add .
+        echo `git commit -am "Update 'Self Knowledge'"`
+        git pull
+        git push --force-with-lease
 
   sociability:
     # needs: [relationships, work, self_knowledge]
@@ -118,12 +94,6 @@ jobs:
       with:
           ruby-version: '2.7'
 
-    - name: Update Git to latest version
-      run: |
-        sudo add-apt-repository -y ppa:git-core/ppa
-        sudo apt-get update
-        sudo apt-get install git -y
-
     - name: Create local changes
       run: |
         bundle
@@ -133,15 +103,13 @@ jobs:
 
     - name: Commit and Push files
       run: |
-        if [[ -n $(git status -s) ]]; then
-          git config --local core.ignorecase true
-          git config --local user.name "GitHub Action"
-          git config --local user.email "github-action@users.noreply.github.com"
-          git add .
-          git commit -am "Update 'Sociability'"
-          git pull
-          git push --force-with-lease
-        fi
+        git config --local core.ignorecase true
+        git config --local user.name "GitHub Action"
+        git config --local user.email "github-action@users.noreply.github.com"
+        git add .
+        echo `git commit -am "Update 'Sociability'"`
+        git pull
+        git push --force-with-lease
 
   calm:
     # needs: [relationships, work, self_knowledge, sociability]
@@ -152,12 +120,6 @@ jobs:
       with:
           ruby-version: '2.7'
 
-    - name: Update Git to latest version
-      run: |
-        sudo add-apt-repository -y ppa:git-core/ppa
-        sudo apt-get update
-        sudo apt-get install git -y
-
     - name: Create local changes
       run: |
         bundle
@@ -167,15 +129,13 @@ jobs:
 
     - name: Commit and Push files
       run: |
-        if [[ -n $(git status -s) ]]; then
-          git config --local core.ignorecase true
-          git config --local user.name "GitHub Action"
-          git config --local user.email "github-action@users.noreply.github.com"
-          git add .
-          git commit -am "Update 'Calm'"
-          git pull
-          git push --force-with-lease
-        fi
+        git config --local core.ignorecase true
+        git config --local user.name "GitHub Action"
+        git config --local user.email "github-action@users.noreply.github.com"
+        git add .
+        echo `git commit -am "Update 'Calm'"`
+        git pull
+        git push --force-with-lease
 
   leisure:
     # needs: [relationships, work, self_knowledge, sociability, calm]
@@ -186,12 +146,6 @@ jobs:
       with:
           ruby-version: '2.7'
 
-    - name: Update Git to latest version
-      run: |
-        sudo add-apt-repository -y ppa:git-core/ppa
-        sudo apt-get update
-        sudo apt-get install git -y
-
     - name: Create local changes
       run: |
         bundle
@@ -201,12 +155,10 @@ jobs:
 
     - name: Commit and Push files
       run: |
-        if [[ -n $(git status -s) ]]; then
-          git config --local core.ignorecase true
-          git config --local user.name "GitHub Action"
-          git config --local user.email "github-action@users.noreply.github.com"
-          git add .
-          git commit -am "Update 'Leisure'"
-          git pull
-          git push --force-with-lease
-        fi
+        git config --local core.ignorecase true
+        git config --local user.name "GitHub Action"
+        git config --local user.email "github-action@users.noreply.github.com"
+        git add .
+        echo `git commit -am "Update 'Leisure'"`
+        git pull
+        git push --force-with-lease
